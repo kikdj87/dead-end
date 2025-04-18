@@ -1,0 +1,11 @@
+{
+	"folders": [
+		{
+			"path": ".."
+		}
+	],
+	"settings": {},
+	"terminal.integrated.env": {
+		"PATH": "C:\\Program Files"
+	  }
+}
