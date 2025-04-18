@@ -1,4 +1,4 @@
-=
+= Capítulo 1
 
 La traducción literal del inglés al español de la expresión “Dead End” es que no hay salida. No existe el camino tras aquella señal y termina de forma abrupta. En los mejores casos un edificio, un parque. Pero la conclusión es que si sigues caminando por donde indica el cartel, no vas a encontrar salida. Y en el momento en el que Séfora se dio cuenta que su vida la llevó hasta un camino donde no había salida alguna, donde tampoco tendría la alternativa de poder cambiar de rumbo porque ya no podía dar más pasos.
 

@@ -1,4 +1,4 @@
-=
+= Capítulo 2
 
 A penas el sol había salido cuando un estruendoso ruido de cristales rotos despertó a Séfora de un apacible sueño. Había soñado que se encontraba con sus padres y estaba disfrutando de estar con ellos en una escena de una película en la playa, como si fuera un montaje cuando más ruidos proveniente ahora de su puerta hizo que se alarmara, por lo que se incorporó aún medio dormida. Se acercó a la puerta para ver qué pasaba, normalmente sus abuelos no eran personas madrugadoras y menos para hacer reformas en casa.
 

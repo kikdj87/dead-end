@@ -1,4 +1,4 @@
-=
+= Capítulo 3
 
 Séfora miró desde la cama hacia la ventana, el papel a penas dejaba ver como el cielo se iba volviendo naranja. Estaba cansada, pero aún tenía un torbellino de emociones invadiendo su cabeza, dando vueltas a una idea, a otra, cada cual más loca. Su abuelo había mantenido engañado a su propio hijo con el conocimiento de la existencia de su nieta, había vigilado todos y cada uno de sus movimientos, igual que ahora la había estado vigilando a ella.
 

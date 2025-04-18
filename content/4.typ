@@ -1,4 +1,4 @@
-=
+= Capítulo 4
 
 El tiempo que debían de esperar en el aeropuerto fue lo que peor se llevó. Séfora rogó por que le prestaran unos auriculares para poder escuchar música y pasar el tiempo de alguna manera, ya le dolían los pies de estar de plantón en tanta cola. Era la primera vez que viajaba y no le estaba gustando la experiencia.
 

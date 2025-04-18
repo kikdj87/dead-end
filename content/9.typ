@@ -1,4 +1,4 @@
-=
+= Capítulo 9
 
 Taeku había echado a correr hacia la ventana que estaba abierta de par en par, ya no había rastro de Keiken por ningún lado y por ello estaba maldiciendo entre dientes, cerrando todo y asegurándose que no pudiera abrirse con facilidad. Por otro lado Yonghwa estaba examinando el brazo de Séfora, el cual tenía un leve corte, no muy profundo pero si escandaloso.
 

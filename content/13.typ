@@ -1,4 +1,4 @@
-=
+= Capítulo 13
 
 La discusión con Yonghwa le había dolido en el pecho pero eso no impedía que tuviera que seguir trabajando y seguir viéndole cada día en las reuniones. Él la trataba con respeto pero de forma fría, así que trataba de habituarse a la nueva situación, cosa que le costaba mucho trabajo. Desde que conoció a Yongsun había planeado al detalle como hacer una reunión entre ambos chicos e introducirle a Yonghwa su hermano, para que le fuera viendo de otra manera, pero sus planes se habían quebrado en una noche.
 

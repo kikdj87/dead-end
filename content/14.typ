@@ -1,4 +1,4 @@
-=
+= Capítulo 14
 
 Taeku hablaba por teléfono con Sanghun contandole lo que había pasado hacía escasos momentos. Se le notaba contento por el cambio que había dado, pero Séfora no podía evitar tener esa extraña sensación del cuerpo de tener un arma entre sus manos contra una persona, una horrible y asquerosa persona, pero no quitaba que fuera una vida. Las manos le temblaban.
 

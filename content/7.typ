@@ -1,4 +1,4 @@
-=
+= Capítulo 7
 
 Tras el deseoso baño de agua tibia y la cura de las heridas, se arregló para estar lista, para su primera visita con el abogado Sanghun. Tenía mucha curiosidad por qué tipo de persona era, tanto en personalidad como físicamente. Se lo imaginaba viejo como Ten Shio pero con el estilo de Junho.
 

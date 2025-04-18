@@ -1,4 +1,4 @@
-=
+= Capítulo 6
 
 Después de tanta reunión en la que Séfora no podía más, tenía la cabeza embotada sobre la información de camuflaje que la empresa tenía a la hora de verse al público; aún le costaba comprender cosas, pero le iba pillando el hilo a los temas; acabó con un café en la mano en la recepción del edificio, donde vio a una mujer de mediana edad agarrando un sobre marrón entre los dedos mirando a todos lados, parecía algo perdida. Se acercó a ella.
 

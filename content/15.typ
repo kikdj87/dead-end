@@ -1,4 +1,4 @@
-=
+= Capítulo 15
 
 Dejaron a Yonghwa acostado sobre el suelo del salón que estaba impecable de limpio, se podría comer allí. Taeku estaba bajo las órdenes de Jongtae, que titubeaba un poco a la hora de ordenarle que le trajese productos para desinfectar y limpiar la herida.
 

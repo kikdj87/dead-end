@@ -1,4 +1,4 @@
-=
+= Capítulo 11
 
 Pasaron algunos días en las que solo iba a reuniones. El que Keiken fuera pasando también a reclutar gente junto con Mina les estaba poniendo las cosas muy complicadas. Muchos estaban a favor de que la chica coreana fuera la que estuviera al mando, aunque en el momento en el que se nombraba a Sanghun muchos se achantaban y reculaban ante la idea de Mina.
 

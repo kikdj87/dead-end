@@ -32,15 +32,15 @@
   show heading: it => [
     #set align(center)
     #set text(20pt, weight: "regular")
-    #pagebreak(to: "even")
+    #pagebreak(to: "odd")
     #block(
       below: 80pt,
       // fill: rgb("#f0f0f0"),
       // radius: 7pt,
       // outset: 10pt,
       [
-        #smallcaps("Capítulo")
-        #counter(heading).display()
+        //#smallcaps("Capítulo")
+        //#counter(heading).display()
         #it.body
       ],
     )

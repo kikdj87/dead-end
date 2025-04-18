@@ -1,4 +1,4 @@
-=
+= Capítulo 8
 
 Jongtae acababa de marcharse y Séfora fue directa a la ventana para abrirla y dejar que el aire entrara. Tenía en la cabeza muchas cosas que había estado repasando y necesitaba despejar su cabeza de tanta información. De pronto un sobre entró por la ventana de forma furtiva.
 

@@ -1,4 +1,4 @@
-=
+= Capítulo 16
 
 Gracias a la presión de Taeku y que aquel hospital estaba financiado por su asociación le dieron el alta a Séfora sin rechistar mucho, llevandose la medicación que tendría que tomarse para evitar el fuerte dolor que sentía a causa del disparo. Como iban los tres solos en el coche fue Taeku quien conducía y Junnosuke se sentó a su lado en la parte de atrás. Pero ninguno dijo nada. Ella tenía en la cabeza las formas en las que iba a matar a Katsura y cómo le iba a hacer suplicar por su vida de rodillas en el suelo.
 
