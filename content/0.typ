@@ -2,21 +2,21 @@
 
 Las miradas de ambos hombres se cruzaron y una chispa se creó en el ambiente, se conocían de vidas pasadas por lo que no se podían evitar. Ryu agarró a su mujer de la mano y la atrajo hacia su cuerpo con mucho cuidado, ella comprendió a la perfección su mirada y relajó el cuerpo al sentir la tensión de su marido al mantenerla pegada a él.
 
--- Ha pasado mucho tiempo Watashime, veo que estás bien -- Al notar la tensión de ambas personas alzó ambas manos en ademán de tranquilidad -- Tu padre te ha estado buscando, ha sido difícil dar contigo.
+---Ha pasado mucho tiempo Watashime, veo que estás bien ---al notar la tensión de ambas personas alzó ambas manos en ademán de tranquilidad ---. Tu padre te ha estado buscando, ha sido difícil dar contigo.
 
--- Bueno, por algo será. ¿Qué quieres? - Intentó esconder a la mujer detrás de su cuerpo, pero su interlocutor se percató del gesto y esbozó una amplia sonrisa.
+---Bueno, por algo será. ¿Qué quieres? ---intentó esconder a la mujer detrás de su cuerpo, pero su interlocutor se percató del gesto y esbozó una amplia sonrisa.
 
--- Le diré al viejo que será abuelo, le hará ilusión saberlo.
+---Le diré al viejo que será abuelo, le hará ilusión saberlo.
 
--- Si quisiera decírselo lo haría por mí mismo. No hace falta que abras la boca, pareces su perro, como siempre.
+---Si quisiera decírselo lo haría por mí mismo. No hace falta que abras la boca, pareces su perro, como siempre.
 
--- Sabes perfectamente que él no quiere que te pase nada malo, ni a ella tampoco -- Señaló a la mujer que le miró con rostro serio -- Es un placer conocerla, soy familia suya.
+---Sabes perfectamente que él no quiere que te pase nada malo, ni a ella tampoco ---señaló a la mujer que le miró con rostro serio ---. Es un placer conocerla, soy un familiar suyo.
 
--- Ella lo sabe _todo_ -- Ryu sentenció sin dejar que terminara de hablar -- Ahora que me has localizado vete de mi vista.
+---Ella lo sabe _todo_ ---Ryu sentenció sin dejar que terminara de hablar ---. Ahora que me has localizado vete de mi vista.
 
--- No puedo, piensa en esto; si yo te he encontrado cualquiera puede hacerlo -- Al fin bajó las manos y se sacó un cigarro para encenderlo y dar una profunda calada -- Y no es una amenaza.
+---No puedo, piensa en esto; si yo te he encontrado cualquiera puede hacerlo ---al fin bajó las manos y se sacó un cigarro para encenderlo y dar una profunda calada ---, y no es una amenaza.
 
--- Ya no soy nadie en ese mundo, solo quiero vivir en paz con mi familia -- Miró a su mujer y de nuevo al hombre que tenía delante.
+---Ya no soy nadie en ese mundo, solo quiero vivir en paz con mi familia ---miró a su mujer y de nuevo al hombre que tenía delante.
 
 Manteniendo la mano de la mujer agarrada se marchó de allí a su nuevo hogar, lejos de su padre y del caos que reinaba en aquel mundo.
 
@@ -26,7 +26,7 @@ Al cumplir los dieciocho años decidió salir a Europa para conocer más sobre l
 
 Estando en un bar de Italia esperando el primer contacto que su padre le había pasado entró por la puerta un grupo de chicas bastante ruidosas para su gusto y frunció el ceño dirigiendo la mirada hacia ellas. Por sus estudios conocía bastantes idiomas europeos y reconoció a la perfección el español que ese grupo de chicas gritaban.
 
--- Pienso beber hasta quedar inconsciente -- Gritó una de las chicas a las que las otras corearon con un rotundo sí.
+---Pienso beber hasta quedar inconsciente ---gritó una de las chicas a las que las otras corearon con un rotundo sí.
 
 Ryu las escuchaba incrédulo. La cultura de esos países con el alcohol era completamente diferente a la suya, allí una mujer borracha por la calle podría correr más peligro que diversión. Pero eso no era de su incumbencia, no tenía por qué protegerlas de nada ni nadie, pero no podía dejar de mirar aquella chica de ojos grandes y marrones que había gritado aquello.
 
@@ -34,15 +34,15 @@ Con un mensaje canceló su cita de esa tarde y se quedó bebiendo gaseosa en la 
 
 Cuando las chicas abandonaron el bar sin casi poder mantenerse en pie el sol se estaba poniendo. Lo que le encantaba de Italia era el clima en el mes de abril por la tarde, era cálido y empezaba a anochecer cada vez más pronto. Pero no pensaba en ello, dejó pagada la cuenta y se marchó detrás de las chicas a cierta distancia: podría no pasar nada, pero también podría pasar algo, y él con su conocimiento de lucha que tenía podía protegerlas de cualquier cosa mala. De pronto las chicas decidieron separarse y todas menos una decidieron entrar en una tienda a comprar, por lo que parecían gritar, más alcohol y la chica de ojos grandes y marrones se quedó apoyada junto a una farola. Se percató de su traspié y fue a socorrerla.
 
--- ¡Perdón! -- Cayó en brazos del chico y rompió a reír. Estaba totalmente borracha y sus mejillas estaban muy sonrojadas por el alcohol -- Creo que he bebido un poquito.
+---¡Perdón! ---cayó en brazos del chico y rompió a reír. Estaba totalmente borracha y sus mejillas estaban muy sonrojadas por el alcohol ---creo que he bebido un poquito.
 
--- No creo, ¿estás segura? -- Ryu se sorprendió a sí mismo con aquella broma que hizo que ella alzara la mirada hacia él.
+---No creo, ¿estás segura? ---Ryu se sorprendió a sí mismo con aquella broma que hizo que ella alzara la mirada hacia él.
 
 Y supieron en ese momento que eran el uno para el otro.
 
--- Me llamo Lucía -- Ella se llevó la mano al pecho para señalarse mientras se incorporaba, se colocó bien el pelo detrás de las orejas, pero un mechón rebelde del flequillo volvió entre sus cejas en un instante -- Y tú no eres de aquí.
+---Me llamo Lucía ---ella se llevó la mano al pecho para señalarse mientras se incorporaba, se colocó bien el pelo detrás de las orejas, pero un mechón rebelde del flequillo volvió entre sus cejas en un instante ---, y tú no eres de aquí.
 
-- Muy observadora -- Asintió él sin perder la sonrisa -- Mi nombre es Ryu.
+---Muy observadora ---asintió él sin perder la sonrisa ---, mi nombre es Ryu.
 
 Y pasó el tiempo.
 
@@ -52,12 +52,20 @@ Finalmente dos meses antes de la decisión de vivir juntos él le había contado
 
 Con rapidez y sin querer hacer mucha fiesta decidieron casarse, invitando a los padres de ella tan solo para no dejarles al margen de la buena noticia ya que ella era la única hija que tenían y no quería perderlos.
 
--- Qué crees que va a pasar ahora -- Lucía estaba frente a la ventana con ambas manos en la tripa, ya se estaba dejando ver -- Me preocupa que puedan dar contigo.
+---Qué crees que va a pasar ahora ---Lucía estaba frente a la ventana con ambas manos en la tripa, ya se estaba dejando ver ---, me preocupa que puedan dar contigo.
 
--- He roto con mi pasado -- Ryu se acercó hasta ella y apoyó la frente en su hombro sin agacharse mucho -- Deberían entenderlo.
+---He roto con mi pasado ---Ryu se acercó hasta ella y apoyó la frente en su hombro sin agacharse mucho ---. Deberían entenderlo.
 
--- Quiero que ella crezca con sus padres -- Susurró bajando la cabeza.
+---Quiero que ella crezca con sus padres ---susurró bajando la cabeza.
 
--- ¿Es una niña? - Ryu se separó y la giró agarrando sus hombros -- ¿Ya lo sabes? -- Lucía asintió con la cabeza y se abrazaron -- Va a ser la niña más amada del mundo.
+---¿Es una niña? ---Ryu se separó y la giró agarrando sus hombros ---¿Ya lo sabes? ---Lucía asintió con la cabeza y se abrazaron ---Va a ser la niña más amada del mundo.
 
 Durante un tiempo no supo nada más de su padre ni de las personas que trabajaban para él, pero no quitaba que estuvieran observando cada movimiento que hacía. Finalmente bajó la guardia y se dejó llevar por la paternidad en el momento en el que Lucía dio a luz una niña hermosa y sana a la que llamaron Séfora.
+
+Séfora creció junto a sus abuelos maternos que, a pesar de la circunstancia que les había unido, aceptaron al marido de su única hija. En el momento de su primer cumpleaños Ryu decidió hacer algo que no había hecho su padre con él, escribirle cartas para contarle su vida. El tema no eran las cartas en sí sino el contenido que en ellas había. Conocía el pasado de su padre gracias a los trabajadores que habían vivido muchas aventuras con él en lo largo de su vida. Era un hombre frío y de pocas palabras, por lo que él no quería ser así con su hija. Se había enamorado de la cultura que veía día a día en España y quería eso para ella.
+
+Se sorprendió a sí mismo escribiéndole cada semana una carta y guardando estas para dárselas a partir de su décimo o undécimo cumpleaños, cuando pudiera comprender mejor su historia y su pasado.
+
+Lo que no supo es que su final con Séfora fue más rápido de lo que hubiese imaginado. Cuando la pequeña Séfora tenía tres años de edad la dejaron con sus abuelos ya que querían tener una escapada de matrimonio, la cual hacía meses que no tenían, por lo que lo planearon todo; el hotel, las actividades y las rutas que iban a hacer por la ciudad que habían escogido para aquella escapada: Córdoba. Esa mañana se despidieron de la niña con un beso en la frente y por la noche el coche había sido encontrado siniestrado en una carretera secundaria dirección al hotel que tenían reservado, ninguno había sobrevivido.
+
+Desde ese entonces las cartas fueron olvidadas y la pequeña pasó a ser cuidada por sus abuelos maternos Antonia y Manolo.
