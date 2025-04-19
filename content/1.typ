@@ -4,11 +4,12 @@ La traducción literal del inglés al español de la expresión “Dead End” e
 
 A penas iba a cumplir los dieciocho años cuando al fin supo qué quería hacer con su vida: nada.
 
-Estaba en un rincón de su habitación mirando el calendario, viendo los días tachados que habían pasado y los que quedaban para el dibujo de una tarta de cumpleaños. Suspiró profundamente abrazando sus rodillas, escuchando a su abuela discutir por teléfono con alguna compañía de agua, gas o electricidad. Los días se habían vuelto monótonos desde que había terminado el instituto: discutir con sus abuelos porque no quería ir a la universidad, discutir porque no querían hablar de sus padres y del accidente, discutir porque estaba encerrada siempre en su habitación y no tenía vida social.
+
+// esto no lo entiendo
 
 Había vivido con ellos desde que tenía uso de razón. Le dijeron que sus padres habían tenido un accidente de coche viajando hacia el sur de vacaciones solos, dejado a la pequeña Séfora de 3 años con ellos para que le cuidaran y jamás volvieron. Por más que preguntara por ellos, por más que rogara por ver sus fotos jamás le contaban nada. Odiaban a su padre porque había llevado a su adorada hija por un camino angosto. Eso fue lo único que dijo su abuelo al respecto.
 
-Y algo tenía claro con respecto a su padre: era de origen asiático. Porque cada vez que le miraban en casa sentían ese desprecio por su ascendencia: por parecerse a él, por tener sus ojos, su pelo. Por no haber sacado nada de su madre.
+Y algo tenía claro con respecto a su padre: era de origen asiático. Porque cada vez que le miraban en casa sentían ese desprecio por su ascendencia: por parecerse a él, por tener sus orejas, su pelo. Por no haber sacado nada de su madre.
 
 Y lo único que pudo ver de emoción positiva con su abuela fue cuando de pequeña una vecina le dijo que tenía la misma sonrisa que su madre, así que con emoción fue a contárselo. Pudo ver en el rostro de su abuela un pequeño gesto emotivo y esbozó una pequeña sonrisa que se desvaneció enseguida, haciendo que volviera a sus labores sin decirle nada más.
 
