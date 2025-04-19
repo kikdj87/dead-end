@@ -4,17 +4,17 @@ El tiempo que debían de esperar en el aeropuerto fue lo que peor se llevó. Sé
 
 El móvil desde el que escuchaba música era el de Hyungmin así que le arrastró por todo el aeropuerto mientras esperaban a que les avisaran de que su vuelo estaba listo para la salida. Séfora sentía que si no andaba de alguna manera se iba a volver loca, así que fue tienda por tienda.
 
-Paseaba ajena a todo el bullicio del derededor, la gente yendo y viniendo, corriendo porque perdían el vuelo o porque acababan de llegar de un vuelo largo. Caminó por las tiendas hasta pararse frente a la portada de un periódico que le llamó la atención. Una chica había desaparecido, era menor de edad y hacía más de una semana que no se sabía nada de ella.
+Paseaba ajena a todo el bullicio del derredor, la gente yendo y viniendo, corriendo porque perdían el vuelo o porque acababan de llegar de un vuelo largo. Caminó por las tiendas hasta pararse frente a la portada de un periódico que le llamó la atención. Una chica había desaparecido, era menor de edad y hacía más de una semana que no se sabía nada de ella.
 
 Aquello le dio que pensar. Ella llevaba un año prácticamente desaparecida de su entorno y, aunque no hubiese podido mirar las redes sociales o los periódicos, sabía que nadie la estaría buscando como buscaban a esa chica. No le quedaba nadie que la atase en esta tierra que estaba a punto de despedir, así que se labraría un nuevo futuro allí donde iba.
 
-Nadie lloraría aquí su muerte. Sabía perfectamente que lo que tenía en ese momento tampoco era una familia verdadera, estaban con ella por el interes de su nuevo apellido, lo nuevo que el destino le había dado. Pero aún así, aprovecharía cada instante en poder crecer y atesorarlo.
+Nadie lloraría aquí su muerte. Sabía perfectamente que lo que tenía en ese momento tampoco era una familia verdadera, estaban con ella por el interés de su nuevo apellido, lo nuevo que el destino le había dado. Pero aún así, aprovecharía cada instante en poder crecer y atesorarlo.
 
 Y cuando parecía imposible que llegara el momento de subir en el avión, allí estaban buscando sus asientos con los papeles que llevaban en la mano, con tan mala suerte que Hyungmin y Séfora estaban separados por una distancia bastante como para no poder seguir escuchando música, así que de mala gana le dio los auriculares. Cuando encontró su lugar, ventanilla como había pedido, había un hombre bastante extravagante sentado a su lado, pero pareció no hacerle caso, ya que estaba absorto con su móvil y unos auriculares grandes puestos.
 
 ---Sef, no había más sitio donde sentarse, lo siento ---Tae se inclinó un poco hacia la chica. Ella le ignoró, odiaba que la llamara así, pero había aprendido a pasar de él después de un año entero sin llamarle por su nombre completo ---, estaremos cerca.
 
-Cuando Jongtae se marchó hacia su asiento, ella aprovechó para sacarle el dedo corazón mientras murmuraba algunas palabrotas, molesta, como solía hacer siempre que él la llamaba Sef. De pronto una carcajada a su lado la sacó de aquel momentaneo enfado, la persona que estaba a su lado la estaba mirando con rostro divertido.
+Cuando Jongtae se marchó hacia su asiento, ella aprovechó para sacarle el dedo corazón mientras murmuraba algunas palabrotas, molesta, como solía hacer siempre que él la llamaba Sef. De pronto una carcajada a su lado la sacó de aquel momentáneo enfado, la persona que estaba a su lado la estaba mirando con rostro divertido.
 
 ---Qué ha hecho Jongtae para que le saques el dedo ---murmuró inclinado hacia Séfora, que se quedó helada, abriendo mucho los ojos. Comenzó a abrir poco a poco la boca para llamar a Jongtae o a quien fuese, ya que malos recuerdos se le pasaron por la cabeza, jamás había visto a ese hombre por ningún sitio. Y justo cuando iba a gritar, agarró suave su mano ---. No digas nada, somos amigos de confianza. Me llamo Katashi, ¿y tú eres...? ---inclinó levemente la cabeza.
 
@@ -48,7 +48,7 @@ Taeku se marchó molesto de nuevo a su asiento y se cruzó de brazos mientras mu
 
 ---Qué casualidad que Katashi vaya con nosotros en el vuelo ---dijo Jongtae mirando de soslayo hacia el nombrado, quien hablaba tranquilo con Séfora.
 
----Demasiada casualida ---Taeku puso los ojos en blanco hablando con ironía.
+---Demasiada casualidad ---Taeku puso los ojos en blanco hablando con ironía.
 
 A pesar de la curiosidad que sentía Séfora hacia Katashi fue muy prudente a la hora de hablar con él. Sabía que tenía que llevar mucho cuidado con lo que decía y a quién se lo decía, puede que se conocieran, pero no sabía de parte de quién estaba el hombre que estaba sentado a su lado.
 
@@ -58,7 +58,7 @@ Así que la conversación fluyó entre cosas banales como la edad, el trabajo o 
 
 ---Pero no vi a Taeku muy contento de encontrarte aquí ---Séfora alzó una ceja.
 
----Eso es porque la última vez que salimos le levanté el ligue de la noche, qué le voy a hacer, soy un conquistador ---se llevó la mano al pelo echándo este hacia atrás ---. Y vosotros... ¿por qué viajáis juntos?
+---Eso es porque la última vez que salimos le levanté el ligue de la noche, qué le voy a hacer, soy un conquistador ---se llevó la mano al pelo echando este hacia atrás ---. Y vosotros... ¿por qué viajáis juntos?
 
 ---Nosotros ---Séfora se puso algo nerviosa y se anilló el pelo entre los dedos pensando en una respuesta rápida y convincente ---, me acompañan a conocer a mi familia, voy de visita.
 
@@ -68,7 +68,7 @@ El vuelo duró más de quince horas, ya que era directo de Barcelona hasta Tokyo
 
 Katashi fue muy amable con la chica, le enseñó palabras más coloquiales en el idioma japonés, para saber defenderse en la calle si andabas perdida, también le enseñó las mejores palabrotas con las que insultar a sus compañeros.
 
-Taeku decidió dejar espacio a la chica, delante de Katashi no queria controlar mucho lo que hacía. Sabía que podía confiar en que ella se controlaría con lo que podía hablar o decir, pero aún así el viaje se le hizo eterno pensando en qué podrían estar hablando esos dos.
+Taeku decidió dejar espacio a la chica, delante de Katashi no quería controlar mucho lo que hacía. Sabía que podía confiar en que ella se controlaría con lo que podía hablar o decir, pero aún así el viaje se le hizo eterno pensando en qué podrían estar hablando esos dos.
 
 Cuando el avión llegó a tierra y pudieron salir, Taeku y Jongtae se acercaron a Séfora que estaba mirando embobada por la ventanilla.
 
@@ -76,11 +76,11 @@ Cuando el avión llegó a tierra y pudieron salir, Taeku y Jongtae se acercaron 
 
 ---Eres un exagerado ---Taeku le sacó el dedo corazón.
 
----Me encanta ver que se siguen llevando como si fueran un matrimonio ---Katashi los miró encantado y Séfora se echó a reir al fondo.
+---Me encanta ver que se siguen llevando como si fueran un matrimonio ---Katashi los miró encantado y Séfora se echó a reír al fondo.
 
----A callar, que tonterias dices ---Taeku le señaló con el dedo y se puso bien tras pensar un segundo ---. Vamos Séfora, los demás ya han ido saliendo.
+---A callar, que tonterías dices ---Taeku le señaló con el dedo y se puso bien tras pensar un segundo ---. Vamos Séfora, los demás ya han ido saliendo.
 
----Japón es impresionante ---dijo ella mientras se ponia en pie ---. Gracias por el viaje tan divertido Katashi.
+---Japón es impresionante ---dijo ella mientras se ponía en pie ---. Gracias por el viaje tan divertido Katashi.
 
 ---Un placer ---ambos se inclinaron con una sonrisa en señal de despedida.
 
@@ -94,7 +94,7 @@ Cada uno marchó por un lugar distinto de la terminal, Séfora tenía muchas pre
 
 ---Él me ha contado algo completamente distinto ---dijo Séfora mientras esperaban a que sus maletas salieran por la cinta transportadora.
 
----Obviamente ---Taeku estaba detrás de ellos ---, como tampoco le habras dicho quien eres tu, ¿verdad?
+---Obviamente ---Taeku estaba detrás de ellos ---, como tampoco le habrás dicho quien eres tu, ¿verdad?
 
 ---Verdad ---se giró hacia el chico y alzó el pulgar. Él sonrió satisfecho.
 
@@ -102,7 +102,7 @@ Salieron del aeropuerto yendo directos a una furgoneta negra que les esperaba. G
 
 Había muchísima gente andando por las calles, pero a su vez había orden cuando tenían que cruzar por la carretera o incluso en sus respectivos caminos y paradas. Había vivido toda la vida en una ciudad céntrica y enorme, pero aquella ciudad era como siete veces Madrid.
 
----Es peciosa ---dijo murmurando contra el cristal del coche.
+---Es preciosa ---dijo murmurando contra el cristal del coche.
 
 ---Lo echaba de menos ---Junnosuke suspiró detrás de ella en su asiento y se inclinó hacia Séfora -- Y verás cuando sea de noche, gana mucho más con las luces.
 
@@ -146,7 +146,7 @@ Al tiempo que los tres hombres hablaban con los otros cinco muchachos sobre como
 
 Ten Shio se notaba que era la voz cantante del equipo, se veía un hombre muy limpio y ordenado, su pelo bien cortado y peinado con una raya en el lado, la corbata y la camisa bien puestas, además el traje de chaqueta gris oscuro bien abotonado, dejando ver cuando gesticulaba con las manos unos gemelos dorados. Su problema a su apariencia tan perfecta eran sus dientes, cada vez que sonreía podían verse como estaban amarillentos y bastante estropeados por el tabaco y el alcohol.
 
-A su derecha estaba Junho, quien lanzaba mirada furtivas a uno de los chicos que estaban tras la joven. Era el más elegante de los tres, rostro impecable, dientes perfectos y blancos, pelo milimétricamente bien cortado con una raya en un lado también y repeinado hacia atrás. Se le notaban las canas y eso le daba un toque interesante. Su traje era de rayas azul marino muy fino y se notaba que la tela era de calidad. Movía mucho dinero solo por los accesorios que no se molestaba en ocultar, un buen reloj y un gran anillo de oro.
+A su derecha estaba Junho, quien lanzaba mirada furtivas a uno de los chicos que estaban tras la joven. Era el más elegante de los tres, rostro impecable, dientes perfectos y blancos, pelo de forma milimétrica muy bien cortado con una raya en un lado también y repeinado hacia atrás. Se le notaban las canas y eso le daba un toque interesante. Su traje era de rayas azul marino muy fino y se notaba que la tela era de calidad. Movía mucho dinero solo por los accesorios que no se molestaba en ocultar, un buen reloj y un gran anillo de oro.
 
 A la izquierda de Ten Shio estaba Takada Mishima. Era el más bajo y fornido de los tres, llevaba la camisa sin abrochar el último botón y no llevaba corbata, dejando ver lo que parecía un tatuaje muy ligeramente bajo el cuello de su camisa cada vez que se movía. Su traje era blanco y tenía esa pinta que mostraban las películas americanas típicas a cerca de los Yakuza. 
 

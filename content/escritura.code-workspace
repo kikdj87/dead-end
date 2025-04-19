@@ -4,7 +4,30 @@
 			"path": ".."
 		}
 	],
-	"settings": {},
+	"settings": {
+		"cSpell.words": [
+			"Ginza",
+			"Hyungmin",
+			"Jongtae",
+			"Junho",
+			"Junnosuke",
+			"Katashi",
+			"Keiken",
+			"Mishima",
+			"niponas",
+			"ojiplática",
+			"patearte",
+			"Sanghun",
+			"Séfora",
+			"Shio",
+			"Taeku",
+			"Takada",
+			"Watashime",
+			"Yakuza",
+			"yakuzas",
+			"Yonghwa"
+		]
+	},
 	"terminal.integrated.env": {
 		"PATH": "C:\\Program Files"
 	  }

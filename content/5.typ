@@ -6,11 +6,11 @@ La casa por fuera se veía sencilla, tenía una puerta de garaje, la puerta de e
 
 ---Me lo suponía ---tomó la tarjeta con la mano poniendo un gesto de molestia y suspiró cansada.
 
----Nosotros tendremos los otros dos pisos porque somos más, solo tiene dos dormitorios así que vamos a estar apretdos ---miró a los demás que estaban resignados. Parecía que habían estado viviendo toda su vida juntos y que estaban acostumbrados ---. Ve a descansar, a darte un baño o lo que necesites.
+---Nosotros tendremos los otros dos pisos porque somos más, solo tiene dos dormitorios así que vamos a estar apretados ---miró a los demás que estaban resignados. Parecía que habían estado viviendo toda su vida juntos y que estaban acostumbrados ---. Ve a descansar, a darte un baño o lo que necesites.
 
 ---No lo dudes ---sin despedirse entró al piso.
 
-Cerró la puerta a su espalda y se apoyó en esta soltando un profundo suspiro, mirando el apartamento. Frente a ella tenía un sofá amplio que estaba frente al televisior y un mueble moderno, al lado una mesa de salón para comer algo grande con unas sillas y por el pasillo veía una cocina abierta, y al final de todo estaba el dormitorio. Miró por los armarios de la cocina y se fijó que estaba completamente equipada con comida, la nevera llena y el cuarto de baño con todo lo necesario para vivir.
+Cerró la puerta a su espalda y se apoyó en esta soltando un profundo suspiro, mirando el apartamento. Frente a ella tenía un sofá amplio que estaba frente al televisor y un mueble moderno, al lado una mesa de salón para comer algo grande con unas sillas y por el pasillo veía una cocina abierta, y al final de todo estaba el dormitorio. Miró por los armarios de la cocina y se fijó que estaba completamente equipada con comida, la nevera llena y el cuarto de baño con todo lo necesario para vivir.
 
 Fue al dormitorio y al entrar vio a un lado la cama y al otro un escritorio vacío. Tenía cuatro ventanales grandes y dos hermosos armarios para meter la poca ropa que tenía. En medio de la habitación estaba la única maleta que había llevado consigo. Ordenó la ropa y tras dejarlo todo listo se fue al baño, se desnudó y se dio una ducha de agua caliente para relajar el cuerpo.
 
@@ -34,7 +34,7 @@ Hubo un momento bastante largo de silencio entre ambos. No era incómodo pero el
 
 ---Es normal ---Taeku asintió mirando los papeles que estaban sobre la mesa. En estos había información detallada que ella tenía que conocer de la empresa.
 
----Es una asociación criminal ---dijo mientras pasaba las manos por los papeles ---, tengo que controlar contrabando de armas, drogas por las calles, comprar a la policía, vigilar que todo lo que se haga está bajo mi aprobación ---traguó saliva ---, amenazar con los que no cumplen los cupos y si es necesario mancharme las manos de sangre ---Taeku asintió con la cabeza a sus palabras y volvieron a mirarse ---. Ten Shio y los otros dos hombres, Takada Mishima y Junho -- Notó como al nombrar al último Taeku se puso algo tenso pero pensó que fue su imaginación porque a penas duró un segundo aquel gesto ---, son el consejo de “sabios”.
+---Es una asociación criminal ---dijo mientras pasaba las manos por los papeles ---, tengo que controlar contrabando de armas, drogas por las calles, comprar a la policía, vigilar que todo lo que se haga está bajo mi aprobación ---tragó saliva ---, amenazar con los que no cumplen los cupos y si es necesario mancharme las manos de sangre ---Taeku asintió con la cabeza a sus palabras y volvieron a mirarse ---. Ten Shio y los otros dos hombres, Takada Mishima y Junho -- Notó como al nombrar al último Taeku se puso algo tenso pero pensó que fue su imaginación porque a penas duró un segundo aquel gesto ---, son el consejo de “sabios”.
 
 ---No diría eso exactamente ---se movió incomodo sobre la silla ---, cada uno representa un país. Los tres son los cabecillas de la organización que tu abuelo tenía cogido por los huevos por algo que yo desconozco y no sé si te lo harán saber cuándo vayas a hablar con el abogado.
 
@@ -52,7 +52,7 @@ Takada Mishima era japonés, sin lugar a dudas. Poseía el control de muchas ban
 
 Por último y no menos importante estaba Kim Junho. Ese hombre controlaba la península de Corea al completo. Norte y sur, o al menos eso ponía en los papeles. El norte era un lugar demasiado complejo para poder manejarlo gracias a la dictadura, pero tenía a hombres trabajando para él por allí. Era viudo, hacía tiempo que su esposa había muerto de una enfermedad y tenía dos hijos en paradero desconocido.
 
-Conforme iba leyendo los papeles que le habían dejado los chicos, no veía nada fuera de lo normal, nada le llamaba la atención de la forma en la que había comentado Taeku que podría tenerlos agarrados por los huevos para que hicieran todo lo que quisiese su abuelo o ese abogado. Conforme iba pasando las páginas se topó con un número de teléfono y el nombre de Sanghun subrayado en amarillo y le llamó la atención. ¿Sería ese el abogado? O tal vez era solo una marioneta más de aque juego de cuerdas que manejaban.
+Conforme iba leyendo los papeles que le habían dejado los chicos, no veía nada fuera de lo normal, nada le llamaba la atención de la forma en la que había comentado Taeku que podría tenerlos agarrados por los huevos para que hicieran todo lo que quisiese su abuelo o ese abogado. Conforme iba pasando las páginas se topó con un número de teléfono y el nombre de Sanghun subrayado en amarillo y le llamó la atención. ¿Sería ese el abogado? O tal vez era solo una marioneta más de aquel juego de cuerdas que manejaban.
 
 Un ruido en el dormitorio la sacó de sus pensamientos y la lectura, se puso en pie y se extrañó ya que la única entrada al apartamento estaba delante de ella. Caminó despacio hacia la habitación y creyendo que sorprendería al intruso fue muy lenta.
 
@@ -84,7 +84,7 @@ Conforme él iba diciendo todo aquello Séfora sentía que le clavaban un puñal
 
 ---Sé más de lo que te piensas. Solo te estoy avisando, _princesita_, no te enfades conmigo si luego esto no es como Taeku te lo ha pintado y es mucho peor.
 
----Vete de aquí. Esta es mi casa ahora mismo ---se encaró hacia él a pesar de la diferencia de altura no tuvo miedo ---. Pronto tendré el poder de pisarte y largarte de mi vida.
+---Vete de aquí. Esta es mi casa ahora mismo ---se encaró hacia él a pesar de la diferencia de altura no tuvo miedo ---. Pronto tendré el poder de patearte y largarte de mi vida.
 
 ---Ah, que divertido ---por primera vez desde que se conocieron vio una sonrisa sincera en su rostro ---. Entonces me lo voy a pasar muy bien contigo.
 
@@ -104,7 +104,7 @@ Salió del apartamento y subió las escaleras bien ofuscada, golpeó la puerta q
 
 Después de aquella visita inesperada subieron la seguridad del edificio en cada entrada, cada ventana y cada rincón. Era imposible salir al balcón sin que hubiese alguien vigilando. Aquella noche los cinco chicos tuvieron una seria reunión en el salón.
 
----Keiken conoce cada secreto de este edificio ---dijo Taeku mientras tenía un vaso de un líquido ambarino moviendose de una mano a otra ---, tenemos que estar más alerta.
+---Keiken conoce cada secreto de este edificio ---dijo Taeku mientras tenía un vaso de un líquido ambarino moviéndose de una mano a otra ---, tenemos que estar más alerta.
 
 ---Eso es cierto ---Junnosuke estaba de pie al lado de las escaleras ---, ambos crecimos en esta casa.
 

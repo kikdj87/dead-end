@@ -1,6 +1,6 @@
 = Capítulo 1
 
-La traducción literal del inglés al español de la expresión “Dead End” es que no hay salida. No existe el camino tras aquella señal y termina de forma abrupta. En los mejores casos un edificio, un parque. Pero la conclusión es que si sigues caminando por donde indica el cartel no vas a encontrar salida. Y en el momento en el que Séfora se dio cuenta que su vida la llevó hasta un camino donde no había salida alguna, donde tampoco tendría la alternativa de poder cambiar de rumbo porque ya no podía dar más pasos acbaba de llegar.
+La traducción literal del inglés al español de la expresión “Dead End” es que no hay salida. No existe el camino tras aquella señal y termina de forma abrupta. En los mejores casos un edificio, un parque. Pero la conclusión es que si sigues caminando por donde indica el cartel no vas a encontrar salida. Y en el momento en el que Séfora se dio cuenta que su vida la llevó hasta un camino donde no había salida alguna, donde tampoco tendría la alternativa de poder cambiar de rumbo porque ya no podía dar más pasos acababa de llegar.
 
 A penas iba a cumplir los dieciocho años cuando al fin supo qué quería hacer con su vida: nada.
 
@@ -32,7 +32,7 @@ Con miedo abrió el sobre y lo primero que vio fue la felicitación de su cumple
 
 ---Lo único que dejó tu padre en su testamento después del accidente fue ese sobre cerrado y una nota que decía que te lo diera en tu mayoría de edad ---dijo bebiendo un café con calma ---. No sé si me acordaría el martes ---comentó, ese era el día de su cumpleaños ---, así que te lo doy ahora que me he acordado.
 
-Séfora se quedó algo extrañada y murmuró un agradecimiento, el cual fue recibido con un movimiento de mano al aire y siguió viendo las noticias mientras tomaba el café. Volvió a encerrarse en el dormitorio y se sentó en la cama mirando aquel sobre que parecía tener luces de neón alrededor, estaba brillando y palpitaba a sus ojos pidiéndo que lo abriera, pero decidó esperar. Y fue la espera más dura de su vida.
+Séfora se quedó algo extrañada y murmuró un agradecimiento, el cual fue recibido con un movimiento de mano al aire y siguió viendo las noticias mientras tomaba el café. Volvió a encerrarse en el dormitorio y se sentó en la cama mirando aquel sobre que parecía tener luces de neón alrededor, estaba brillando y palpitaba a sus ojos pidiendo que lo abriera, pero decidió esperar. Y fue la espera más dura de su vida.
 
 26 de Julio, solo tenía que esperar que llegara ese día.
 
@@ -44,19 +44,19 @@ Una chica alta, mucho más que Séfora, se acercó hasta ella y esbozó una sonr
 
 ---Hola ---dijo con una radiante sonrisa, colocándose su pelo castaño detrás de la oreja para que no le molestase en la cara ---, estamos repartiendo información sobre ciclos formativos ---sacó un papel de la carpeta y se lo entregó a Séfora. Sus manos eran perfectas, las uñas bien cuidadas y pintadas. Por un momento Séfora dudó, ya que sintió vergüenza de como tenía sus propias manos al lado de las de la muchacha, pero tampoco quería incomodarla, así que agarró el papel entre los dedos y se quedó mirándolo ---¿Qué edad tienes?
 
----Tengo dieciocho ---dijo convencida. No era del todo mentira, en menos de veinticuatro horas los tendría de forma oficial. Por inercia se llevó la mano hasta el pelo, el cual lo tenía cogido en una cola baja, ya que hacía bastante calor para llevarlo suelto. Siempre había pensado que tenía mucha cantidad de pelo y no sabía por qué seguía dejandolo crecer en vez de cortarlo para manejarlo con más facilidad.
+---Tengo dieciocho ---dijo convencida. No era del todo mentira, en menos de veinticuatro horas los tendría de forma oficial. Por inercia se llevó la mano hasta el pelo, el cual lo tenía cogido en una cola baja, ya que hacía bastante calor para llevarlo suelto. Siempre había pensado que tenía mucha cantidad de pelo y no sabía por qué seguía dejándolo crecer en vez de cortarlo para manejarlo con más facilidad.
 
 ---Que bien ---la muchacha se sentó con confianza al lado de Séfora y extendió la mano en modo presentación ---. Mi nombre es Ana, mucho gusto. Bien, voy a explicarte de qué va esto ---señaló con la uña perfecta la página web ---: aquí está toda la información por si hay algo de lo que diga no te queda del todo claro, es mucha información para tan poco tiempo que tengo de explicar, así que lo resumo.
 
 Ana comenzó a explicar que era una escuela privada que ofrecía becas a los alumnos que no tenían expectativas de ir a la universidad o de trabajar, así que para poder labrarse un futuro más cómodo con salida inmediata a un puesto de trabajo, ofrecían muchas ayudas y facilidades para los jóvenes que hubiesen terminado el curso de bachillerato. Habían muchos tipos de cursos, desde enfermería y sanidad hasta mecánico o electricista, pasando por todos los tipos de empleos con trabajo seguro para jóvenes, con ayudas del estado.
 
-Séfora estuvo analizando cada palabra que la muchacha le iba explicando, mirando el papel y viendo la cantidad de facilidades que podría tener si cursaba aquello. Total, había decidido que no iba a ir a la universidad y no sabía qué hacer con su vida ahora que lo obligatorio que le habían impuesto sus abuelos lo había conseguido. También sabía que su estancia en aquella casa pendía de un hilo, cumpliría la mayoría de edad y ya no sería obligatorio que sus abuelos siguieran manteniendole, por lo que podrían poner sus maletas en la calle y buscarse la vida con cualquier cosa, por lo que la opción que esa chica le estaba ofreciendo no le parecía descabellada.
+Séfora estuvo analizando cada palabra que la muchacha le iba explicando, mirando el papel y viendo la cantidad de facilidades que podría tener si cursaba aquello. Total, había decidido que no iba a ir a la universidad y no sabía qué hacer con su vida ahora que lo obligatorio que le habían impuesto sus abuelos lo había conseguido. También sabía que su estancia en aquella casa pendía de un hilo, cumpliría la mayoría de edad y ya no sería obligatorio que sus abuelos la siguieran manteniendo, por lo que podrían poner sus maletas en la calle y buscarse la vida con cualquier cosa, por lo que la opción que esa chica le estaba ofreciendo no le parecía descabellada.
 
 ---No hay que hacer un alto ingreso al principio ---comentó Ana buscando un papel en la carpeta ---, solo se paga el seguro escolar, la matrícula y lo demás va incluido en la beca del estado. ¿Estás interesada?
 
 ---Pues la verdad es que sí ---añadió Séfora con la boca pequeña pero animada, iría a sus abuelos con la buena noticia.
 
----Bien, pues aquí tienes que rellenar tus datos para poder ponernos en contacto contigo para darte la información copmpleta ---Ana dejó un boli sobre la mesa y Séfora rellenó lo básico que le pedían: nombre completo, correo electrónico, número de teléfono y fecha de nacimiento ---. Y por favor, entra en la web para mirar a fondo todos los detalles de la beca, tiene que quedar bien claro.
+---Bien, pues aquí tienes que rellenar tus datos para poder ponernos en contacto contigo para darte la información completa ---Ana dejó un bolígrafo sobre la mesa y Séfora rellenó lo básico que le pedían: nombre completo, correo electrónico, número de teléfono y fecha de nacimiento ---. Y por favor, entra en la web para mirar a fondo todos los detalles de la beca, tiene que quedar bien claro.
 
 Séfora asintió mientras terminaba de poner sus datos por escrito en el papel en blanco que la chica le había ofrecido y se lo entregó de nuevo. Ana se puso en pie justo a tiempo que le traían el café a Séfora. Se despidió de ella con una agradable sonrisa recordando que entrara a la web y que estuviera pendiente del teléfono, ya que en los próximos días recibiría una llamada.
 
@@ -72,7 +72,7 @@ Se preparó algo ligero para comer mientras veía la televisión, o más bien la
 
 Había mucha información que era bastante interesante para ella, la cuota de la matrícula y el gasto del seguro a penas subían los cien euros así que podía permitírselo sin necesidad de pedir dinero a sus abuelos, algo que no le gustaba hacer. Desde que pudo hacerse cargo de si misma se dedicó a ayudar a sus vecinas a cuidar sus hijos o ayudarles a hacer deberes para sacar algo de dinero para sí misma y sus necesidades.
 
-Había comenzado a construirse un futuro con la idea de estudiar aquello que le proponía la escuela privada. Los gastos eran más bajos que cualquier universidad y lo mejor que tenía era la tasa de un noventa porciento de contrataciones positivas en los centros de prácticas. Tan solo eran dos años y medio de estudio y trabajo práctico, y después podría independizarse de sus abuelos.
+Había comenzado a construirse un futuro con la idea de estudiar aquello que le proponía la escuela privada. Los gastos eran más bajos que cualquier universidad y lo mejor que tenía era la tasa de un noventa por ciento de contrataciones positivas en los centros de prácticas. Tan solo eran dos años y medio de estudio y trabajo práctico, y después podría independizarse de sus abuelos.
 
 Esa idea le hizo tan feliz que saltó de la silla hacia la cama abrazando un cojín entre sus brazos soltando un grito contra este.
 
