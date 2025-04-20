@@ -170,16 +170,16 @@ Yonghwa dejó todo su peso sobre ella que le agarró para que se apoyara en su h
 
 ---Yonghwa despierta ---comenzó a decir con un nudo en la garganta al sentir que había perdido el conocimiento. Tenía miedo de apartar la ropa y ver la profundidad de la herida, pero tanto ella como el suelo estaban llenos de sangre ---, por favor, despierta.
 
-Supuso que a raíz de cómo había estado en la llamada de teléfono todos se habían asustado así que los cuatro chicos entraron con rapidez al dojo. Sin saber muy bien qué había pasado Taeku llevaba un arma en la mano y la tenía cargada.
+No pasó mucho tiempo cuando vió entrar a los cuatro chicos con rapidez al dojo, Taeku iba con un arma cargada en la mano ya que no sabían qué podían encontrar al llegar.
 
--- ¿Quién ha sido? -- Se le notaba que estaba con fiebre, pero la mirada la tenía seria y firme.
+---¿Quién ha sido? ---se notaba que estaba con fiebre, pero la mirada la tenía seria y firme.
 
--- Nadie -- sollozó levemente y les miró sin apartar las manos. Jongtae corrió hacia ella y le ayudó a presionar la herida, intentó apartar sus manos con cuidado -- he sido yo. Yo le hice esto, estábamos entrenando y no sé qué pasó que le corté. No quiero que se muera.
+---Nadie ---sollozó levemente cuando les vio a su lado, sin apartar las manos temblorosas del chico que estaba en el suelo. Jongtae corrió hacia ella y le ayudó a presionar la herida, intentó apartar sus manos con cuidado ---, he sido yo. Yo le hice esto, estábamos entrenando y no sé qué pasó que le corté. No quiero que se muera.
 
--- Primero calmate -- Jongtae intentó de nuevo apartarla -- ¿alguno puede agarrarle? Necesito saber cómo es la herida de profunda.
+---Primero cálmate ---Jongtae intentó de nuevo apartarla pero ella no se movía ---. ¿Alguno puede agarrarla? Necesito saber cómo es la herida de profunda.
 
 No tardó en notar como unos brazos le rodeaban el cuerpo y la alzaban como si no pesara nada, a pesar que se resistía no lo pudo evitar, le separaron del cuerpo de Yonghwa. Ahí todos pudieron ver un corte de unos treinta centímetros que cruzaba su pecho, algo profundo ya que no paraba de salir sangre. Jongtae suspiró aliviado al ver que no era mortal.
 
--- No se va a morir -- dijo con rapidez para que ella pudiera calmarse, ya que no dejaba de balbucear cuánto lo sentía -- Taeku ayudame a llevarlo a casa, Junnosuke limpia la sangre -- empezó a dar órdenes y ninguno le cuestionó -- y tú Hyungmin cura las heridas de Sef.
+---No se va a morir ---dijo con rapidez para que ella pudiera calmarse, ya que no dejaba de balbucear cuánto lo sentía ---. Taeku ayúdame a llevarlo a casa, Junnosuke limpia la sangre ---empezó a dar órdenes y ninguno le cuestionó -- -, y tú Hyungmin cura las heridas de Sef.
 
-Con movimientos ágiles los dos tomaron el cuerpo de Yonghwa y lo cubrieron con el abrigo de ella para no llamar la atención de la herida grande que llevaba en el pecho. Hyungmin la soltó para que ella fuera caminando hacia casa, estaba en shock pero tenía que ir tras él para ver que se recuperaba del corte. Junnosuke se quedó limpiando en silencio toda la sangre derramada en el suelo.
+Con movimientos ágiles los dos tomaron el cuerpo de Yonghwa y lo cubrieron con el abrigo de ella para no llamar la atención de la herida grande que llevaba en el pecho. Hyungmin la soltó para que ella fuera caminando hacia casa, estaba en shock pero tenía que ir tras él para ver que se recuperaba del corte.
