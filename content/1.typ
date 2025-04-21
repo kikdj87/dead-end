@@ -1,10 +1,12 @@
 = Capítulo 1
 
-La traducción literal del inglés al español de la expresión “Dead End” es que no hay salida. No existe el camino tras aquella señal y termina de forma abrupta. En los mejores casos un edificio, un parque. Pero la conclusión es que si sigues caminando por donde indica el cartel no vas a encontrar salida. Y en el momento en el que Séfora se dio cuenta que su vida la llevó hasta un camino donde no había salida alguna, donde tampoco tendría la alternativa de poder cambiar de rumbo porque ya no podía dar más pasos acababa de llegar.
+La traducción literal del inglés al español de la expresión “Dead End” es que no hay salida. No existe el camino tras aquella señal y termina de forma abrupta. En los mejores casos un edificio, un parque. Pero la conclusión es que si sigues caminando por donde indica el cartel no vas a encontrar salida. 
 
-A penas iba a cumplir los dieciocho años cuando al fin supo qué quería hacer con su vida: nada.
+El momento acababa de llegar. Séfora se dio cuenta de que su vida la llevó por un camino donde no había salida.
 
-Estaba en un rincón de su habitación mirando el calendario, viendo los días tachados que habían pasado y los que quedaban para el dibujo de una tarta de cumpleaños. Suspiró profundamente abrazando sus rodillas, escuchando a su abuela discutir por teléfono con alguna compañía de agua, gas o electricidad. Los días se habían vuelto monótonos desde que había terminado el instituto: discutir con sus abuelos porque no quería ir a la universidad, discutir porque no querían hablar de sus padres y del accidente, discutir porque estaba encerrada siempre en su habitación y no tenía vida social.
+Apenas iba a cumplir los dieciocho años cuando al fin supo qué quería hacer con su vida: nada.
+
+Estaba en un rincón de su habitación mirando el calendario, viendo los días tachados que habían pasado y los que quedaban para llegar hasta el día cubierto por un dibujo de una tarta de cumpleaños. Suspiró profundamente abrazando sus rodillas, escuchando a su abuela discutir por teléfono con alguna compañía de agua. Los días se habían vuelto monótonos desde que había terminado el instituto: discutía con sus abuelos porque no quería ir a la universidad, porque no querían hablar de sus padres o del accidente o porque estaba encerrada siempre en su habitación y no tenía vida social.
 
 Había vivido con ellos desde que tenía uso de razón. Le dijeron que sus padres habían tenido un accidente de coche viajando hacia el sur de vacaciones solos, dejado a la pequeña Séfora de 3 años con ellos para que le cuidaran y jamás volvieron. Por más que preguntara por ellos, por más que rogara por ver sus fotos jamás le contaban nada. Odiaban a su padre porque había llevado a su adorada hija por un camino angosto. Eso fue lo único que dijo su abuelo al respecto.
 
@@ -12,13 +14,13 @@ Y algo tenía claro con respecto a su padre: era de origen asiático. Porque cad
 
 Y lo único que pudo ver de emoción positiva con su abuela fue cuando de pequeña una vecina le dijo que tenía la misma sonrisa que su madre, así que con emoción fue a contárselo. Pudo ver en el rostro de su abuela un pequeño gesto emotivo y esbozó una pequeña sonrisa que se desvaneció enseguida, haciendo que volviera a sus labores sin decirle nada más.
 
-Miró su armario abierto, con la ropa justa para poder sobrevivir como adolescente en el instituto y respiró profundamente. Se le había pasado por la cabeza irse de esa casa, pero no conocía nada ni a nadie fuera de ellos, su madre era su única hija y ellos eran su única familia en España. Al menos eso es lo que habían dejado claro en cada conversación cuando salía el tema.
+Miró su armario abierto, con la ropa justa para poder sobrevivir como adolescente en el instituto y respiró profundamente. Se le había pasado por la cabeza irse de esa casa, pero no conocía nada ni a nadie fuera de ellos. Su madre era su única hija y ellos eran su única familia en España. Al menos eso es lo que habían dejado claro en cada conversación cuando salía el tema.
 
-A pesar de todo, era consciente que a su manera la querían ya que la habían estado criando casi dieciocho años, no le había faltado de nada: tenía un ordenador donde estudiar, internet en casa y además un móvil. No era el último modelo del mercado, pero le servía para ser ignorada por sus compañeros de clase.
+A pesar de todo, era consciente que a su manera la querían ya que la habían estado criando casi dieciocho años. No le había faltado de nada: tenía un ordenador con el que estudiar, internet en casa y un móvil. No era el último modelo del mercado, pero le servía para ser ignorada por sus compañeros de clase.
 
-Se apreté las rodillas al pecho sentada en la cama y apoyada en la pared, aún mirando el calendario cuando su abuelo irrumpió en el dormitorio sin llamar a la puerta, abriendo de golpe para mirarla.
+Se apretó las rodillas al pecho sentada en la cama, aún mirando el calendario, cuando su abuelo irrumpió en el dormitorio.
 
----Oye escucha ---sus cejas casi se juntaron -parecía concentrado en buscar las palabras exactas que decir- estas eran muy oscuras con algunas vetas blancas de las canas ---,voy a darte algo que… bueno, tonterías de tu padre.
+---Oye, escucha ---sus cejas, oscuras con vetas blancas, casi se juntaron ---,voy a darte algo que... bueno, tonterías de tu padre.
 
 Sin decir más dejó un sobre sobre la mesa de su escritorio y con las mismas se marchó. Le impactó que nombrara a su padre, así que rápidamente se puso en pie y agarró el sobre entre las manos temblorosas. En el sobre ponía su nombre, su nombre escrito por su padre.
 
