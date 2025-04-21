@@ -14,7 +14,7 @@ Ten Shio no dijo nada, solo abrió el sobre y leyó lo que había escrito. Frunc
 
 -- Pues esto a mi no me hace gracia -- Ten Shio miró el reloj de su muñeca y resopló -- Yo pensaba que esos estúpidos chicos la iban a llevar por la locura y que se iba a marchar. O que vendría llorando a mi para que cambiara el testamento de alguna manera para darme el poder.
 
--- Eres un ingénuo si piensas eso.
+-- Eres un ingenuo si piensas eso.
 
 -- Es mi nombre el que debería de aparecer en cada párrafo -- Ten Shio estaba rojo de furia -- No el de una mocosa que no tiene ni idea de como va este mundo. He sido yo quien ha aguantado las tonterías del viejo, el que ha reído sus chistes sin gracia y el que le ha llevado a cada lugar que le apetecía. Soy yo quien merece este reino. Pero ese estúpido abogado...
 
@@ -22,9 +22,7 @@ Ten Shio no dijo nada, solo abrió el sobre y leyó lo que había escrito. Frunc
 
 -- Tú tampoco te has escondido -- Ten Shio se arregló la chaqueta que llevaba puesta tratando de relajarse -- ¿Te crees que no sé que Keiken es cosa tuya?
 
--- No voy a admitirlo ni a negarlo -- El hombre se encogió de hombros.
-
---- --- --- --- --- ---
+-- No lo voy a admitir ni a negar -- El hombre se encogió de hombros.
 
 Séfora despertó con dolor de cuerpo por estar tantas horas en la cama. Estaba algo desorientada ya que no reconocía la habitación en la que estaba ni a la persona que había de pie a su lado, mirándola con preocupación.
 
@@ -88,7 +86,7 @@ Ella dudó por un momento ante la afirmación de Sanghun. Hasta ahora había cul
 
 -- ¿Y cuál es el modo de actuar? -- Dijo con firmeza y se llevó una mano hasta la cadera para acomodar la postura.
 
--- Como sabrás tengo a dos personas metidas en su local para vigilarle -- Ella asintió, Taeku ya se lo había dejado claro casi desde el principio -- Tienen acceso a su casa y a sus sitios privados porque se supone que son sus guardaespaldas. Así que vamos a pagarle con la misma moneda. Queremos que entienda que no puede jugar con nosotros haciendo lo que le plazca cuando le plazca.
+-- Como sabrás tengo a dos personas metidas en su local para vigilarlo -- Ella asintió, Taeku ya se lo había dejado claro casi desde el principio -- Tienen acceso a su casa y a sus sitios privados porque se supone que son sus guardaespaldas. Así que vamos a pagarle con la misma moneda. Queremos que entienda que no puede jugar con nosotros haciendo lo que le plazca cuando le plazca.
 
 -- Entiendo -- Ella se quedó pensando, miró a Jongtae y luego al abogado -- Me parece razonable. Cuando se vaya a actuar quiero que quede bien claro que conmigo no se juega.
 
@@ -102,23 +100,23 @@ Se volvió a su despacho sin decir mucho más, así que Séfora y Jongtae se mar
 
 -- Todo, absolutamente todo me lo deja a mi -- Séfora iba leyendo más adelantada -- No hay nadie más que pueda reclamar algo como suyo, solamente yo.
 
--- Si -- Asintió Jongtae y bajó hacia una fila al final del documento -- Fijate en esta clausula -- Hizo algo de hincapié y ella lo miró -- Si te pasa algo, si no lo aceptas o no se da contigo antes de que cumplas 21 pasa todo al estado. El estado sería dueño de la empresa y saldría a la luz los trapos sucios.
+-- Si -- Asintió Jongtae y bajó hacia una fila al final del documento -- Fíjate en esta clausula -- Hizo algo de hincapié y ella lo miró -- Si te pasa algo, si no lo aceptas o no se da contigo antes de que cumplas 21 pasa todo al estado. El estado sería dueño de la empresa y saldría a la luz los trapos sucios.
 
 -- La verdad es que le daba igual perder todo por lo que había trabajado -- Murmuró la chica sorprendida.
 
--- Sef, sé que Sanghun puede parecer un interesado -- Jongtae dejó los papeles sobre la mesa y buscó su mirada para ver sus ojos -- Que hace esto por no perder su lugar aqui, pero quería al viejo como su propio padre.
+-- Sef, sé que Sanghun puede parecer un interesado -- Jongtae dejó los papeles sobre la mesa y buscó su mirada para ver sus ojos -- Que hace esto por no perder su lugar aquí, pero quería al viejo como su propio padre.
 
 -- Podría haber dejado todo a su nombre si no daban conmigo o si me pasa algo -- Se apoyó en el respaldo de la silla y aguantó una mueca de dolor -- Y así nos evitaríamos esto -- Vió en la cara de Jongtae un gesto de negación y justo cuando iba a decir algo ella continuó la frase -- Pero lo sé muy bien, hemos hablado esto. Ya no podemos cambiar lo que está escrito, más que nada porque el abuelo está muerto.
 
 Al decir la última palabra el corazón le dió un latido con fuerza y recordó el último momento en el que vio a Yongsun antes de los disparos y los ojos se le humedecieron. Jongtae se dio cuenta y soltó un suave suspiro.
 
--- Puedes llorar -- Dijo con calma -- De echo te lo recomiendo, debes soltar todo lo que tienes dentro porque sino va a ser peor. No vas a ser una niña si lloras aqui conmigo. Puedo ser tu lugar seguro en esta casa.
+-- Puedes llorar -- Dijo con calma -- De echo te lo recomiendo, debes soltar todo lo que tienes dentro porque sino va a ser peor. No vas a ser una niña si lloras aquí conmigo. Puedo ser tu lugar seguro en esta casa.
 
 Unos segundos después se echó sobre el hombro de su amigo y comenzó a llorar desconsolada. No le importaba si escuchaban su llanto en cualquier rincón de esa casa, necesitaba soltar todo lo que llevaba dentro del pecho y Jongtae era la persona adecuada para ello. Le dolía el cuerpo por el disparo y la inmovilización en la cama, pero el dolor que sentía en el pecho por la muerte de su novio era tan abrumadora que no podía expresar en palabras como se sentía, así que tan solo lloró. Y lo hizo durante una hora.
 
 Jongtae acarició su pelo con calma y cuando ya se relajó un poco se secó los ojos con las manos. Suspiró y se puso en pie para ir directa al baño a lavarse la cara. El chico miró como su ropa en la zona de su hombro estaba mojado por las lágrimas de ella.
 
--- ¿Te sientes mejor? -- Preguntó poniendose en pie. Se quitó la camiseta y la dejó a un lado para que se secara, debajo llevaba una camiseta básica ajustada blanca y se marcaba su cuerpo bien formado.
+-- ¿Te sientes mejor? -- Preguntó poniéndose en pie. Se quitó la camiseta y la dejó a un lado para que se secara, debajo llevaba una camiseta básica ajustada blanca y se marcaba su cuerpo bien formado.
 
 -- Mucho -- Ella salió del baño y se apoyó en la puerta. Se quitó la chaqueta del traje y la dejó bien colocada sobre el respaldo de la silla -- No sé si para esta tarde tendré buena cara.
 

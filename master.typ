@@ -4,7 +4,7 @@
   author: "Adelaida Guillén Moreno",
 )
 // CONTENIDO
-#include "content/0.typ"
+//#include "content/0.typ"
 #include "content/1.typ"
 #include "content/2.typ"
 #include "content/3.typ"

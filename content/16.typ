@@ -1,6 +1,6 @@
 = Capítulo 16
 
-Gracias a la presión de Taeku y que aquel hospital estaba financiado por su asociación le dieron el alta a Séfora sin rechistar mucho, llevandose la medicación que tendría que tomarse para evitar el fuerte dolor que sentía a causa del disparo. Como iban los tres solos en el coche fue Taeku quien conducía y Junnosuke se sentó a su lado en la parte de atrás. Pero ninguno dijo nada. Ella tenía en la cabeza las formas en las que iba a matar a Katsura y cómo le iba a hacer suplicar por su vida de rodillas en el suelo.
+Gracias a la presión de Taeku y que aquel hospital estaba financiado por su asociación le dieron el alta a Séfora sin rechistar mucho, llevándose la medicación que tendría que tomarse para evitar el fuerte dolor que sentía a causa del disparo. Como iban los tres solos en el coche fue Taeku quien conducía y Junnosuke se sentó a su lado en la parte de atrás. Pero ninguno dijo nada. Ella tenía en la cabeza las formas en las que iba a matar a Katsura y cómo le iba a hacer suplicar por su vida de rodillas en el suelo.
 
 La puerta del garaje se abrió lentamente y el coche entró parando en la puerta de la vivienda. Se bajaron despacio para tratar de ayudar a la chica, la cual trató de negar esa ayuda, pero le fue imposible ya que sin el agarre de Junnosuke hubiera acabado en el suelo.
 
@@ -66,11 +66,11 @@ Prácticamente había aceptado estar prisionera en una casa a las afueras de Tok
 
 -- Ve a descansar y hablaremos de ello mañana -- Abrió la puerta del despacho -- Yumiko te llevará a tu habitación.
 
-Una chica que nunca antes había visto en la casa se acercó a ella y se inclinó ligeramente en un saludo. Al ver que le costaba moverse no dudó en acercarse y agarrar con cuidado su brazo para acompañarla por el pasillo hacia una habitación retirada. Era la primera vez que pasaba de la habitación del despacho, pero gracias a la medicación que llevaba en el cuerpo no podía absorver la información.
+Una chica que nunca antes había visto en la casa se acercó a ella y se inclinó ligeramente en un saludo. Al ver que le costaba moverse no dudó en acercarse y agarrar con cuidado su brazo para acompañarla por el pasillo hacia una habitación retirada. Era la primera vez que pasaba de la habitación del despacho, pero gracias a la medicación que llevaba en el cuerpo no podía absorber la información.
 
 Yumiko la ayudó a quitarse la ropa que llevaba sucia y le puso una bata cómoda, dejando que se acostase en la cama. No tardó en quedarse profundamente dormida después de tomar una nueva medicina para el dolor.
 
-Sanghun había ido al salón donde estgaban todos los chicos sentados. Taeku estaba escribiendo mensajes y no se percató en que el abogado había entrado a la sala y se estaba quitando la corbata y la chaqueta, soltando un fuerte suspiro.
+Sanghun había ido al salón donde estaban todos los chicos sentados. Taeku estaba escribiendo mensajes y no se percató en que el abogado había entrado a la sala y se estaba quitando la corbata y la chaqueta, soltando un fuerte suspiro.
 
 -- Qué tal la herida Yonghwa.
 
@@ -88,7 +88,7 @@ A pesar de que para Yonghwa su hermano no significaba nada, saber que había mue
 
 -- No -- El abogado alzó la mano y negó con un dedo -- No es una adolescente cualquiera. Si la quiero tener entretenida haré que Katashi haga otra fiesta o salga con ella.
 
--- Séfora no es ninguna marioneta -- Taeku se puso serio, irguiendo la espalda -- No puedes tenerla aquí encerrada sin vida porque se acabará rompiendo. Hasta ahora ha estado aguantando la muerte en su espalda porque nosotros estabamos con ella, no la puedes dejar a su suerte.
+-- Séfora no es ninguna marioneta -- Taeku se puso serio, irguiendo la espalda -- No puedes tenerla aquí encerrada sin vida porque se acabará rompiendo. Hasta ahora ha estado aguantando la muerte en su espalda porque nosotros estábamos con ella, no la puedes dejar a su suerte.
 
 -- No la dejaré a su suerte, amigo -- Dijo Sanghun descruzando las piernas -- Estará conmigo, vosotros estaréis con ella -- Aclaró moviendo la mano en círculos -- Pero no estará bajo vuestro cuidado, sino del mío. Verás tú como aquí Keiken no se cuela. Ni como tampoco la dejaré salir a tomar café con un cualquiera para que le pongan una diana en la espalda.
 
@@ -112,4 +112,4 @@ Se quedó en silencio. Aún tenía la mano sobre el pecho, notando la herida cal
 
 -- El piso de abajo ni se toca -- Dijo Hyungmin.
 
-Sanghun miraba divertido como los chicos se repartían las habitaciones y hablaban a cerca de cosas tribiales. Sabía que eran de fiar, que la hubieran protegido con su vida si hiciera falta, pero entendía que no eran tan diligentes con la muchacha como podía serlo él mismo, así que había tomado la decisión correcta. Ella estaría en cada reunión que él tuviera, empezaría a quitarse a Ten Shio poco a poco de encima.
+Sanghun miraba divertido como los chicos se repartían las habitaciones y hablaban a cerca de cosas triviales. Sabía que eran de fiar, que la hubieran protegido con su vida si hiciera falta, pero entendía que no eran tan diligentes con la muchacha como podía serlo él mismo, así que había tomado la decisión correcta. Ella estaría en cada reunión que él tuviera, empezaría a quitarse a Ten Shio poco a poco de encima.
