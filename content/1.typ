@@ -106,9 +106,9 @@ _Pero desde adolescente supe que no quería vivir según un guión que no había
 
 _No tengo más familia a parte de mi padre, es decir tu abuelo, el cual nunca supo de ti. Ha sido una decisión difícil, pero tu madre y yo creemos que es lo mejor. No quiero arrastrarte a un entorno en el que ni siquiera yo fui feliz._
 
-_He estado viajando a Japón varias veces, no ha sido por trabajo como te he contado. Tu abuelo Watashime puede ser muy insistente cuando se lo propone, por lo que he necesitado aclararle las cosas. Nunca han aceptado a mamá y eso es algo que no puedo dejar pasar. No puedo darte demasiados detalles en esta carta, pero si en algún momento deseas saber más, puedes preguntar tus dudas._
+_He estado viajando a Japón varias veces, no ha sido por trabajo como te he contado. Tu abuelo Watashime puede ser muy insistente cuando se lo propone, por lo que he necesitado aclararle las cosas. Nunca han aceptado a mamá y eso es algo que no puedo dejar pasar. No puedo darte demasiados detalles aquí, pero si en algún momento deseas saber más, puedes preguntarme tus dudas._
 
-_Esta carta es solo el comienzo de todo lo que aún puedes descubrir sobre la familia Watashime. Aunque, como padre, una parte de mí te diría que hay pasados que es mejor dejar tranquilos. El mundo de los Watashime no es sencillo._
+_Esta carta es solo el comienzo de todo lo que aún puedes descubrir sobre la familia Watashime. Aunque, como padre, una parte de mí te diría que hay pasados que es mejor dejar tranquilos. El mundo de los Watashime es muy peligroso._
 
 _Con cariño, papá._
 
@@ -122,4 +122,4 @@ Sabía que por algún lugar de la casa tendría que haber una caja llena de cart
 
 A penas pegó ojo en toda la noche. Pensaba en que habían fotos de su madre por la casa, por lo que no habrían borrado todo lo concerniente a ellos de sus vidas por mucho que no les gustara el padre de Séfora.
 
-Se quedó dormida, agotada y con un torbellino de preguntas en la mente, ajena a que las respuestas estaban a punto de irrumpir violentamente en su vida al amanecer.
+Se quedó dormida, agotada y con un torbellino de preguntas en la mente, ajena a que las respuestas estaban a punto de irrumpir en su vida.

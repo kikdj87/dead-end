@@ -1,18 +1,18 @@
 = Capítulo 2
 
-A penas el sol había salido cuando un estruendoso ruido de cristales rotos despertó a Séfora. Estaba soñando que se encontraba con sus padres y estaba disfrutando en la playa. De repente más ruidos proveniente ahora de la puerta de su habitación hizo que se alarmara. Se acercó a la puerta para ver qué pasaba, normalmente sus abuelos no eran personas madrugadoras y menos para hacer reformas en casa.
+A penas el sol había salido cuando un estruendoso ruido de cristales rotos despertó a Séfora. Estaba soñando que se encontraba con sus padres y estaba disfrutando en la playa. De repente más ruidos proveniente más cerca de su habitación hizo que se alarmara. Se acercó a la puerta para ver qué pasaba, normalmente sus abuelos no eran personas madrugadoras y menos para hacer reformas en casa.
 
-Al abrir la puerta algo provocó que casi le golpeara, haciendo que ella se tambalease hacia detrás. Alguien le agarró del brazo impidiendo que cayera al suelo. Con un ágil movimiento él cerró la puerta a su espalda y se miraron. Era un chico mucho más alto que ella con una mascarilla negra tapando su boca, mirándola serio.
+Al abrir la puerta algo provocó que casi le golpeara, haciendo que ella se tambalease hacia detrás. Un chico le agarró del brazo impidiendo que cayera al suelo y con un ágil movimiento él cerró la puerta a su espalda. Se miraron. Era un chico mucho más alto que ella con una mascarilla negra tapando su boca, mirándola serio.
 
 Sus ojos eran rasgados y en ese momento estaba analizando la habitación al completo. A penas habían pasado unos segundos cuando el muchacho se dio cuenta que Séfora iba a gritar, así qe se lanzó hacia ella para tapar su boca con una mano enguantada. Su pelo se movió tapando un poco sus ojos.
 
----No grites, no te muevas ---dijo en un español bastante bueno. A pesar de la advertencia tuvo que hacer fuerza en agarrar el brazo de la ella con la otra mano, ya que se removió en el sitio ---. Que te quedes quieta.
+---No grites, no te muevas ---dijo en un español bastante bueno. A pesar de la advertencia, tuvo que hacer fuerza en agarrar el brazo de la ella con la otra mano ---. Que te quedes quieta.
 
-El muchacho miró por encima de su hombro hacia la puerta y se escuchó un ruido muy fuerte que venía del pasillo. Séfora intentó gritar pensando que sus abuelos la estaban buscando, pero el chico solo la mantenía contra su cuerpo con la boca cubierta para que no hiciese ningún sonido.
+El muchacho miró por encima de su hombro hacia la puerta y se escuchó un ruido muy fuerte que venía del pasillo. Séfora intentó gritar pensando que sus abuelos la estaban buscando, pero el chico solo la mantenía contra su cuerpo atrapada. No podía moverse.
 
 ---Séfora no me lo pongas difícil.
 
-La aludida abrió mucho los ojos mirando al desconocido con auténtico pavor. ¿Por qué conocía su nombre? Ella no lo había visto nunca así que comenzó a temblar de miedo. Aquella persona la conocía y parecía que iba a secuestrarla. Mil cosas se le pasaron por la cabeza mientras trataba de recuperar el control de su cuerpo. No tenía nada de valor que ofrecerle, al menos en su dormitorio, tal vez su abuela si tendría algo de valor.
+La aludida abrió mucho los ojos mirando al desconocido con auténtico pavor. ¿Por qué conocía su nombre? Ella no lo había visto nunca así que comenzó a temblar de miedo. Aquella persona la conocía y parecía que iba a secuestrarla. Mil cosas se le pasaron por la cabeza mientras trataba de recuperar el control de su cuerpo. No tenía nada de valor que ofrecerle, al menos en su dormitorio, tal vez su abuela sí tendría algo de valor.
 
 El jaleo al otro lado de la puerta había parado y el muchacho soltó un resoplido. Buscó una manera de bloquear la puerta y miró a la chica asustada a los ojos.
 
@@ -20,9 +20,9 @@ El jaleo al otro lado de la puerta había parado y el muchacho soltó un resopli
 
 ---Que...
 
----Ropa, tu cartera, lo que tengas a mano. No vas a volver aquí ---el chico notó el terror en su mirada ---. No es un secuestro, estoy salvando tu vida. Y lo más importante: no te lleves ningún aparato electrónico.
+---Ropa, tu cartera, lo que tengas a mano. No vas a volver aquí ---el chico notó el terror en su mirada ---. No es un secuestro te estoy salvando la vida. Y lo más importante: no te lleves ningún aparato electrónico.
 
-Con agilidad bloqueó la puerta con la cómoda que había al lado, parecía que en sus brazos no pesaba nada. Le sorprendió porque se notaba que el chico estaba delgado más que musculoso, o al menos eso se dejaba ver con la ropa que llevaba puesta.
+Con agilidad bloqueó la puerta con la cómoda que había al lado, parecía que en sus brazos no pesaba nada. Le sorprendió porque se notaba que el chico estaba delgado más que musculoso. Al menos eso se dejaba ver con la ropa que llevaba puesta.
 
 Séfora agarró su mochila y metió en esta la carta de su padre, su cartera y algo de ropa que tenía doblada sobre el escritorio. Cuando ya lo tenía listo, el desconocido sacó medio cuerpo por la ventana abierta y estiró el brazo hacia ella.
 
@@ -30,47 +30,52 @@ Séfora agarró su mochila y metió en esta la carta de su padre, su cartera y a
 
 ---Prefiero un salto que un disparo ---dijo el chico con un tono divertido e hizo un ademán de insistencia.
 
-Se escuchó un golpe fuerte en la puerta. Alguien en el otro lado estaba intentando abrirla y se escucharon maldiciones al no poder acceder a la puerta. Ante aquel ruido Séfora saltó a los brazos de aquel chico y ambos cayeron por la ventana hasta caer sobre el techo de una furgoneta con una manta. El chico protegió el cuerpo de Séfora en la caída, por lo que él recibió todo el impacto en su hombro y espalda. No pareció importarle porque se incorporó con rapidez y bajó del techo del vehículo, agarró la mano de la dolorida chica y la ayudó a bajar para entrar en la furgoneta. Al mismo tiempo se escuchó un disparo silenciado que impactó con el techo de la furgoneta.
+Se escuchó un golpe fuerte en la puerta. Alguien en el otro lado estaba intentando abrirla y se escucharon maldiciones de un hombre. Ante aquel ruido Séfora saltó a los brazos de aquel chico y ambos cayeron por la ventana hasta caer sobre el techo de una furgoneta con una manta. El chico protegió el cuerpo de Séfora en la caída, por lo que él recibió todo el impacto en su hombro y espalda. No pareció importarle porque se incorporó con rapidez y bajó del techo del vehículo, agarró la mano de la dolorida chica y la ayudó a bajar para entrar en la furgoneta. Al mismo tiempo se escuchó un disparo silenciado que impactó con el techo de la furgoneta.
 
-Se atrevió a mirar por la ventanilla, girando el cuerpo para ver a una figura negra sostener un arma apuntando hacia ellos. Antes de ver mucho más, la calle desapareció de la vista de Séfora. La furgoneta se movía precariamente para despistar al intruso que había disparado.
+Se atrevió a mirar por la ventanilla del coche, girando el cuerpo para ver a una figura negra sostener un arma apuntando hacia ellos. Antes de fijarse en más detalles, la calle desapareció de la vista de Séfora. La furgoneta se movía precariamente para despistar al intruso que había disparado.
 
-Séfora no se dio el lujo de pensar mientras salía del barrio donde había vivido siempre. El chico conducía concentrado y solo cuando tomó la autovía dirección al norte, empezó a relajarse sin bajar la velocidad. Ahí fue cuando ella comenzó a sentir un ataque de pánico. Le costaba trabajo respirar y sentía que el pecho le iba a explotar por la sensación de terror.
+Séfora no se dio el lujo de pensar mientras salían del barrio donde había vivido siempre. El chico conducía concentrado y solo cuando tomó la autovía dirección al norte, empezó a relajarse sin bajar la velocidad. Ahí fue cuando ella comenzó a sentir un ataque de pánico. Le costaba trabajo respirar y sentía que el pecho le iba a explotar por la sensación de terror.
 
-La adrenalina del salto se estaba esfumando y le comenzaba a doler un poco el cuerpo. Ahí fue también cuando se dio cuenta que sus abuelos no habrían corrido la misma suerte que ella al ser rescatada, milagrosamente, por un desconocido.
+La adrenalina del salto se estaba esfumando y le comenzaba a doler un poco el cuerpo. En ese momento se dio cuenta de que sus abuelos no habrían corrido la misma suerte que ella al ser rescatada _milagrosamente_ por un desconocido.
 
 ---Menos mal que he estado atento ---dijo mientras apretaba las manos en el volante y acto seguido se quitó la mascarilla dejando ver su rostro al completo. Se veía un chico joven, no llegaría a los veinticinco años. Miró a Séfora de reojo ---- Han sido rápidos, pero no esperaban que alguien... ---dejó la frase al aire y suspiró cambiando de tema ---. Mi nombre es Jongtae, por cierto, pero puedes llamarme Tae, casi todos lo hacen.
 
-Séfora intentó hablar pero ningún sonido salió de su boca. Jongtae lo notó, asi que negó con la cabeza dándole una palmada en la pierna, ella se sobresaltó y se hizo hacia un lado asustada.
+Séfora intentó hablar pero ningún sonido salió de su boca. Jongtae lo notó, asi que negó con la cabeza dándole una palmada en la pierna, ella se sobresaltó haciéndose a un lado asustada.
 
----No voy a hacerte nada ---alzó un momento las manos en señal de confianza y volvió a agarrar firme el volante, aún iba rápido ---, sé que esto es una locura y ahora mismo no lo vas a encajar, pero estoy aquí para protegerte. Somos un grupo que... ---se interrumpió para mirar a la chica a los ojos durante un segundo y sacudió la cabeza. El pelo se movió hacia sus orejas casi soltándose de la coleta que llevaba puesta ---. Cuando estés más calmada te explico, ahora me concentraré en salir de esta maldita ciudad.
+---No voy a hacerte nada ---él alzó un momento las manos en señal de confianza y volvió a agarrar firme el volante, aún iba rápido ---. Sé que esto es una locura y ahora mismo no lo vas a encajar, pero estoy aquí para protegerte. Somos un grupo que...
 
-Séfora trataba de organizar los pensamientos en su cabeza. La carta que su padre le había dejado resonaba en su cabeza con algunas palabras clave. Temía por su vida a causa de la familia de ese abuelo tan peligroso que se suponía no conocía de su existencia. Alguien la quería matar y a su vez otra persona quería protegerla. Cuando al fin salieron del puerto de montaña, dirección a Barcelona, ella pudo hablar.
+Se interrumpió para mirar a la chica a los ojos durante un segundo y sacudió la cabeza. El pelo se movió hacia sus orejas casi soltándose de la coleta que llevaba puesta.
 
----¿Por qué sabes quién soy? ---dijo sin mirarle, tenía miedo de su respuesta.
+--- Cuando estés más calmada te explico, ahora me concentraré en salir de esta maldita ciudad ---Dijo Jongtae volviendo la concentración a la carretera.
 
----Bueno, eso es complicado de explicar ahora mismo ---dijo encogiendo los hombros, dando por echo que ella entendía que fuera una situación complicada. Pero la mirada de Séfora hacia Jongtae fue fulminante y él asintió ---. De acuerdo, llevamos un tiempo siguiéndote.
+Séfora trataba de organizar los pensamientos en su cabeza. La carta que su padre le había dejado resonaba en su mente con una alerta de peligro. Temía por su vida a causa de ese abuelo tan peligroso que se suponía no conocía su existencia. Alguien la quería matar y a su vez otra persona la quería proteger. Cuando al fin salieron del puerto de montaña, dirección a Barcelona, ella pudo hablar.
+
+---¿Por qué sabes quién soy? ---dijo Séfora sin mirarle, tenía miedo de su respuesta.
+
+---Bueno, eso es complicado de explicar ahora mismo ---dijo encogiendo los hombros, dando por echo que ella entendía que fuera una situación complicada. Pero la mirada de Séfora hacia Jongtae fue fulminante y él asintió diciendo ---. De acuerdo, llevamos un tiempo siguiéndote.
 
 ---Quien me sigue a parte de tí ---mantenía las manos aferradas a su mochila contra su pecho para disimular que estaba temblando.
 
----A ver ---Tae tosió un poco y apretó los labios ---, Taeku me va a matar, pero ahí va ---cogió aire y comenzó a hablar ---: tu abuelo nos preparó para tenerte vigilada y que no te pasara nada y hace unos tres años. Alguien le había amenazado y quería resguardar su imperio contigo, por decirlo de alguna manera.
+---A ver ---Jongtae tosió un poco y apretó los labios ---, Taeku me va a matar, pero ahí va ---cogió aire y comenzó a hablar ---: tu abuelo nos preparó para tenerte vigilada y que no te pasara nada y hace unos tres años. Alguien le había amenazado y quería resguardar su imperio contigo, por decirlo de alguna manera. 
+Por lo que los otros que te están siguiendo son quienes quieren matarte.
 
 ---Qué leches estás diciendo, ¿mi abuelo Antonio?
 
----¿Qué? ¡No! ---soltó una carcajada ---. Ese señor no podría ni..., al caso, no es ese abuelo sino el padre de tu padre. Me temo que si han dado contigo es porque tu abuelo no está, como decirlo, entre nosotros.
+---¿Qué? ¡No! ---soltó una carcajada ---. Ese señor no podría ni..., al caso, no es ese abuelo sino el padre de tu padre. Me temo que si han dado contigo de alguna manera que desconozco.
 
 ---Para el coche.
 
-Séfora fue sintiendo un ligero mareo y como la acidez de su estómago subía y bajaba sin control por su garganta. Quería salir del coche ya que necesitaba coger aire y tal vez vomitar lo que tenía en su estómago. Tae fue consciente de la situación se paró a un lado de la carretera.
+Séfora fue sintiendo un ligero mareo y como la acidez de su estómago subía y bajaba sin control por su garganta. Quería salir del coche ya que necesitaba coger aire y tal vez vomitar lo que tenía en su estómago. Él fue consciente de la situación y se paró a un lado de la carretera.
 
-Ella saltó del coche tirando a un lado la mochila, cayó de rodillas en el suelo y, tratando de respirar, controló las ansias de gritar y vomitar. Tae se colocó en cuclillas a su lado a una distancia prudencial.
+Ella saltó del coche tirando a un lado la mochila, cayó de rodillas en el suelo y, tratando de respirar, controló las ansias de gritar y vomitar. Jongtae se colocó en cuclillas a su lado a una distancia prudencial.
 
-En menos de veinticuatro horas su vida había dado un giro de ciento ochenta grados bruscamente. Miró al chico y frunció el ceño sintiendo como la ira subía por su pecho. Aunque estuviese agradecida de que le salvara la vida, para ella era un desconocido que decía venir por parte de su abuelo. ¿Qué clase de hombre era? La ira se mezcló con miedo y poco a poco se fue poniendo en pie, temblorosa. Tae la ayudó.
+En menos de veinticuatro horas su vida había dado un giro de ciento ochenta grados bruscamente. Miró al chico y frunció el ceño sintiendo como la ira subía por su pecho. Aunque estuviese agradecida de que le salvara la vida, para ella era un desconocido que decía venir por parte de su abuelo. ¿Qué clase de hombre era? La ira se mezcló con miedo y poco a poco se fue poniendo en pie, temblando. Jongtae intentó ayudarla, pero ella esquivó sus manos.
 
 ---Tú-- ---dijo sin terminar ya que no se acordaba de su nombre. Él pudo verlo en su rostro.
 
----Tae, no es difícil ---agarró su brazo y la ayudó a entrar en el coche, dejando su mochila en su regazo.
+---Tae, no es difícil ---Él la miró con paciencia como volvía a entrar en el coche.
 
----Tae ---repitió y agarró la mochila de nuevo contra su pecho ---, ¿quién es mi abuelo?
+---Tae ---repitió y agarró la mochila de nuevo contra su pecho. Se sentó en el lado del copiloto ---. ¿Quién es mi abuelo?
 
 Jongtae se montó en el coche antes de responder a su pregunta. Arrancó y volvió a la circulación con rapidez.
 
@@ -82,15 +87,15 @@ Séfora no podía confiar plenamente en él. Para ella era un desconocido que la
 
 Tras unas obligatorias paradas para echar gasolina, y unas horas abrasadoras en el coche, llegaron a la ciudad de Barcelona. Pasaron por algunos residenciales hasta que paró el coche en una zona llena de edificios de viviendas y oficinas. Se veían estropeados por los años. Metió el coche en el garaje de un edificio, abriendo la puerta con un mando y dejó el coche en medio estacionado. Tan solo había un coche más.
 
----Es aquí donde nos alojamos ---dijo Tae saliendo del coche una vez lo hubo parado.
+---Es aquí donde nos alojamos ---dijo Jongtae saliendo del coche una vez lo hubo parado.
 
 Bajó del coche. Las piernas le temblaban un poco por estar tantas horas sentada y además tenía hambre, eran más tarde de las cinco. Entraron en el ascensor, Jongtae picó el botón número diez y se sorprendió al ver que Séfora se había ido a un rincón asustada.
 
----No voy a hacerte daño ---dijo cansado de verla de esa manera ---, si quisiera hacerlo estarías ya muerta. Relájate Sef.
+---No voy a hacerte daño ---dijo él cansado de verla de esa manera ---, si quisiera hacerlo estarías ya muerta. Relájate Sef.
 
 ---Me llamo Séfora.
 
-No le respondió nada cuando le corrigió, tan solo esbozó una sonrisa agradable. Séfora pudo ver unos hoyuelos que se formaron en sus mejillas. Aunque Tae fuese tan agradable, ella no podía caer en su encanto. Porque si, Tae era bastante atractivo.
+No le respondió nada cuando le corrigió, tan solo esbozó una sonrisa agradable. Séfora pudo ver unos hoyuelos que se formaron en sus mejillas. Aunque Jongtae fuese tan agradable, ella no podía caer en su encanto. Porque si, era bastante atractivo.
 
 Cuando la puerta del ascensor se abrió al llegar a la décima planta se dejó ver directamente una apartamento. El lugar estaba reformado con prisas para acomodarlo a que alguien viviera allí. Aunque las ventanas estaban tapadas con cartones y la iluminación era toda de las luces que colgaban del techo. El aire que ahí había era de varios aparatos de aire acondicionado que tenían enchufados por la vivienda. Se notaba que estaba a una temperatura bien baja porque hacía frío. Séfora caminó con miedo de lo que podía encontrar cuando Jongtae salió del ascensor.
 
@@ -98,15 +103,15 @@ Rápidamente aparecieron cuatro chicos que parecía que acabaran de llegar. Habl
 
 Cansada de ser ignorada Séfora lanzó la mochila hacia Jongtae, el cual con una sorprendente agilidad la agarró al vuelo. Se volteó hacia ella con el rostro lleno de ira.
 
----¿Qué narices haces? ---dijo Tae soltando un resoplido tirando la mochila al suelo.
+---¿Qué narices haces? ---dijo Jongtae soltando un resoplido tirando la mochila al suelo.
 
----Respuestas ---dijo tratando de controlar el temblor de su voz. Comenzaba a cansarse de no obtener las respuestas que ella quería ---. ¿Qué hago aquí?. ¿Qué ha pasado en Madrid?. ¿Por qué mi abuelo os mandó tenerme vigilada?. ¿Quiénes sois?
+---Respuestas ---dijo ella tratando de controlar el temblor de su voz. Comenzaba a cansarse de no obtener lo que ella quería ---. ¿Qué hago aquí?. ¿Qué ha pasado en Madrid?. ¿Por qué mi abuelo os mandó tenerme vigilada?. ¿Quiénes sois?
 
 Lo soltó de golpe. Llevaba horas teniendo todas esas cuestiones dentro de su cabeza y ahora estaba frente a los que tenían respuestas. Los cinco chicos la miraron con gesto de pena pero también conscientes de que tenían que responder a cada pregunta que ella hiciera. Más que nada para que pudiera tener el contexto completo de qué estaba ocurriendo.
 
----De acuerdo, Séfora ---dijo uno de los chicos alzando ambas manos. Era el más bajo de los cinco, pero aún así era más alto que ella ---. Mi nombre es Taeku ---dijo despacio pero con una pronunciación buena ---, básicamente somos tus guardaespaldas.
+---De acuerdo, Séfora ---dijo uno de los chicos alzando ambas manos. Era el más bajo de los cinco, pero aún así era más alto que ella ---. Mi nombre es Taeku ---dijo despacio pero con una pronunciación buena ---, Técnicamente somos tus guardaespaldas.
 
----Básicamente no ---soltó otro de los chicos, estaba más rezagado.
+---Realmente lo somos ---soltó otro de los chicos, estaba más rezagado.
 
 ---Sí ---sentenció Taeku mirando al que le había corregido ---. Hace ya tiempo que te estamos vigilando, a petición de tu abuelo, para que no te pase nada malo.
 
@@ -162,21 +167,21 @@ Los cinco se miraron entre ellos. Unos se rascaron la nuca y el que habló fue T
 
 ---¿Quién estaba con ella ayer? ---preguntó Jongtae molesto. Miró al único que no había dicho nada en todo el rato ---. No te hagas el loco. Sé que eras tú. Maldito seas.
 
----Tenía que ir al baño ---explotó en mil disculpas al fin, inclinándose ---, fui un momento a uno, no tardé nada.
+---Tenía que ir al baño ---explotó en mil disculpas al fin, inclinándose ---, fui un momento, no tardé nada.
 
----Pues aprovecharon ese momento, justo cuando te fuiste.
+---Pues aprovecharon _ese momento_.
 
 ---Fue nada y menos, al salir ya estaba moviéndose. No vi a nadie con ella.
 
----Un momento ---Séfora comprendió de lo que estaban hablando. Intentó interrumpir ---, yo... unas personas ---se puso en pie con torpeza y fue a la mochila. Sacó el folleto que el día anterior le habían entregado.
+---Un momento ---Séfora comprendió de lo que estaban hablando. Intentó interrumpir ---, yo... una chica ---se puso en pie con torpeza y fue a la mochila. Sacó el folleto que el día anterior le habían entregado.
 
 ---¿Qué? ---Jongtae giró el rostro hacia Séfora y enfocó la mirada en el folleto. Se lo arrancó de las manos y lo leyó ---. Mira qué fácil ha sido.
 
 Dejó caer el papel sobre la mesa y Taeku lo agarró, maldiciendo varias veces.
 
----Pero... fueron dos personas normales...
+---Pero... fue una chica normal...
 
----Si, usan a gente normal. Les pagan por dar los folletos como si fueran una empresa de verdad ---dijo Taeku que miró a Séfora ---. ¿Has dejado el móvil verdad? Ya no te sirve de nada ---respiró tranquilo cuando ella asintió con la cabeza.
+---Si, usan a gente normal. Les pagan por dar los folletos como si fueran una empresa de verdad y en la sombra van vigilando a quienes se acercan ---dijo Taeku que miró a Séfora ---. ¿Has dejado el móvil verdad? Ya no te sirve de nada ---respiró tranquilo cuando ella asintió con la cabeza.
 
 ---¿Los enemigos de mi abuelo fueron directos a mi de esa manera tan extraña?
 
