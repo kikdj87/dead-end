@@ -1,16 +1,16 @@
 = Capítulo 1
 
-Después de leer la carta por quinta vez consecutiva se dió cuenta que estaba llorando. Dejó el sobre encima del escritorio y salió del dormitorio para ir en busca de su abuelo.
+Después de leer la carta por quinta vez consecutiva, Séfora se dió cuenta de que estaba llorando. Las palabras que acababa de leer cambiaban el sentido de su vida, acababa de descubrir quien era su padre. Dejó el sobre encima del escritorio y salió del dormitorio para ir en busca de su abuelo.
 
 ---¿Qué es esto? ---dijo manteniendo el papel, moviendo el brazo delante de la cara del hombre ---. ¿Por qué hay una carta de mi padre en el altillo del armario?
 
-Su abuelo cerró por un momento los ojos y se pasó la mano por la cara.
+Su abuelo cerró por un momento los ojos y se pasó la mano por la cara. Sabía que había llegado el momento que menos quería. Había ocultado hasta ahora cualquier cosa sobre la identidad del padre de Séfora.
 
----Pensaba dártela en cualquier momento ---dijo mientras se inclinaba hacia delante en la silla.
+---Pensaba dártela en cualquier momento ---dijo ocultando lo que realmente pensaba.
 
 ---Pero no lo hiciste. Me he tenido que enterar de esta manera de quién era mi padre ---dijo aún entre sollozos ---. ¿Qué os costaba contármelo?
 
----Tu padre siempre ha sido un chico muy raro ---su abuela salió de la cocina ---, solo trajo desgracias en la familia.
+---Tu padre siempre ha sido un chico muy raro, inventando historias ---su abuela salió de la cocina ---, solo trajo desgracias en la familia desde que Lucía lo trajo.
 
 ---Eso no os da derecho a ocultarme nada ---comenzó a alzar la voz cada vez más.
 
@@ -32,7 +32,7 @@ Estaba sentada en un banco cuando dos personas se acercaron a ella. Iban cargada
 
 ---Serán tan solo dos minutos ---dijo el segundo que se colocó a su lado ---eres justo el perfil de persona que estamos buscando.
 
----¿Ah si? ---dijo la chica incrédula guiñando los ojos. Qué casualidad.
+---¿Ah si? ---dijo Séfora incrédula guiñando los ojos. Qué casualidad.
 
 ---Gente joven con ganas de vivir nuevas experiencias. Mi nombre es Ana, mucho gusto ---dijo la primera que había irrumpido ---. ¿Cómo te llamas?
 
