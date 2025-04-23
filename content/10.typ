@@ -126,19 +126,19 @@ Séfora estaba escuchando esa conversación en silencio, con los brazos cruzados
 
 ---Ya lo sé…
 
----Por cierto ---dijo cambiando el tono de voz, sonó más agradable ---, si tuvieras que hablar con alguien externo a ti sobre a qué te dedicas o a qué se dedican los chicos ¿qué le dirías?
+---Por cierto ---dijo cambiando el tono de voz, sonó más agradable ---, si tuvieras que hablar con alguien externo a ti, sobre a qué te dedicas o a qué se dedican los chicos ¿qué le dirías?
 
----Pues ---se quedó pensando y apretó los labios en una línea. Ya había estado en esa situación -- No lo sé, he pensado que son mis guardias.
+---Pues ---se quedó pensando y apretó los labios en una línea. Ya había estado en esa situación ---. No lo sé, he pensado que son mis guardias.
 
----Bueno, no está mal, pero, ¿de qué? ---Sanghun soltó una pequeña risa y se aclaró la garganta ---. La función principal del edificio en el que estáis es una fábrica de famosos ---dijo e hizo una pausa ---. Bueno, no me estáis viendo, en fábrica estoy haciendo unas comillas con los dedos. Es una forma de blanquear el trabajo que tenemos, modelos y actores que bueno, hacen un papel básico en la industria del entretenimiento y así nos dejan tranquilo por la cantidad de dinero que movemos en toda Asia.
+---No está mal, pero, ¿de qué? ---Sanghun soltó una pequeña risa y se aclaró la garganta ---. La función principal del edificio en el que estáis es una empresa de entretenimiento ---dijo, hizo una pausa ---. Es una forma fácil de blanquear el trabajo que tenemos con modelos, cantantes y actores. Así nos dejan tranquilo por la cantidad de dinero que movemos en toda Asia.
 
----Entiendo ---Séfora tomó aire y lo echó poco a poco ---. ¿Soy modelo?
+---Entiendo ---Séfora tomó aire y lo echó poco a poco ---. ¿Soy modelo o algo del estilo?
 
----No ---se echó a reír más fuerte ---. No me malinterpretes, no es que no sirvas para modelo, pero no te vamos a poner en un nivel así, digamos que eres una directora general de un departamento de algo que subiremos de nivel en un par de años.
+---No ---se echó a reír más fuerte ---. No me malinterpretes, no es que no sirvas para modelo, pero no te vamos a poner en un nivel así. Digamos que eres una directora general de un departamento de algo que subiremos de nivel en un par de años.
 
----Ah, vale ---respiró aliviada pensando en la mentira que le había contado a Yongsun y que al final no era tan mentira.
+---Ah, vale ---respiró aliviada pensando en la mentira que le había contado a Yongsun, al final no era tan mentira.
 
----De todas formas lleva cuidado, no se puede hablar o entablar amistad con mucha gente desconocida ---Sanghun hablaba con calma, como si fuera un tema normal que tratar. Pero ella sabía perfectamente por qué se lo decía y sentía las miradas de Taeku y Jongtae ---. Solo tienes que ser precavida y no pasará nada malo.
+---De todas formas lleva cuidado. No se puede hablar o entablar amistad con mucha gente desconocida y más en tu situación ---Sanghun hablaba con calma, como si fuera un tema normal que tratar. Pero ella sabía perfectamente por qué se lo decía y sentía las miradas de Taeku y Jongtae ---. Solo tienes que ser precavida y no pasará nada malo.
 
 ---Lo sé, lo entiendo ---dijo seria y dio un leve respingo al sentir el vibrar de su teléfono en el bolsillo del pantalón.
 
