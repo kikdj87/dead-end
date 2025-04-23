@@ -1,8 +1,8 @@
 = Capítulo 16
 
-Gracias a la presión de Taeku y que aquel hospital estaba financiado por su asociación le dieron el alta a Séfora sin rechistar mucho, llevándose la medicación que tendría que tomarse para evitar el fuerte dolor que sentía a causa del disparo. Como iban los tres solos en el coche fue Taeku quien conducía y Junnosuke se sentó a su lado en la parte de atrás. Pero ninguno dijo nada. Ella tenía en la cabeza las formas en las que iba a matar a Katsura y cómo le iba a hacer suplicar por su vida de rodillas en el suelo.
+Gracias a la presión de Taeku y, que aquel hospital estaba financiado por su asociación, le dieron el alta a Séfora sin rechistar mucho. Como iban los tres solos en el coche fue Taeku quien conducía y Junnosuke se sentó al lado de ella en la parte de atrás. Pero ninguno dijo nada. Séfora tenía en la cabeza las formas en las que iba a matar a Katsura y cómo le iba a hacer suplicar por su vida de rodillas.
 
-La puerta del garaje se abrió lentamente y el coche entró parando en la puerta de la vivienda. Se bajaron despacio para tratar de ayudar a la chica, la cual trató de negar esa ayuda, pero le fue imposible ya que sin el agarre de Junnosuke hubiera acabado en el suelo.
+La puerta del garaje se abrió lentamente y el coche entró en la vivienda. Se bajaron despacio para tratar de ayudarla, aunque trató de negarse, le fue imposible ya que sin el agarre de Junnosuke hubiera acabado en el suelo.
 
 Taeku iba al otro lado. Los demás ya habían llegado hacía un buen rato gracias al mensaje que le había mandado cuando estaban en el hospital. Sanghun había sido muy claro en su petición.
 
