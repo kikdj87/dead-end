@@ -1,10 +1,12 @@
 = Capítulo 8
 
-Jongtae acababa de marcharse y Séfora fue directa a la ventana para abrirla y dejar que el aire entrara. Tenía en la cabeza muchas cosas y necesitaba despejarse de tanta información. De pronto un sobre entró por la ventana de forma furtiva.
+Séfora estaba en la entrada de la casa sentada. Estaba agotada después de una sesión de ejercicio y necesitaba recuperar fuerzas. Taeku había subido ya al apartamento, pero ella insistió en quedarse fuera ya que necesitaba aire fresco.
 
-No se había fijado qué era aquello que había intentado atacarla, así que se puso en guardia mirando a todos lados para ver si veía a alguien desconocido pero el lugar estaba desierto --exceptuando algunos guardias--. Miró el papel y lo vio arrugado, así que pensó que sería una nota hacia ella de Keiken, pero no se esperaba ver el nombre de Yonghwa escrito a un lado.
+Estaba segura allí fuera ya que había seguridad de sobra, por lo que podía relajarse. Alzó la cabeza al cielo cuando de pronto una hoja le cayó en la cara.
 
-Se quedó leyendo aquella carta y comprendió la situación que había visto junto a Junnosuke en el edificio principal. Cerró la ventana y se mordió el labio inferior mientras se sentaba en el borde de la cama.
+Miró el papel y lo vio arrugado, así que pensó que sería una nota hacia ella de Keiken, pero no se esperaba ver el nombre de Yonghwa escrito a un lado.
+
+Miró a todos lados y con mucha curiosidad leyó la carta. En ese momento comprendió las acciones de Yonghwa y apretó los labios con tristeza.
 
 Miró la foto que había dentro del sobre y se sorprendió al ver el gran parecido que había entre Yonghwa y ese chico. No podían negar que eran hermanos. Pero había algo en el brillo de los ojos del chico en la foto que los diferenciaban y era esa mirada inocente que no había perdido a penas nada en su vida y parecía que todo era mucho más fácil. Sin embargo para Yonghwa, el haber crecido donde lo hizo, le había cambiado la vida al completo. No podría decir que a mal, pero si que era una vida dura.
 
