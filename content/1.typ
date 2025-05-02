@@ -104,9 +104,9 @@ _Mi familia me enseñó desde muy joven un camino muy marcado, el cual debía se
 
 _Pero desde adolescente supe que no quería vivir según un guión que no había escrito yo. Cuando tuve la oportunidad de marcharme lo hice sin mirar atrás. Dejé Japón buscando algo distinto, con ganas de aprender, de equivocarme por cuenta propia, de vivir con libertad. Fue una decisión que no les gustó, claro, y a partir de ahí la relación con mi padre se fue enfriando hasta romperse casi por completo._
 
-_No tengo más familia a parte de mi padre, es decir tu abuelo, el cual nunca supo de ti. Ha sido una decisión difícil, pero tu madre y yo creemos que es lo mejor. No quiero arrastrarte a un entorno en el que ni siquiera yo fui feliz._
+_No tengo más familia a parte de mi padre, es decir tu abuelo, y decidimos que no queríamos que formara parte de tu vida. Ha sido difícil, pero tu madre y yo creemos que es lo mejor. No quiero arrastrarte a un entorno en el que ni siquiera yo fui feliz._
 
-_He estado viajando a Japón varias veces, no ha sido por trabajo como te he contado. Tu abuelo Watashime puede ser muy insistente cuando se lo propone, por lo que he necesitado aclararle las cosas. Nunca han aceptado a mamá y eso es algo que no puedo dejar pasar. No puedo darte demasiados detalles aquí, pero si en algún momento deseas saber más, puedes preguntarme tus dudas._
+_He estado viajando a Japón varias veces, no ha sido por trabajo como te he contado. Tu abuelo Watashime puede ser muy insistente cuando se lo propone, por lo que he necesitado aclararle las cosas. No han aceptado a mamá y eso es algo que no puedo dejar pasar. No puedo darte demasiados detalles aquí, pero si en algún momento deseas saber más, puedes preguntarme tus dudas._
 
 _Esta carta es solo el comienzo de todo lo que aún puedes descubrir sobre la familia Watashime. Aunque, como padre, una parte de mí te diría que hay pasados que es mejor dejar tranquilos. El mundo de los Watashime es muy peligroso._
 

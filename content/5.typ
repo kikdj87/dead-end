@@ -1,135 +1,177 @@
 = Capítulo 5
 
-La casa por fuera se veía sencilla. Tenía una puerta de garaje, la puerta de entrada y estaba en la orilla de la carretera. Pero cuando ella se bajó del coche, se dió cuenta que ese barrio era residencial. La furgoneta aparcó dentro del espacioso garaje y todos se bajaron llenos de emoción. Subieron por una escalera de mármol hasta llegar a la primera planta aunque la escalera seguía subiendo. Frente a ellos encontraron una puerta sencilla de madera oscura que estaba abierta, dejando ver un pequeño apartamento. Taeku se acercó a Séfora y le entregó una tarjeta con código.
+Paseaba ajena a todo el bullicio del derredor, la gente yendo y viniendo por toda la terminal. Caminó por las tiendas hasta pararse frente a la portada de un periódico que le llamó la atención. Una chica había desaparecido, era menor de edad y hacía más de una semana que no se sabía nada de ella.
 
----Esta es la casa del servicio, pero se ha habilitado para que tú vivas aquí. Es para que puedas tener tu propia intimidad. Las casas están conectadas con el ascensor y esta escalera, pero básicamente son independientes ---dijo mientras la miraba serio ---. Eso no quiere decir que vayamos a dejarte hacer lo que quieras.
+Ella llevaba un año prácticamente desaparecida y, aunque no hubiese podido mirar las redes sociales o los periódicos, sabía que nadie la estaría buscando. No le quedaba nadie que la atase en esta tierra que estaba a punto de despedir, así que se labraría un nuevo futuro allí donde iba.
 
----Me lo suponía ---tomó la tarjeta con la mano poniendo un gesto de molestia y suspiró cansada.
+Llegó el momento de subir en el avión y allí estaban, buscando sus asientos con tan mala suerte que Séfora estaba lejos de sus compañeros. Cuando encontró su lugar, ventanilla, como había pedido, había un hombre bastante extravagante sentado a su lado. Pareció no hacerle caso, ya que estaba absorto con su móvil y unos auriculares grandes.
 
----Nosotros tendremos los otros dos pisos porque somos más. Solo tiene dos dormitorios así que vamos a estar apretados ---miró a los demás que estaban resignados. Parecía que habían estado viviendo toda su vida juntos y que estaban acostumbrados ---. Ve a descansar, a darte un baño o lo que necesites.
+---Sef, no había más sitio donde sentarse, lo siento ---Jongtae se inclinó un poco hacia la chica. Ella le ignoró, odiaba que la llamara así ---, estaremos cerca.
 
----No lo dudes ---sin despedirse entró a su piso.
+Cuando Jongtae se marchó hacia su asiento, ella aprovechó para sacarle el dedo corazón mientras murmuraba algunas palabrotas, molesta, como solía hacer siempre que él la llamaba Sef. De pronto una carcajada a su lado la sacó de aquel momentáneo enfado. La persona que estaba a su lado la mirando con rostro divertido.
 
-Cerró la puerta a su espalda. Se apoyó en esta soltando un profundo suspiro mirando el apartamento. Frente a ella tenía un sofá amplio que estaba frente al televisor y un mueble moderno. Al lado una mesa de salón para comer con unas sillas, y por el pasillo veía una cocina abierta. Al final del todo estaba el dormitorio. Miró por los armarios de la cocina y se fijó que estaba completamente equipada con comida, la nevera llena y el cuarto de baño con todo lo necesario.
+---¿Qué ha hecho Jongtae para que le saques el dedo? ---murmuró inclinado hacia Séfora, que se quedó helada, abriendo mucho los ojos. Comenzó a abrir poco a poco la boca para llamar a Jongtae o a quien fuese. Malos recuerdos se le pasaron por la cabeza, jamás había visto a ese hombre por ningún sitio. Y justo cuando iba a gritar, él agarró suave su mano y la irrumpió ---. No digas nada, somos amigos de confianza. Me llamo Katashi, ¿y tú eres...? ---inclinó levemente la cabeza.
 
-Fue directa al dormitorio. Nada más entrar vio a un lado la cama y al otro un escritorio. Tenía cuatro ventanales grandes y dos hermosos armarios a cada lado de la puerta. En medio de la habitación estaba la única maleta que había llevado consigo. Ordenó la ropa y tras dejarlo todo listo se fue al baño y se dio una ducha de agua caliente. Necesitaba relajarse.
+Katashi la miró esperando una respuesta y cuando ella seguía con mirada de desconfianza soltó un suspiro y se puso en pie. Se remangó la camiseta que llevaba y dejó ver todos los tatuajes, dibujos y lineas que cubrían cada rincón de su piel hasta sus dedos. Se colocó ambas manos al rededor de la boca y tomó aire.
 
-Estaba bastante nerviosa con todo lo que se le venía encima. Trataba de controlar aquel nudo que se le había formado en el estómago pensando en que realmente no estaba sola. Hasta ahora sus compañeros habían sido un apoyo emocional muy importante en su camino.
+---¡Taeku, hola! ---dijo alzando la voz con tono divertido.
 
-La primera semana le dejaron descansar y habituarse al nuevo horario. Séfora tenía que admitir que estar sola en aquel apartamento le había dado una privacidad que nunca había tenido. Como no tenía que salir de casa, no vio a los chicos durante tres días enteros, que estuvo viendo animes y series.
+El aludido alzó la cabeza de su asiento al escuchar su nombre y se puso de pie girándose en buscar quién le había llamado. Cuando se encontró con el rostro sonriente de Katashi maldijo entre dientes yendo hacia donde estaba él.
 
-Pero las vacaciones acabaron pronto y al cuarto día Taeku se presentó llamando a su puerta. Y así comenzó con clases de japonés más avanzado, necesitaba dialogar en las reuniones importantes con los líderes de bandas pequeñas. Se estaba poniendo seria la cosa y ella tenía que ser consiente de todo ello.
+---¿Qué narices haces tú aquí, precisamente en este avión, a esta hora?. ¿Qué narices haces aquí maldito Katashi? ---resopló Taeku notablemente molesto.
 
----Séfora ---Taeku soltó un suspiro en el momento del descanso y se reclinó hacia atrás en la silla. La miró a los ojos ---, esto, donde te has metido obligada es muy serio. Es un mundo muy negro y peligroso ---ella le devolvió la mirada, casi pudo ver en él un gesto de preocupación que no había visto anteriormente.
+---Yo también me alegro de verte ---el chico con gesto divertido le guiñó un ojo y le dio con el dedo en el hombro riendo. Taeku se apartó ---. ¿Quién es esta joven que ha insultado por la espalda a Jongtae? 
 
-Sin apartar la mirada de la chica sacó de la espalda una pistola negra mate y la dejó sobre la mesa, estaba descargada. Ella le mantenía aquella mirada, había dicho algo que era muy cierto: la habían obligado para estar allí.
+---Ah ---Séfora alzó la mano para responder a la pregunta de Katashi, pero Taeku la interrumpió.
 
----Esto es lo que somos ---murmuró Taeku con pesadez ---, estamos entrenados para matar si hace falta.
+---Ya lo sabrás, estúpido ¿dónde has estado estos últimos siete meses? ---se inclinó en el asiento bajando cada vez más la voz.
 
-Se guardó de nuevo el arma en el pantalón y se acomodó en la silla 
+---Mi trabajo ---el muchacho, sin perder la sonrisa, susurró también. Empujó a Taeku para quitárselo de encima -- A tu asiento, ella y yo tenemos mucho de qué hablar hoy.
 
----Ahora mismo vivimos para protegerte.
+---Cámbiame el sitio, estoy sentado con Tae ---dijo Taeku agarrando el brazo de Séfora, quien se quejó porque le hizo daño.
 
-Hubo un momento bastante largo de silencio entre ambos. No era incómodo, pero ella tenía en mente las palabras que acababa de decir. Taeku trataba de adivinar sus pensamientos sin apartar los ojos ella, pero Séfora había desviado la mirada hacia donde tan solo un momento había estado el arma.
+---No quiero ---la chica se soltó con brusquedad y se pegó a la ventana del avión ---, si es amigo vuestro tiene cosas que contarme.
 
----No voy a negar que tengo miedo ---dijo ella algo nerviosa y molesta por la situación. Pero se había resignado a ese destino que le había tocado ---. Me asusta mucho lo que puede llegar a pasar.
+---No es esa _clase_ de amigos ---enfatizó esperando que ella lo entendiera. Y lo entendió, cosa que hizo que ella sonriera un poco más divertida.
 
----Es normal ---Taeku asintió mirando los papeles que estaban sobre la mesa. En estos había información detallada que tenía que conocer como la jerarquía de poderes sobre los clanes subordinados.
+---Me llamo Séfora ---se giró hacia Katashi estirando la mano para estrecharla con la de él. Dejó de prestar atención a Taeku ---. Mucho gusto.
 
----Es una asociación criminal ---dijo Séfora mientras pasaba las manos por los papeles ---, tengo que controlar tantas cosas ilegales... vigilar que todo lo que se haga está bajo mi aprobación ---tragó saliva para seguir hablando ---, amenazar con los que no cumplen y, si es necesario, mancharme las manos de sangre.
+---Igualmente ---dijo con voz melosa pero divertido.
 
-Taeku asintió con la cabeza a sus palabras y volvieron a mirarse.
+Taeku se marchó molesto de nuevo a su asiento y se cruzó de brazos, murmurando lo mucho que odiaba a Katashi en ese momento.
 
----Ten Shio y los otros dos hombres, Takada Mishima y Junho ---Séfora notó como al nombrar al último Taeku se puso algo tenso pero ---, son el consejo de “sabios”.
+---Qué casualidad que Katashi vaya con nosotros en el vuelo ---dijo Jongtae mirando de soslayo hacia el nombrado, quien hablaba tranquilo con Séfora.
 
----No diría eso exactamente ---se movió incomodo sobre la silla ---, cada uno representa un país. Los tres son los cabecillas de la organización. Recuerda el diagrama de poderes que ya vimos. Responden ante el jefe Watashime. El abogado tiene más detalles sobre ellos tres.
+---Demasiada casualidad ---Taeku puso los ojos en blanco hablando con ironía.
 
----¿Ese abogado manda sobre ellos? ---Séfora se quedó pensando mientras movía el lápiz que tenía entre los dedos.
+A pesar de la curiosidad que sentía Séfora hacia Katashi fue muy prudente a la hora de hablar con él. Sabía que tenía que llevar mucho cuidado con lo que decía y a quién se lo decía. No sabía de parte de quién estaba el hombre que estaba sentado a su lado.
 
----No ---negó con la cabeza rápidamente ---. Es el abogado de la familia y por ende de la compañía. Ahora mismo está siendo todo un camino de rosas, pero se irá poniendo peor. Mi entrenamiento fue bastante duro con respecto a los demás por culpa de mi padre que... bueno, esperaba algo de mí que no pude darle.
+Así que la conversación fluyó entre cosas banales como la edad, el trabajo o el motivo del viaje. Él le dijo que era cantante y la verdad es que podía pasar como tal. Era bastante guapo, su pelo corto y teñido de rubio platino le hacía más interesante, su ropa era extravagante y se notaba que le gustaba llamar la atención.
 
-Se puso muy tenso, apretó los puños sobre la mesa y frunció el ceño. Se quedó en silencio y no volvió a decir nada más al respecto. Al cabo de un momento se puso en pie y se despidió de Séfora alegando que ya era hora de descansar. Ella no opuso resistencia y vio como el chico se marchaba por la puerta. Sabía que había tocado un tema delicado para él y tampoco quería presionarle para que hablara de algo que no quería.
+---Conocí a Jongtae y a Taeku en un concierto ---dijo Katashi cuando ella le había preguntado por cuarta o quinta vez ---, la compañía me los asignó como seguridad privada y la verdad es que congeniamos bien. Me presentaron al resto y hemos salido de vez en cuando a tomar copas juntos.
 
-Cuando estuvo sola, respiró profundamente y sacó una carpeta de cartón marrón donde estaba la información de las tres familias más importantes, los tres hombres que había visto nada más llegar.
+---Pero no vi a Taeku muy contento de encontrarte aquí ---Séfora alzó una ceja.
 
-Ten Shio era original de Taiwan, pero a base de luchas y guerras en el territorio de China y Filipinas, había conseguido tener el poder de esa zona. Controlaba el mercado negro, el tráfico de cosas ilegales y nocivas para el cuerpo que pasaba por esas tierras. No parecía estar casado, pero se suponía que tenía varios hijos no reconocidos por varias ciudades.
+---Eso es porque la última vez que salimos le levanté el ligue de la noche, qué le voy a hacer, soy un conquistador ---se llevó la mano al pelo echando este hacia atrás ---. Y vosotros... ¿por qué viajáis juntos?
 
-Takada Mishima era japonés. Poseía el control de más de la mitad de las bandas yakuzas en las ciudades más importantes. Se había postulado para las elecciones a presidente un par de veces y no había ganado por poco. Estaba casado y tenía dos hijos adolescentes, a quienes mantenía alejados de toda esa porquería.
+---Nosotros ---Séfora se puso algo nerviosa y se anilló el pelo entre los dedos pensando en una respuesta rápida y convincente. Tan convincente como había usado su interlocutor ---, me acompañan a conocer a mi familia.
 
-Por último, y no menos importante, estaba Kim Junho. Ese hombre controlaba la península de Corea al completo. Norte y sur, o al menos eso ponía en los papeles. El norte era un lugar demasiado complejo para poder manejarlo gracias a la dictadura, pero tenía a hombres trabajando para él por allí. Era viudo, hacía tiempo que su esposa había muerto de una enfermedad y tenía dos hijos en paradero desconocido.
+Ambos sonrieron cuando ella le dijo aquella excusa y hubo un momento de silencio. Séfora suponía que Katashi no era tonto. Sabía que tenían que conocerse por ser todos miembros del clan de su abuelo y trabajar para él, pero hasta que no estuviese segura no quería hablar de más y cagarla.
 
-Conforme iba pasando las páginas se topó con un número de teléfono y el nombre de Sanghun subrayado en amarillo. Eso le llamó la atención. Creía recordar que ese era el nombre del abogado. O tal vez era solo una marioneta más de aquel juego de cuerdas que manejaban.
+El vuelo duró más de quince horas, era directo de Barcelona hasta Tokyo. Dio tiempo a dormir, de ver alguna película, a hablar de cosas triviales e incluso dio tiempo de jugar a algún juego de cartas típico japonés.
 
-Un ruido en el dormitorio la sacó de sus pensamientos y la lectura. Se puso en pie y se extrañó, ya que la única entrada al apartamento estaba delante de ella. Caminó despacio hacia la habitación y, creyendo que sorprendería al intruso, fue muy lenta.
+Katashi fue muy amable con Séfora. Le enseñó palabras más coloquiales en japonés, para saber defenderse en la calle si andabas perdida. También le enseñó las mejores palabrotas con las que insultar a sus compañeros.
 
----Eres escandalosa ---una voz aburrida y seria se escuchó al otro lado de la puerta. Alarmada la abrió con rapidez y vio a Keiken sentado sobre la cama. Él alzó una mano en forma de saludo y siguió hablando ---. Llevo un buen rato aquí esperando, así que decidí hacer ruido a ver si me hacías caso y no te escuchaba llegar. Me equivoqué, te escuché llegar.
+Taeku decidió dejarle espacio, delante de Katashi no quería controlar mucho lo que hacía. Sabía que podía confiar en ambos, pero aún así el viaje se le hizo eterno pensando en qué podrían estar hablando.
 
-Miró a Séfora con gesto de decepción y ladeó la cabeza mientras mantenía la mirada puesta en los ojos de la chica. Ella seguía con pose defensiva pero él ni se inmutó. Llevaba una pistola en la mano, la cual estaba apoyada sobre la cama, dejando que ella fuese consciente del arma.
+Cuando el avión llegó a tierra salieron, Taeku y Jongtae se acercaron a Séfora que estaba mirando todo embobada.
 
----Cómo has entrado ---dijo alzando los puños frente a su rostro con el ceño fruncido y los labios apretados ---, todo está bien vigilado.
+---¿Qué tal el viaje chicos, agradable? ---Jongtae les miró con una sonrisa irónica ---, porque el mío ha sido un infierno.
 
----Ya estás viendo que no ---palmeó la cama a su lado con la mano libre y esbozó su sonrisa aburrida ---. Ven, siéntate.
+---Eres un exagerado ---Taeku le sacó el dedo corazón.
 
-Séfora negó con la cabeza aún quieta en la puerta. Keiken se encogió de hombros.
+---Me encanta ver que se siguen llevando como si fueran un matrimonio ---Katashi los miró encantado y Séfora se echó a reír al fondo.
 
---- Bueno, como quieras ---se acomodó cruzando una pierna sobre la otra mirándola serio ---. Vengo a darte un consejo: vete de aquí.
+---A callar, que tonterías dices ---Taeku le señaló con el dedo y se puso bien tras pensar un segundo ---. Vamos Séfora, los demás ya han ido a por las maletas.
 
----¿Qué? ---ella le miró sorprendida por lo que acababa de decir.
+---Japón es impresionante ---dijo ella pensando en como se veía la ciudad mientras volaban por encima ---. Gracias por el viaje tan divertido Katashi.
 
----Si, te he estado observando un tiempo y veo que no has sido criada para este mundo ---movió una mano en círculos delante de su cara, dando a entender a lo que se refería ---, eres como una princesa en un castillo lleno de espinas ---la miró al completo y eso causó que se sintiera aún más incómoda.
+---Un placer ---ambos se inclinaron con una sonrisa en señal de despedida.
 
----No me gustan estos encuentros. Que puedas ser tan escurridizo y que te puedas colar en mi casa para...
+Cada uno marchó por un lugar distinto de la terminal. Séfora tenía muchas preguntas sobre quién era Katashi y, antes de que pudiera preguntar, Jongtae empezó a responder.
 
----Espera ---alzó la mano y se quedó callada cuando la cortó con un gesto mucho más duro sin su sonrisa ---. Solo decirte que antes de ser tú casa esto fue mío ---señaló al suelo ---. Si, sorpresa. Ese hombre no es mi padre, por Dios no. No podría criar a dos hijos tan estupendos con ese cerebro de mono que tiene ---Keiken esbozó una pequeña sonrisa alzando un solo lado de su boca ---. Hay personas mejores capacitadas que tú para estar en este puesto.
+---Katashi es... ---se quedó pensando mientras se pasaba los dedos por la barbilla ---, Katashi es...
 
----¿Cómo tú? ---preguntó con una sonrisa irónica al escucharle.
+---Un asesino a sueldo ---Junnosuke se coló entre ambos y asintió con la cabeza, se llevó un golpe de Jongtae y se quejó ---. Es que es la verdad.
 
----No, gracias, no quiero esta mierda ---se puso en pie y se acercó a ella que retrocedió varios pasos ---. Voy a ir por las buenas, _princesita_, vete a casa. Olvida este mundo, ve con... no sé, un hombre que trabaje en algo sencillo y vivid felices. Haz lo que hagan las mujeres españolas en casa y vete de aquí.
+---Si. Trabaja para Takada Mishima y hace el trabajo sucio ---puso los ojos en blanco y miró mal a Junnosuke ---. No quería decirlo así, pero si, básicamente es eso.
 
-Conforme él iba diciendo todo aquello Séfora sentía que le clavaban un puñal en el pecho. La persona que tenía delante era el posible causante de que ya no le quedara nada en este mundo. Apretó los puños con fuerza y bajó los brazos a ambos lados de su cuerpo.
+---Él me ha contado algo completamente distinto ---dijo Séfora mientras esperaban a que sus maletas salieran por la cinta transportadora.
 
----No te creas que esto es porque eres una mujer ---la señaló al ver su reacción sin saber por qué se había molestado ---. Pero parece que llevas tacones de cristal y eso aquí no pega.
+---Obviamente ---Taeku estaba detrás de ellos ---, como tampoco le habrás dicho quien eres tu, ¿verdad?
 
----No sabes nada de mi ---por primera vez dio un paso hacia él y pudo ver en su rostro algo parecido a diversión ---. No me conoces, no sabes mi pasado y lo que llevo a la espalda.
+---Verdad ---ella se giró hacia el chico y alzó el pulgar. Él sonrió satisfecho.
 
----Sé más de lo que te piensas. Solo te estoy avisando, _princesita_. No te enfades conmigo si luego esto no es como Taeku te lo ha pintado y es mucho peor.
+Salieron del aeropuerto yendo directos a una furgoneta negra que les esperaba. Guardaron las maletas en el vehículo y tras montarse, pusieron rumbo al centro de la ciudad. Séfora iba mirando por la ventana con la boca abierta los edificios tan modernos mezclados con la arquitectura clásica de japón. 
 
----Vete de aquí. Esta es mi casa ahora mismo ---se encaró hacia él y a pesar de la diferencia de altura no tuvo miedo ---. Pronto tendré el poder de patearte y largarte de mi vida.
+Había muchísima gente andando por las calles, pero vez había orden cuando tenían que cruzar o incluso en sus respectivos caminos y paradas. Había vivido toda la vida en una ciudad céntrica y enorme, pero aquella ciudad era como siete veces Madrid.
 
----Ah, que divertido ---por primera vez desde que se conocieron vio una sonrisa sincera en su rostro ---. Entonces me lo voy a pasar muy bien contigo.
+---Es preciosa ---dijo murmurando contra el cristal del coche.
 
-Se inclinó y fue a la ventana, saltó por ella antes de que Séfora pudiera decir o hacer algo. Ella corrió hacia la ventana y la cerró buscando al hombre con la mirada. No había rastro de él, como si hubiese sido un fantasma desapareció nada más saltar.
+---Lo echaba de menos ---Junnosuke suspiró detrás de ella en su asiento y se inclinó hacia Séfora ---. Y verás cuando sea de noche, gana mucho más con las luces.
 
-Salió del apartamento y subió las escaleras bien ofuscada. Golpeó la puerta que estaba cerrada con el puño y esperó, un sorprendido Junnosuke le abrió la puerta. No dijo nada, simplemente entró y comenzó a dar vueltas por el salón.
+No tardaron mucho en llega a un barrio lleno de edificios altos y carteles luminosos. A pesar que era el medio día había una batalla silenciosa de ver qué cartel brillaba más y era la atención de los habitantes.
 
----¿Qué ocurre? ---Junnosuke la miró mientras daba las vueltas.
+El coche paró frente a un edificio lujoso y se bajaron de este. Cuando Séfora iba a coger la maleta le avisaron que no hacía falta colocando la mano sobre su hombro.
 
----Keiken ha venido a mi casa ---dijo ella mirando sus ojos. El chico se alarmó pero ella siguió hablando ---. No ha pasado nada, parece que le gusta aparecer y desaparecer.
+---Esto será un momento y volveremos, no saques nada ---dijo Jongtae con calma.
 
----¿Qué te ha dicho? ---Junnosuke se puso serio. Escuchó atento lo que había pasado con Keiken momentos antes y se enfadó ---. Vamos a tener que subir la vigilancia, meter a más gente y ubicar guardias en cada puerta. No se puede repetir algo así, Séfora, básicamente te ha amenazado.
+Los seis fueron a un ascensor, marcaron la última planta, el piso 27, y esperaron agotados mientras subían. Se les hizo eterno. Séfora sentía que tenía las piernas agarrotadas por culpa de estar tantas horas en el asiento del avión. Lo último que le apetecía era reunirse con gente y hablar de temas que no le interesaban en ese momento.
 
----Lo sé, ha sido muy claro con sus gestos ---le dio un escalofrío ---. Quiero aprender a manejar armas de fuego. Quiero ser más fuerte.
+Solo pensaba en una ducha y una cama en la que poder descansar. Aunque no sabía donde iba a vivir, sabía que aquellas personas lo tenían todo planificado. Solo tenía que dejarse llevar aunque le daba un poco de miedo.
 
----Lo vas a ser ---dijo Junnosuke asintiendo ---, y no volverá a entrar en el edificio.
+Las puertas del ascensor se abrieron y caminaron directos a un despacho que parecía ser el principal. Las puertas eran de cristal al igual que las paredes que lo separaban del resto de habitaciones. Al fondo de la sala había un ventanal que ocupaba toda la pared y dejaba ver un precioso atardecer entre los altos edificios. El problema de la escena fueron las personas que habían dentro, fastidiaban el ambiente.
 
-Después de aquella visita inesperada subieron la seguridad del edificio en cada entrada, cada ventana y cada rincón. Era imposible salir al balcón sin ver a alguien vigilando la casa. Aquella noche los cinco chicos tuvieron una seria reunión en el salón.
+Ten Shio hablaba con dos hombres más, los tres parecían tener la misma edad. Uno era mucho más alto que los otros dos y el tercero era más grueso. Los tres estaban serios, mirando a la puerta de cristal cuando esta comenzó a abrirse y los seis entraron. Dejaron a Séfora en el centro y los cinco chicos se colocaron detrás de ella como si estuviesen en una revisión militar.
 
----Keiken conoce cada secreto de este edificio ---dijo Taeku mientras tenía un vaso de un líquido ambarino moviéndose de una mano a otra ---, tenemos que estar más alerta.
+---Tenéis una cara que da pena ---dijo Ten Shio pasando la mirada por cada uno de ellos.
 
----Eso es cierto ---Junnosuke estaba de pie al lado de las escaleras ---, ambos crecimos en esta casa.
+---Normal, no nos has dejado ni ducharnos, ni descansar. Venimos directamente del aeropuerto ---Hyungmin murmuró derrotado.
 
----Pues ya sabes lo que tienes que hacer ---Taeku afirmó y el más joven simplemente asintió con la cabeza, subiendo las escaleras.
+---Va a ser rápido ---Ten Shio señaló a la chica ---, ella es Séfora ---asintió y señaló a sus dos acompañantes ---. Ellos son Takada Mishima y Kim Junho.
 
----¿Tendríamos que dormir alguno con ella? ---Jongtae se quedó pensativo y cruzó los brazos sobre su pecho.
+Ambos hombres la miraron con mucha curiosidad. Analizaban cada parte de la cara de la chica mientras ella se encogía en su asiento, sintiéndose muy cohibida.
 
----No, necesita intimidad ---Hyungmin suspiró y los otros asintieron ---. Además, las puertas internas están sin cerradura, podemos acceder a ambos apartamentos sin problema.
+---¿Y bien, soy suficientemente japonesa? ---dijo Séfora tratando de dar un toque gracioso para romper el hielo. Necesitaba dejar de estar nerviosa.
 
----Intensificaré el entrenamiento ---Taeku se bebió el contenido del vaso ---. Vamos a descansar, lo necesitamos.
+---Se parece tanto a Ryu ---dijo Takada Mishima, el hombre fornido, muy atento a su rostro ---, no podemos negar que es su hija.
 
-Las reuniones eran cada día y además duraban bastantes horas. Muchas veces era ella quien tenía que viajar por toda la ciudad y moverse por cada rincón. Debía conocer a las diferentes cabezas de familia y darse a conocer como la jefa Watashime.
+---Admito que llegué a pensar que el viejo se lo había inventado ---dijo Junho, el más alto, asintiendo con la cabeza ---, pero es que no puedo negar lo evidente. Bienvenida a Japón, señorita Watashime ---hubo un momento que Taeku y Junho se miraron serios.
 
-El vestuario de la chica había cambiado. Había pasado de ser una adolescente con ropa de lo más sencilla a ser una empresaria.
+---Pero mi apellido no es…
 
-Le habían enseñado encarecidamente que la empresa se dedicaba al entretenimiento. Viajaban por todos los países del mundo con la excusa de giras de conciertos o estrenos cinematográficos. Cuando en verdad lo que se hacía era mucho más ilegal y siniestro.
+---Eres una Watashime ---alzó la mano Ten Shio para cortar la corrección de la chica ---. Olvida quien has sido hasta ahora. ¿Le habéis explicado todo?
 
-Como era tan joven, de cara al público a penas se sabía nada de ella, tan solo su nombre. Pero de cara a lo interno ya estaban preparando a todos para lo que llegaría a ser. Debía de acostumbrarse a esa nueva vida, porque desde ese momento solo iba a subir y subir de estatus.
+---Sí señor ---dijo Taeku muy serio. Ahí fue cuando Séfora se dio cuenta que sus compañeros habían permanecido de pie tras ella. No parecían los muchachos agradables con los que había estado ese año entero ---. Todo lo que nos habías pedido.
+
+---Bien ---asintió el hombre y sonrió.
+
+Los hombres comenzaron a hablar sobre el aprendizaje de Séfora, pero ella estaba absorta en cada detalle a su alrededor. Hablaban de cosas que podrían interesarle en un futuro, pero no podía evitar analizar a aquellos tres hombres.
+
+Ten Shio parecía la voz cantante del equipo. Se veía un hombre muy limpio y ordenado, su pelo bien cortado y con una raya en el lado. La corbata y la camisa bien puestas, además el traje de chaqueta gris oscuro bien abotonado. Dejaba ver cuando gesticulaba unos gemelos dorados. Su problema a su apariencia tan perfecta eran sus dientes, cada vez que sonreía se veían amarillentos y bastante estropeados por el tabaco y el alcohol.
+
+A su derecha estaba Junho. Era el más elegante de los tres, rostro impecable, dientes perfectos y blancos, pelo muy bien cortado repeinado hacia atrás. Se le notaban las canas y eso le daba un toque interesante. Su traje era de rayas azul marino muy fino y se notaba que la tela era de calidad. Movía mucho dinero solo por los accesorios que no se molestaba en ocultar: un buen reloj y un gran anillo de oro.
+
+Y la izquierda estaba Takada Mishima. Era el más bajo y fornido de los tres. Llevaba la abierta por el cuello y no llevaba corbata, dejando ver un tatuaje cuando se movía. Su traje era blanco y tenía la pinta que mostraban las películas americanas sobre los Yakuza. 
+
+Y de la nada un nombre sacó a Séfora de sus pensamientos.
+
+---... y luego Keiken, que tampoco quiere ---dijo Junho moviendo la mano del anillo en círculos, haciendo que ella prestara más atención a la conversación.
+
+---Si, pero Keiken se ha llevado a Mina. Dicen que ella es la sobrina de un hermano del primo de alguien ---dijo Ten Shio señalando a Jongtae con la mano ---. ¿No?
+
+---Algo así señor. No me sé el árbol genealógico ---dijo bastante serio al escuchar el nombre de esa chica.
+
+---Pues los que apoyen a Mina la llevan clara teniendo a Séfora aquí con nosotros ---Takada la señaló abiertamente con un dedo regordete ---. No es la hija sobrina nieta del primo tercero del tío de alguien ---continuó hablando algo molesto ---. Es la nieta directa de Watashime.
+
+---Por eso me preocupa que Keiken esté con Mina ---Ten Shio se pasó la mano por la barbilla ---, porque le estará metiendo cosas extrañas en la cabeza a la pobre muchacha.
+
+Séfora se movió un poco para hablar a cerca de la persona a la que estaban nombrando, Keiken, pero una mano en su hombro hizo que reculara. Miró hacia arriba y vio a Taeku que negó muy levemente con la cabeza. Ella entendió que no tenía que decir absolutamente nada.
+
+Y mientras Séfora escuchaba todo aquello, meditó en algo que ya había pensado anteriormente: no tenía nada. Este mundo le había castigado bastante quitándole lo poco que había poseído en su vida. Le daba igual lo que ocurriera, su felicidad se había acabado el día que sus abuelos murieron. //o se fue de Madrid.
+
+Hablaron del entrenamiento personal que debía tener, aprender a manejar armas de todo tipo. Comentaron que tendría que llevar vigilancia extra y un coche blindado. Se llegó a un acuerdo allí mismo en que ellos se quedarían como consejo y liderazgo. Junto con el apoyo del abogado de la familia la prepararían para poder ocupar su lugar. No opuso resistencia a ello ya que realmente era un bebé que acababa de nacer en ese mundo tan peligroso.
+
+Al fin la reunión había terminado. Ya casi había oscurecido y Séfora estaba dando lo mejor de sí misma para no quedarse dormida. Estaba mentalmente agotada por el tremendo viaje y toda la información que había tragado en esa tarde. Se despidieron de los tres hombres y se marcharon de nuevo por donde habían venido. Mientras caminaban la chica se tambaleó un poco y Yonghwa agarró su brazo.
+
+---¿Estás bien?
+
+---Me muero de sueño ---suspiró frotándose los ojos con las manos ---. Quiero dormir, quiero comer, quiero descansar...
+
+---Ya vamos a hacer todo eso ---mantuvo su brazo agarrado con suavidad para estabilizar su caminar.
+
+Cuando estaban bajando ella aprovechó que estaba sujeta para cerrar los ojos un momento. Cuando estaba medio dormida la voz potente de Taeku la sobresaltó.
+
+---Takada Mishima nos ha prestado su casa de lujo ---dijo con una amplia sonrisa ---. Tendremos una mansión solo para nosotros seis, qué maravilla. Ya veréis la casa, es una pasada.
+
+---Conozco la casa ---Jongtae se colocó al lado de Taeku que buscaba en el móvil la dirección ---, vamos a vivir de lujo.

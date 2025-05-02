@@ -1,159 +1,147 @@
 = Capítulo 9
 
-Taeku había echado a correr hacia la ventana que estaba abierta de par en par, ya no había rastro de Keiken por ningún lado y por ello estaba maldiciendo entre dientes, cerrando todo. Por otro lado Yonghwa estaba examinando el brazo de Séfora donde tenía un leve corte, no muy profundo pero si escandaloso.
+Séfora estaba en la entrada de la casa sentada. Estaba agotada después de una sesión de ejercicio y necesitaba recuperar fuerzas. Taeku había subido ya al apartamento, pero ella insistió en quedarse fuera ya que necesitaba aire fresco.
 
----Para ya Taeku ---dijo Tae agarrándole del brazo ya que no paraba de revisar la habitación de la chica. La señaló con la mano y ella alzó la cabeza sorprendida.
+Estaba segura allí fuera ya que había seguridad de sobra, por lo que podía relajarse. Alzó la cabeza al cielo cuando de pronto una hoja le cayó en la cara.
 
----Estoy bien, solo es un corte superficial.
+Miró el papel y lo vio arrugado, así que pensó que sería una nota hacia ella de Keiken, pero no se esperaba ver el nombre de Yonghwa escrito a un lado.
 
----¿Qué es lo que quería? ---Yonghwa curó la herida con lo que tenía en el botiquín que Hyungmin había traído y la tapó con sumo cuidado.
+Miró a todos lados y con mucha curiosidad leyó la carta. En ese momento comprendió las acciones de Yonghwa y apretó los labios con tristeza.
 
----Está claro, los papeles de la mesa ---Taeku interrumpió antes de que ella pudiera hablar, pero asintió con la cabeza a su comentario ---. Hay que guardarlos todos.
+Miró la foto que había dentro del sobre y se sorprendió al ver el gran parecido que había entre Yonghwa y ese chico. No podían negar que eran hermanos. Pero había algo en el brillo de los ojos del chico en la foto que los diferenciaban y era esa mirada inocente que no había perdido a penas nada en su vida y parecía que todo era mucho más fácil. Sin embargo para Yonghwa, el haber crecido donde lo hizo, le había cambiado la vida al completo. No podría decir que a mal, pero si que era una vida dura.
 
-De forma desordenada comenzó a recoger los papeles y los metió en la carpeta donde estaban anteriormente, se los entregó a Tae.
+Tomó el teléfono entre los dedos y apuntó la información de contacto del chico. No sabía como podría hacerlo, pero haría lo posible por que ambos chicos tuvieran contacto. Aunque tendría que empezar por Yonghwa, sabía que si la carta había volado hasta su ventana es que no quería saber nada de su hermano.
 
----Cuando sepa que todo está bien te los volveré a dar, mientras los guardaremos nosotros. Si los necesitas subes a nuestro piso y los lees allí ---Taeku estaba bien enfadado, se notaba la tensión en su cuerpo.
+Los días pasaban.
 
-Una vez se cercioraron que el piso estaba seguro y que nadie podría entrar por ningún lado, que la seguridad en el exterior estaba reforzada y que ella estaba a salvo los chicos se marcharon al piso superior dejando a Séfora sola. Recogió el poco desorden que habían formado y después cogió la pala de la cocina y la miró atentamente, el brazo le dolía un poco, pero a pesar de todo se sentía algo contenta por haber sabido defenderse sola.
+Mientras entrenaba, iba a reuniones aburridas y seguía entrenando duramente se enviaba mensajes con Yongsun, el hermano menor de Yonghwa. Al principio había sido muy raro para ambos, ella le había contado que le conocía porque trabajaban juntos, pero tampoco quería dar muchos detalles privados de su vida y trabajo, así que trataba de mantener un poco de distancia en ese aspecto.
 
-El sonido de varios mensajes llegando a su móvil hizo que reaccionara un poco y se sacara de sus pensamientos lo que acababa de ocurrir, Yongsun parecía nervioso en sus mensajes pero había propuesto el quedar en persona. Principalmente había escrito que era para hablar mejor de su hermano, pero más adelante había admitido que tenía muchas ganas de conocerla.
+Sin embargo, con el tiempo, comenzaron a hablar de cualquier tema que no fuera Yonghwa, hacerlo más personal el uno con el otro. Séfora se dio cuenta que ese chico estaba empezando a ser su vía de escape de esa vida tan dura que le habían obligado a vivir.
 
-Entre tanta conversación que estaban teniendo ambos se confesaron que eran nuevos en la ciudad, a penas conocían a gente y saber que no eran los únicos en esa situación les unió un poco más. Además que ella conociera su idioma le hizo sentir más seguro.
+Tras un día agotador de entrenamiento con las espadas de bambú, Taeku decidió que ya estaba preparada para practicar con katanas reales, así que tomó un par de ellas y estiró el brazo para entregarle el arma. Ella lo cogió con miedo.
 
-Yongsun le mandó la ubicación de una cafetería que estaba en la zona de Shibuya --bastante concurrida esa zona a cualquier hora del día-- y le propuso de verse en unos días para charlar mejor, cara a cara. Ella sintió un vuelco en el estómago y el corazón le latía mucho más rápido de lo que hubiera esperado, empezaba a sentirse como una adolescente normal. Sin pensarlo mucho aceptó la propuesta y se dijo a sí misma que ya buscaría una excusa con la que escaparse de los chicos, aquella oportunidad no podía dejarla escapar.
+---Bien, ha llegado tu momento ---esbozó una sonrisa de lado y dando bastante miedo. Se puso en posición de ataque ---, a practicar todo lo que te enseñado.
 
-A penas había podido dormir cada noche y concentrarse en sus deberes al pensar en salir a escondidas. El día acordado estaba asomada por la ventana viendo como la seguridad paseaba por la acera con tranquilidad. Se miró el reloj y soltó un fuerte suspiro, tendría que armarse de valor. Se arregló y cuando quedaban tan solo treinta minutos para la hora concertada bajó hasta el garaje y vio al chofer charlar con uno de seguridad. Miraron a la chica sorprendidos.
+---Ni de coña ---la katana pesaba entre sus manos mucho más que las de bambú que había estado usando. Además, que estaban afiladas ---, vamos a acabar muy mal.
 
----Por favor, ¿puedes llevarme a un lugar? ---alzó el móvil sonriendo, enseñando la dirección del lugar de la quedada ---. Llevaré esto en la mano en todo momento, compartiré la ubicación a tiempo real ---continuó hablando sin dejarle responder ---, estaré en un lugar público muy lleno de gente.
+---Esa es la idea ---se encogió de hombros y asestó el primer golpe.
 
----Pero no deberías ir sola ---comenzó a quejarse el conductor.
+El rápido movimiento de Taeku y la lenta reacción de Séfora provocó que le hiciera un pequeño corte en la manga de la camiseta ancha que ella llevaba puesta. Abrió mucho los ojos mirándole sorprendida, no esperaba que fuera a atacar de aquella manera. En respuesta Taeku sonrió de lado y movió las cejas en gesto divertido.
 
----No voy sola, voy contigo ---Séfora trató de sonar convincente mientras por dentro se moría de los nervios para que se tragara su media verdad ---. Treinta minutos, por favor, te lo suplico.
+Séfora agarró la katana con ambas manos, se mentalizó y atacó de la misma forma que él lo había hecho, pero a pesar de tantas semanas de prácticas con aquella arma letal en sus manos le costaba moverse, y se notaba que Taeku tenía mucha más experiencia ya que sus movimientos eran más limpios y ágiles para esquivar los torpes golpes de ella.
 
-Dudó un momento, pero fue hacia el coche y señaló con la cabeza que se montara, por lo que ella dió un salto de felicidad y se montó con rapidez en el coche. Una vez parado al lado de la cafetería en la que había quedado con Yongsun el conductor se giró a ella.
+Estaban en el dojo que Mishima poseía unas calles más abajo de su residencia, así que unas horas por la mañana temprano lo tenían reservado tan solo para ellos, para que Séfora pudiera centrarse, sin otras personas que pudieran distraer o juzgar. 
 
----No me voy a mover de aquí ---dijo serio.
+Tras una hora de rápidos y ágiles movimientos por parte de Taeku Séfora alzó la mano agachando la cabeza, completamente agotada, entumecida y sudando. Respiró de forma entrecortada mientras trataba de calmar su corazón y echó la cabeza hacia atrás soltando un leve grito. Le dolían los pequeños y superficiales cortes que le había hecho a causa de mezclarse con el sudor.
 
----De acuerdo, me parece bien. No creo que vaya a pasar nada.
+---Taeku ---murmuró tomando aliento ---, no puedo más, vamos a descansar.
 
-Con una amplia sonrisa, satisfecha de haber conseguido lo que quería se bajó del coche y se acercó a la puerta de la cafetería. Se asomó con algo de miedo, pero la gente que por ahí pasaba estaba completamente ajena a quien era ella y lo que estaba haciendo allí. El mundo había estado girando a pesar de su problema, ella no era el centro de este lugar en ese momento así que se relajó y se sintió una chica más, alguien que iba a vivir una sencilla experiencia de tomar un café con un chico.
+---Lo has hecho muy bien ---dejó la katana con cuidado sobre el suelo y sonrió dándole una suave palmada en el hombro ---. Te has defendido muy bien aunque no me hayas atacado.
 
-Entró en la cafetería y vio casi al final a un muchacho que no podría evitar conocer. Sabía perfectamente que no era Yonghwa porque no tenía su musculatura, pero eran hermanos y no había ninguna duda. Yongsun tenía el pelo alborotado sobre los ojos y llevaba unas finas gafas plateadas. Estaba mirando el teléfono y ese gesto de concentrado era el mismo que usaba Yonghwa cuando leía algo.
+---Pesan como condenadas ---alzó la katana que tenía entre las manos y la envainó con cuidado ---, además ha sido la primera vez, por favor, no me pidas más.
 
-Algo tímida se acercó al muchacho y carraspeó cuando se colocó a su lado. Había optado por llevar un pantalón vaquero y una camisa blanca algo holgada, hacía bastante calor pero tampoco se sentía cómoda llevando blusas de tirantes fuera de casa ya que el corte del brazo no se había curado del todo.
+---Tae me ha dicho que te haga una pregunta ---soltó Taeku de pronto ---, cito textualmente: Sef, ¿cuántas reuniones hemos tenido hasta ahora?
 
-El chico alzó la cabeza y se miraron a los ojos. Sintió un pequeño flechazo cuando sus miradas se cruzaron, el corazón le latía a toda velocidad contra el pecho y notaba como la herida de su brazo, tapada con la manga de la camisa fina, comenzaba a palpitar y aquello le dolía.
+--¿Y tenías que llamarme así? ---golpeó su pecho con la mano abierta. Le miró molesta y resopló cuando él se encogió de hombros ---. En fin, habré tenido unas ---contó con los dedos ---, ocho reuniones en total, ¿por qué lo dice?
 
-Lo ignoró por completo y esbozó una amplia sonrisa inclinando el cuerpo ligeramente en señal de saludo. El chico se puso en pie, era tan alto, mucho más incluso que Yonghwa, y se inclinó también en un saludo.
+---Las personas con las que te has reunido son las que mandan en sus respectivos grupos ---recogió las katanas con cuidado y las dejó en su lugar ---, una vez los has conocido es momento que conozcas _todo_ de ellos. Sanghun nos ha mandado unos archivos y Tae los tiene en casa así que volvamos.
 
----¿Eres Séfora? ---preguntó con timidez.
+Marcharon a casa y tras una ducha reconfortante y tomarse un relajante muscular se quedó pensando en todas las personas que había visto o conocido en cada una de las reuniones. Por ahora todos le parecían el prototipo de hombre que era Mishima: nada destacable de ellos.
 
----Si, soy yo -- Se acercó a él un poco más y alzó la cabeza para poder verle a los ojos bien. Estiró la mano en señal de saludo ---, mucho gusto, Yongsun.
+Una vez estaba vestida y arreglada para la reunión con Tae, este se presentó abriendo la puerta sin llamar cargado con un montón de papeles que dejó sobre la mesa del salón. Resopló por el peso y se sacudió ambas manos sonriendo satisfecho por el cuidado de aquellos papeles.
 
-Se estrecharon las manos en un cordial saludo y notó un cosquilleo que iba de sus dedos hasta su hombro. Ambos lo notaron ya que apartaron las manos y se miraron algo avergonzados. El rubor en las mejillas del chico le hacía bastante inocente. Su vida había sido mucho más sencilla y cómoda que la de su hermano.
+---Esta información es importante que la tengas. Sanghun me la ha mandado, es todo lo que tienes que saber de los distintos grupos de los barrios de Tokyo y lugares importantes. Las bandas más relevantes ---apoyó la mano sobre el montón de papeles ---, nombres, familia, los datos más necesarios. Es una forma de mantenerlos controlados.
 
-No tardaron en sentarse en las sillas, uno frente a otro, y se quedaron en silencio hasta que una camarera les tomó nota de su pedido, ambos pidieron un capuchino y se rieron por la casualidad.
+---¿Y solo es Sanghun quien tiene esta información? ---Preguntó extrañada pensando en Ten Shio, Mishima y Junho.
 
----Yo... no sé por dónde empezar --mantenía la vista algo gacha.
+---Si -- Asintió de forma rotunda ---. Antes perteneció a tu abuelo y ahora la tenemos nosotros. Bueno, más bien tú.
 
----Bueno ---Séfora se frotó las manos algo nerviosa. Plantada en esa situación no se le ocurrían las mismas cosas que había estado planeando la noche de antes ---, ¿quieres saber cosas de Yonghwa?
+---Vaya ---Se acercó y ojeó por encima la primera carpeta que había en el montón de papeles ---. Quiero que los cinco forméis parte de mí.
 
----¿Por qué está aquí? ---la miró de soslayo.
+---¿Perdona? ---Tae se puso nervioso y se echó hacia atrás.
 
----Por trabajo ---dijo sin pensarlo mucho y tras soltarlo se mordió el labio inferior ---, bueno, tú también estás aquí.
+---Qué mal ha quedado cuando lo he dicho en voz alta, lo siento ---se tapó ligeramente la cara con la mano muy avergonzada cuando cayó en cuenta de lo que había dicho. Volvió a explicarlo ---. Me gustaría que para el resto de personas os vean a vosotros como si fuera yo misma. A mi mismo nivel.
 
----Yo estoy aquí por él ---tomó aire y lo echó poco a poco ---. Me ha costado muchísimo poder dar con él. Ha estado un tiempo fuera del país, eso lo sé.
+---Ahá… ---siguió con gesto extraño.
 
----Su trabajo es algo aburrido, recuerda que ahora mismo está en mi equipo de seguridad ---Le interrumpió llevando la mano sobre su brazo y le miró a los ojos finalmente.
+---Eres tontísimo Tae -- Golpeó su brazo y ambos se echaron a reír ---. Nadie estará nunca más por encima de vosotros en este mundo.
 
-Anteriormente le había dicho en los mensajes que ella había entrado como aprendiz en una compañía mediática y Yongsun estaba en su equipo de seguridad. No era del todo mentira.
+---Eso es muy bonito, Sef, pero...
 
----Háblame de ti ---Séfora se sorprendió a sí misma con esa expresión.
+---Séfora ---alzó un dedo señalándolo con amenaza -- Mi nombre es Séfora.
 
----No se me da bien hablar de mi, la verdad ---notó como se puso ligeramente nervioso y volvió a respirar hondo. No dijo nada más ya que habían traído las bebidas que habían pedido, volvió a retomar una vez se quedaron solos ---.Ya sabes, tengo 21 años, he hecho una pausa en mis estudios universitarios por este viaje ---asintió mientras repetía lo que ya habían hablado por mensajes, a ella no le molestó ---, lo que estudio es turismo, así que esto lo estoy aprovechando para poder aprender mejor ---se encogió ligeramente de hombros.
+---Pero eso no podrá pasar hasta que estés oficialmente al mando, y aún queda tiempo ---ignoró su advertencia y sonrió con mucha calma.
 
----Nada mal, la verdad ---dijo ella mientras bebía pequeños sorbos del café ---, el turismo es muy emocionante, puedes conocer muchas culturas.
+---Llegará, ese momento va a llegar y quien me lleve la contraria se las verá conmigo y mis puños ---elevó ambos puños frente a su rostro y Tae sonrió con cierto aire de ternura ---. Hablo muy en serio ---bajó los brazos y miró los papeles ---. Voy a estudiarlos muy bien.
 
----¿Verdad que si? --de pronto alzó la cabeza y la miró a los ojos con cierta emoción. Se quedó pensativo ---. Oye, Séfora, tengo que decirte algo ---se puso algo nervioso y ella se tensó ---: no eres solo japonesa, ¿verdad? Te lo noto.
+---Confío en que lo harás.
 
-Se miraron a los ojos y Séfora soltó una pequeña risa, se sentía algo aliviada al poder notar que hablar con Yongsun era muy agradable. Las previas conversaciones por mensaje habían ayudado un poco.
+En cuanto Tae se marchó por la puerta Séfora se acomodó en la mesa y se quedó mirando aquella cantidad de papeles --al menos superaba los veinte centímetros de altura-- que contenía una valiosa información. Pero antes de empezar a leer se levantó a la cocina a por algo de queso y un refresco, así que cuando estuvo preparada agarró la primera carpeta que había.
 
----Muy perspicaz ---asintió con una sonrisa ---, mi madre era, bueno, es española ---dijo rápidamente. No sabía nada de su vida y podía inventarlo todo.
+De primeras tenía a un grupo llamado Yamagu. Su líder llevaba poco tiempo al mando por culpa del fallecimiento del anterior, así que se estaba familiarizando con toda la política, había llegado al “poder” tras una lucha interna, lucha literal, se dieron de puñetazos para ver quién se quedaba con la corona. Se decía que era el grupo más numeroso y antiguo de la ciudad, controlaba muchos barrios importantes de Tokyo y eran bastante peligrosos.
 
----Lo sabía ---ijo contento mientras se daba con el puño en la palma abierta, después bebió de su café y se pasó la lengua por el labio superior -- Te lo notaba, había algo. Además, es increíble que hables tan bien el coreano.
+A su vez había información sobre sus familias, sus negocios y los temas más importantes que trataban como banda. Hablaban de quienes eran sus rivales y cómo amenazarles. Todo estaba bien detallado.
 
----Y eso que todos dicen que soy igual que mi padre, él es japonés --dijo con cierto aire divertido mientras se inclinaba hacia delante ---. ¿En qué lo has notado?
+Y así fue leyendo varias: Inaka, Crows y unas cuantas que le costó que se quedara con sus nombres. Pero una en especial me llamó la atención. _Red Dragons_.
 
-Conforme la conversación iba avanzando se iban relajando los dos, habían tomado posturas cómodas en las sillas mientras apuraban el café que ambos habían pedido. Reían de bromas que gastaban, como se habían criado fuera de Japón comentaban las diferencias que existían entre los tres países. Durante poco más de una hora había olvidado por completo su apellido y el motivo por el que había llegado a ese país.
+Era una banda con solo tres miembros. Hasta ahora la más pequeña tenía unos 500 hombres más unos cuantos cientos afiliados. Pero que una banda se considerara como tal con solo tres hombres en sus filas le sorprendió.
 
-El momento mágico y maravilloso se rompió de golpe cuando el teléfono de Séfora comenzó a sonar, y cuando vió el nombre que había en la pantalla se le heló la sangre. Se puso en pie repentinamente y disculpándose con Yongsun salió a la puerta de la cafetería contestando la llamada.
+El líder era Woohyuk y tenía treinta y ocho años. No tenía familia política ni tampoco directa. Lo que le sorprendió fue que su único contacto era Sanghun. Realmente sentía curiosidad por la poca información que había sobre ellos.
 
----¿Qué narices has hecho, Séfora? ---gritó desde el otro lado ---, no puedes pillar un chofer y pasear por Tokio como si fueses una simple turista porque sabes de sobra que no lo eres. Ah, ya te estoy viendo, ni se te ocurra moverte.
+No hablaba de los otros dos miembros en detalle, tan solo estaban escritos sus nombres y el número de teléfono al lado. Seunho y Jaewon. Tenía tanta curiosidad sobre ellos que hizo una videollamada con Taeku.
 
-Colgó el teléfono sin que ella pudiera decir nada más, pero no hacía falta, Taeku daba grandes zancadas acercándose a ella. Estaba rojo de furia mientras apretaba los puños con fuerza, pensaba que podría romper el teléfono que tenía en la mano.
+---¿Qué pasa? ---llevaba un sándwich en la mano y la boca la tenía algo llena de comida.
 
----Taeku calma, estoy bien ---Séfora alzó ambas manos en señal de disculpa ---, el chófer está ahí ---lo señaló y éste saludó desde el coche ---. Le dije que vigilara, no he salido de aquí en todo el tiempo.
+---¿Conoces a los Red Dragons? ---preguntó directamente colocando el móvil sobre la mesa para tener las manos libres y poder ver los papeles ---. Woohyuk, así se llama el líder.
 
----Si lo sé, me ha enviado la ubicación él ---resopló mientras trataba de relajarse ---. ¿Con quién estás?
+---Si, los conozco, a los tres ---asintió y se limpió la boca sentándose en el sofá, mirándola serio desde la pantalla ---, ¿qué pone sobre ellos en los papeles?
 
----No te importa ---dijo rápidamente colocando ambas manos sobre su pecho para que no entrara ---. Solo hoy, quiero ser libre un rato más.
+---Nada ---negó mientras los seguía mirando ---, solo los nombres de ellos y luego que su único contacto es Sanghun.
 
----Bueno ---miró por la ventana y se dio cuenta que un chico les estaba mirando desde una mesa del fondo ---. Pero si es... ---volvió a mirarla apretando los labios ---. Sabes que yo sé absolutamente todo de mis hermanos, ¿verdad? ---ella asintió con la cabeza sabiendo perfectamente de qué estaba hablando ---, sé quién es esa persona. Lleva cuidado, no va a ser agradable si Yonghwa se entera.
+---Ellos son una grupo especial ---se quedó pensando mientras se pasaba la mano por la frente ---, como explicarlo...
 
----Es mi vida personal ---dijo mucho más molesta y le empujó ---, Taeku por favor, dos horas más. Prometo que no lo voy a involucrar con vosotros.
+---Como nosotros contigo, pero para Sanghun ---Hyungmin asomó la cabeza en la pantalla ---, su escuadrón especial.
 
-Alzó las manos rendido y asintió con la cabeza, dio unos pasos hacia atrás dejando espacio. Miró dentro de la cafetería y cruzó miradas con Yongsun pero giró inmediatamente la cabeza molesto para ir directo al coche donde el chófer estaba esperando, apoyándose en este y comenzando una conversación como si no pasara nada.
+---No les llames así, que tienes ¿cinco años? ---Taeku negó con la cabeza.
 
-Séfora sabía que se quedaría allí hasta que saliera de la cafetería, así que se resignó y volvió hacia el local. La postura de Yongsun había cambiado y estaba algo incómodo cuando ella se sentó frente a él.
+---Ellos no suponen una amenaza ---continuó, ignorando el comentario de Taeku ---, no tienes que preocuparte de nada.
 
----¿Es tu hermano o es tu... novio? ---dijo con una ligera pausa.
+---Pero me llama la atención que estén puestos en equivalencia con las otras bandas ---dijo mientras enseñaba todos los papeles, de pronto Taeku empezó a hacer gestos de que no enfocara a la mesa. Le hizo caso ---. ¿Son peligrosos para mí?
 
----Ah, él ---señaló por la ventana riendo nerviosa ya que necesitaba una excusa, realmente se había tenido que ver extraño desde fuera ---, es mi hermano mayor, demasiado protector.
+---Si no le haces daño a Sanghun no ---dijo Taeku tranquilo ---. No te preocupes de más por ellos, ya los conocerás. Todo a su tiempo.
 
-Fue automático. Parecía que Yongsun había estado guardando el aire en el pecho y cuando dijo aquello el aire salió de golpe por su nariz en un resoplido, esbozando una leve sonrisa.
+La forma tranquila de hablar de Taeku hacía que Séfora se relajara y perdiera toda preocupación sobre aquellos tres integrantes de los _Red Dragons_. Aún así le intimidaba que respondiera únicamente con el abogado.
 
----Dile que estás en buenas manos, que no se enfade.
+Colgó la llamada y se acomodó en la silla en la que estaba, pero una sombra a su espalda hizo que se le pusiera el vello de punta por lo que se giró con rapidez y fue a la cocina. Agarró una pala de cocinar de madera con fuerza en la mano y sigilosa fue al dormitorio donde había visto aquella sombra.
 
-Ambos rieron mucho más tranquilos. La conversación danzaba de un lado a otro: sus gustos musicales, sus películas favoritas, hasta sus escritores favoritos. No coincidían en todas las cosas pero eso le gustó a Séfora, poder conocer más profundamente a alguien que debatía sus gustos sin llegar a discutir ni imponer su idea era algo agradable.
+Asomó ligeramente la cabeza dentro del dormitorio en guardia, preparada para atacar en cuanto pillara al intruso, pero una voz masculina la sorprendió al otro lado de donde estaba asomada.
 
-Después de un rato y unos cuantos mensajes insistentes por parte de Taeku al móvil de Séfora terminaron aquella cita. Ambos sabían que volverían a quedar, habían preparado otra cita sin fecha para cuando ella pudiera escaquearse de casa, sin dar mucha más explicación, y quedar con él de nuevo.
+---No eres nada silenciosa, _princesita_ ---Keiken estaba apoyado en la pared. Ella se giró para amenazarle con lo que llevaba en la mano, pero él la ignoró y se echó directamente en la cama ---. Es tan cómoda como la recordaba. Un momento, ¿piensas atacarme con un palo? 
 
-Se despidieron en la puerta y ella se montó en el coche en el que había venido que estaba a un lado de la carretera con el chófer tan solo. Taeku había vuelto a casa. Durante el trayecto de vuelta a casa estaba pensando en lo feliz que había sido, en lo normal que se sentía al quedar con alguien que no tenía nada que ver con la organización criminal a la que pertenecía.
+---Si ---frunció el ceño mirando su mano y alzó el palo. Él se echó a reír ---. Deja de entrar aquí de esta manera, ¿cómo lo haces?
 
-Cuando llegó a casa y subió por las escaleras, casi corriendo hasta su piso, se encontró con Taeku y Jongtae en la puerta de este con rostros serios.
+---Si te lo dijera no sería una sorpresa ---se incorporó y se puso en pie. Llevaba la ropa oscura como siempre, se le veían todos los tatuajes, pero el pelo lo tenía algo húmedo y sobre la cara ---. Necesito algo que tienes y me lo vas a dar por las buenas.
 
----Tú eres tonta ---Tae le recriminó bastante molesto ---, después de los sustos que hemos llevado te vas sola, que nos hemos dado cuenta, no somos tontos. Ya te lo aseguro ---la señaló con un dedo acusatorio.
+---Si claro, y si quieres en una bandeja de plata ---resopló negando y se puso bloqueando la puerta que daba directa al salón suponiendo a lo que se refería.
 
-No pudo evitar reír entre dientes mientras Jongtae estaba echándole la bronca por haberse ido de casa sin avisar. El problema era que cuanto más divertida parecía, Taeku estaba mucho más molesto.
+---No te voy a decir que no si me insistes tanto ---su sonrisa fue amenazadora y ella sintió el peligro.
 
----¿Qué te divierte?
+---Ni de broma, fuera de mi casa ---señaló la ventana abierta por donde imaginaba que habría entrado. Aunque lo que le extrañó fuese que entrase con facilidad teniendo seguridad en cada rincón. Imaginó que estaba abierta para disimular su entrada ---. No voy a darte nada.
 
----Es la primera vez que me siento así ---se llevó la mano al pecho y respiró hondo. El corazón le latía con fuerza contra la mano ---, los dos estáis molestos conmigo pero por preocupación.
+---Bueno ---sacó del bolsillo una pequeña navaja y comenzó a jugar con ella entre los dedos con una agilidad sorprendente. Tenía cicatrices en los dedos pero dudaba que fuera de jugar de esa manera ---, iré por las malas.
 
----Pues claro, Séfora, qué esperabas ---dijo Jongtae enfadado por su felicidad. Ella no pasó por alto que dijera su nombre completo y pudo notar su frustración.
+---No voy a ponértelo fácil ---se puso en la misma postura que había tomado esa misma mañana con la katana, solo que ahora tenía una pala de cocina en la mano.
 
----Si es que aún eres una adolescente, mira como disfruta haciendo sufrir a los demás ---Taeku se cruzó de brazos ---. Deja de ver a Yongsun.
+Hubo un momento de tensión entre los dos. Unos segundos valiosos en los que Séfora analizó la posición del cuerpo de Keiken. Él no estaba con la misma postura que Taeku había estado esa mañana, parecía entusiasmado de verla en guardia. Él fue el primero en atacar. No fue a ningún punto vital para matarla, pero sí intentó intimidarla para que se apartara de la puerta y así poder entrar al salón, pero para su sorpresa ella no se achantó y le golpeó con el palo en el brazo.
 
----¿Qué? ---dijo de pronto y la sonrisa se esfumó.
+Se le escapó una risa sádica cuando ella le había golpeado y se pasó la lengua por los labios. Hizo el amago de atacarla de la misma manera, pero reculó haciendo que ella pasara por delante de él para así poder estar dentro del salón, pero no contó con la nueva agilidad adquirida de Séfora, quien agarró la camiseta de él dando un fuerte tirón para sí misma y saltar para de nuevo bloquear que llegara a la mesa del salón.
 
-No añadieron mucho más. Taeku abrió la puerta del apartamento y los tres entraron sentándose en los sofás mientras los dos muchachos buscaban como explicar la situación a la chica, la cual parecía demasiado adolescente e insensata en ese momento.
+Parecía molesto, así que giró la navaja en la mano para golpear con el mango de esta el costado de la chica, cuando esta se dobló de dolor y soltó un grito asestó otro golpe, preparándose para darle con la parte afilada en el pecho. No quería matarla, pero se había calentado de más al ver como ella estaba respondiendo.
 
----Escucha Sef, no es algo que tienes que tomarte a la ligera, es el hermano de Yonghwa y es un tema muy delicado.
+Séfora se fijó en el movimiento que había hecho con la mano y, a pesar del dolor que tenía en las costillas, alzó los brazos en cruz para protegerse de la navaja que cortó su antebrazo dejando una linea de sangre en el suelo. Se echó hacia atrás y abrió los brazos de nuevo para proteger con todo su cuerpo la mesa donde estaban los papeles.
 
----Digamos que si no tienen contacto es porque Yonghwa no quiere tenerlo ---añadió Taeku asintiendo ---. Hace tiempo me avisaron que su madre le estaba buscando por la empresa e investigué a esa señora.
+Estaba respirando con fuerza cuando de pronto se escuchó un jaleo en el piso superior y Keiken alzó la cabeza maldiciendo entre mil palabrotas por lo bajo al escuchar ruido en la escalera.
 
----Pero lo que leí... ---comenzó a decir y al ver sus caras de sorpresa se quedó un momento callada. El gesto de Taeku no era agradable así que decidió seguir hablando ---. Encontré una carta dirigida a Yonghwa, apareció en mi ventana hace unas semanas donde su madre le pedía que conociera a su hermano pequeño y le explicaba algunas cosas. No tiene malas intenciones.
+---Los cotillas ---volvió la mirada hacia Séfora y guardó el cuchillo caminando hacia atrás sin apartar la mirada de sus ojos ---. Has mejorado mucho, tienes buenos reflejos. Taeku es buen entrenador ---se acercó al dormitorio y se llevó el índice y el dedo corazón a la frente para despedirse de ella ---. Nos volveremos a ver.
 
----Si no es por las malas intenciones ---Jongtae suspiró negando con la cabeza ---, es el daño que él a sufrido a causa de esa familia. Sef, nosotros estamos juntos desde bien pequeños y de todos nosotros Yonghwa es el más pasional, las emociones fuertes le llegan mucho más de lo normal y puede llegar a perder el control de sí mismo.
-
----Pues... -- Se quedó sin argumentos, pero había conectado con él de una manera diferente de todas las personas que había conocido hasta ahora, así que se cruzó de brazos negando con la cabeza ---. No, me niego, voy a seguir viéndole.
-
----Tú misma con la decisión ---dijo Taeku ---, estás avisada, espero que Yonghwa no se entere.
-
----Y si se entera no pasará nada porque hablaré con él de la situación y seguro que lo entiende ---se había hinchado de orgullo creyendo en su decisión, ignorando las advertencias de los otros dos.
-
-Ambos chicos se miraron y negaron con la cabeza. Comprendían que no podían discutir con ella, ya que se había obstinado en seguir con esa idea, por lo que la dejaron a sus anchas en esa decisión.
-
-Cuando al fin se quedó sola en el piso fue directa a la cama, mandando mensajes a Yongsun con una tonta sonrisa en la cara. Era la primera vez que un chico le correspondía en esos pequeños sentimientos. En el pasado ya había experimentado el ridículo y el rechazo, y a pesar del miedo que le daba relacionarse con alguien nuevo, al estar fuera de su zona de confort, se dio una oportunidad más de conocerse y conocer gente.
-
-En su cabeza se había montado una película en como Yonghwa agradecía que ella intercediera entre ambos hermanos y se ganaba la confianza de ambos, haciendo que Yongsun entrara en su mundo y fuera su refugio ante las presiones que Sanghun y Ten Shio le provocaban.
+Se perdió de su vista tras saltar por la ventana y ella soltó un fuerte gemido de dolor, llevándose la mano al costado, le saldría un buen cardenal donde él le había golpeado.

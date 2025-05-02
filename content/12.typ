@@ -1,101 +1,151 @@
 = Capítulo 12
 
-El día de la fiesta había llegado.
+Pasaron algunos días en las que solo iba a reuniones. El que Keiken fuera pasando también a reclutar gente junto con Mina les estaba poniendo las cosas muy complicadas. Muchos estaban a favor de que la chica coreana fuera la que estuviera al mando, aunque en el momento en el que se nombraba a Sanghun muchos se achantaban y reculaban ante la idea de Mina.
 
-Esa semana, a pesar de toda la agenda programada que tenía, pudo encontrar un hueco para salir con Hyungmin de compras, buscar una ropa adecuada para la dichosa fiesta. El problema era que por más que miraba no veía nada que quedara acorde con su personalidad.
+Una tarde, antes del fin de semana estaba Séfora leyendo un libro mientras comía unos snack cuando la puerta se abrió poco a poco y se vio el cabello rubio y la sonrisa vacilona de Katashi. Entró al piso y sacó un sobre del bolsillo del pantalón, dándoselo a la chica.
 
-Así que fueron a una tienda para hombres para que Hyungmin se probara diferentes trajes, a ella le llamó la atención un conjunto de pantalón y chaqueta de color negro, fino y ajustado, así que sin decir mucho entró en el probador al lado de su amigo y se lo puso saliendo a la misma vez que él.
+---Estas oficialmente invitada al gran día ---ella lo cogió sorprendida ---. Va, ábrelo, no lo mires así.
 
-Ambos se miraron y el chico se quedó un momento con la boca abierta y tragó saliva para disimular su gesto, tosió un poco y se ajustó la chaqueta de color gris que llevaba puesta para abotonar solo uno de los botones. Séfora se había puesto la chaqueta abotonada sin llevar una camisa debajo y dejaba ver su escote sin ser demasiado expuesto, por lo que quedaba mejor de lo que había imaginado.
+---Vale ---asintió. Sacó el papel de dentro y leyó que estaba oficialmente invitada a un súper cumpleaños ---. ¿Cuántos años tienes para ir repartiendo invitaciones así?
 
-Hyungmin no se había abrochado la camisa bien y se le veía por una parte del pecho un tatuaje, la misma forma que anteriormente le había visto a Sanghun, pero en tonos grises. En ese momento sintió mucha curiosidad por preguntarle a cerca de ese tatuaje, pero él se adelantó al hablar.
+---La edad es solo un número ---resopló molesto y entró al apartamento en busca de algo para beber en la nevera ---. ¿No tienes cerveza?
 
----Vaya, Séfora, me dejas sin palabras ---dijo mirándola con los ojos bien abiertos.
+---No me gusta ---se encogió de hombros.
 
-Ella se sonrojó un poco al escucharle y se colocó a su lado ajustándole la camisa para que se viera algo más abierta, quedando estupendo con la chaqueta suelta. Él a su vez le ajustó a la chica el cuello de la chaqueta y se miraron al espejo juntos.
+---A la próxima traeré porque vaya anfitriona ---se sentó en el sofá y cruzó las piernas ---. No es una fiesta de cumpleaños como las de los niños, es obvio. Es en _Genius Tokio club_, he reservado una sala privada con dj exclusivo, bebida incluida y solo lo mejor de lo mejor ---se señaló el pecho y movió las cejas divertido ---. Es hora que vivas una experiencia digna de una noche en Japón.
 
-No parecía ella misma. Hacía dos años no se hubiera imaginado que estaría en Japón junto a unos chicos --que eran como sus hermanos cuidándola-- yendo a una fiesta prestigiosa con mucha gente importante.
+---Oh, pues si, algo de diversión no estaría mal ---admitió mientras asimilaba la información.
 
-Ambos decidieron llevarse la ropa que habían escogido, así que después de ver las tiendas de ropa fueron a la peluquería para aprovechar el momento y hacer un gran cambio. Habían estado hablando de la nueva imagen que ella tendría que dar, dejar de ser adolescente para convertirse en un adulto.
+---El club pertenece a la agencia por lo que todos nosotros somos unos _malditos Vips de la hostia_, así que vamos a disfrutar como si no hubiera un mañana ---alzó ambos brazos muy animado ---. Y no tienes que preocuparte, los chicos irán y te tendrán controlada.
 
-Se cortó el pelo por debajo del hombro, lo tenía más largo de media espalda, se retocó el flequillo para dejarlo recto, dejándose este suelto ya que lo tenía lacio y le quedaba bastante bien ese peinado.
+---¿Gracias? ---Séfora se sintió como si fuese una niña pequeña a la que controlar y se llevó la mano al pelo algo incómoda.
 
-Volvieron al piso para arreglarse ambos y ya juntarse los seis para ir juntos. Todos llevaban traje de chaqueta, cada uno de un estilo y de un color, clásicos pero con estilo.
+---No lo digo a malas, digo que podrás estar tranquila que no se colará nadie que no tenga que estar o que quiera hacerte daño ---dijo para calmarla ---. En la invitación pone fecha y hora. No hagas planes para ese día.
 
-Dos coches llegaron a la puerta del local y de ahí se bajaron los seis, causando sensación ante las cámaras que ahí estaban, fotografiando a los famosos que iban entrando al sitio. Séfora se sentía fuera de lugar, pero se acercó a Jongtae algo intimidada y se pararon frente al de seguridad, quien les entregó a todos una pulsera especial con la que tendrían acceso a todas las salas y bebidas.
+Se puso en pie y movió la mano en señal de despedida, yendo al piso superior para hablar con los chicos. Séfora se quedó mirando la invitación y la analizó. Era la primera vez que estaba oficialmente invitada a una fiesta y más de ese calibre, por lo que empezó a sentirse nerviosa. El papel donde estaba escrito su nombre con su nuevo apellido era de una calidad fantástica, se notaba que quería hacer una fiesta por todo lo alto, dar lo mejor para lo mejor. Había una letra pequeña bajo su nombre en el que decía que toda consumición estaba incluida en esa entrada, por lo que tomase lo que tomase para ella era gratis.
 
----Aquí no se pueden llevar armas, ¿no? ---Séfora se colocó bien la parte de atrás de la chaqueta.
+Una parte de ella estaba emocionada por la fiesta en si, por poder disfrutar de algo tan común como un club nocturno, un baile en una discoteca y bebida ilimitada. Otra parte estaba asustada porque nunca antes había asistido a un evento de ese tipo y tenía miedo del protocolo a seguir: la vestimenta y el comportamiento.
 
----Bueno, no deberíamos ---Jongtae se encogió de hombros y le guiñó un ojo con diversión.
+---¡Séfora! ---Hyungmin bajó rápidamente y entró a la casa moviendo el sobre de un lado para otro ---. ¡Tu primera fiesta oficial!
 
-Séfora era consciente que sus compañeros llevaban armas escondidas, a pesar que nada más entrar había un cartel que en pequeño ponía que las armas estaban prohibidas.
+---Si, aun no me lo creo -- Se echó a reír viendo como movía el sobre ---. Oh, es igual que la mía, somos unos Vips.
 
-Katashi dio un gran discurso de bienvenida a todos sus invitados, animó a que bebieran y disfrutaran sin pensar en las consecuencias de sus acciones, ese día había que actuar sin remordimiento.
+---Está claro, tenemos calidad ---esbozó una amplia sonrisa y colocó las manos sobre sus hombros ---. Te vamos a poner al día de cómo son las fiestas aquí.
 
----Qué bien se le da decir eso ---resopló Taeku con una copa en la mano ---, siempre actúa de forma egoísta.
+---¿Son diferentes que las de España? ---se extrañó, ya que creía que eso era algo internacional.
 
-Jongtae le fue presentando a Séfora algunos de los invitados que aún no conocía. Habían bastantes actores y modelos de la empresa, también algún que otro grupo musical que les deleitaba con música en directo antes de dar paso a un dj que amenizara la noche.
+---Bueno, claro ---ladeó la cabeza ---. Es en un club lujoso donde el código de vestimenta es importante, además va a ir la élite de los famosos y empresarios.
 
-Entre todas esas personas estaba Ten Shio hablando con varios hombres trajeados y que parecían importantes, así que cuando se percató de la chica, que llevaba una copa en la mano, se acercó a ella.
+---¿Cuánta gente va a ir? ---empezó a tener miedo sobre lo que se iba a encontrar en aquella fiesta.
 
----Estás impresionante ---dijo satisfecho mientras la miraba. Jongtae se había alejado para hablar con un grupo de chicas que habían captado su atención, por lo que Taeku poco a poco se acercó a la joven hasta estar a su lado.
+---Conociendo a Katashi ---Hyungmin se quedó pensativo y se echó a reír ---. Tranquila, irá mucha gente que ya conoces.
 
----Gracias ---inclinó ligeramente la cabeza con una sonrisa.
+---Hablando del código de vestimenta ---dijo algo nerviosa al respecto ---, no tengo ropa adecuada.
 
-Cada uno de los chicos se iban turnando para estar un rato con Séfora, le iban presentando a los que ellos consideraban más relevantes para que ella conociera. No tardó mucho en congeniar con algunas modelos más jóvenes ya que estaban más cerca en edad.
+---Como que no ---ladeó ligeramente la cabeza y luego asintió ---. Ah, vale, entiendo. Tranquila, iremos a comprar algo.
 
-Las conversaciones que iba escuchando ella de los diversos grupos oscilaban entre las compras de acciones de alguna empresa o inversiones de viviendas, o también de que había alguien de una empresa rival que hacía que tuviera mala fama esa empresa porque esa persona era un fiestero o cosas así. Tenía que admitir que no solo la prensa eran arpías a la hora de criticar, sino los mismos famosos cuando se sentían cómodos en su entorno podían soltar perlas.
+Tras hablar del tipo de ropa que irían a comprar en los próximos días, Hyungmin se marchó de nuevo dejando a Séfora tranquila, ya era hora de descansar porque por la mañana madrugaba gracias a Taeku y su entrenamiento.
 
-Por suerte eso fue el diez por ciento de las conversaciones, el resto era agradable de escuchar o de participar. A veces Séfora se sentía fuera de lugar porque había crecido en un mundo distinto.
+Se echó en la cama con el móvil en la mano para mandarle algún mensaje a Yongsun de buenas noches y se perdió en una conversación escrita con él, sin perder esa sonrisa que solo el chico sabía sacarle. De pronto el teléfono se puso en negro y salió un número desconocido haciendo una llamada. Respondió con algo de miedo e intriga.
 
----En realidad esta vida es algo hipócrita ---Taeku respiró profundamente sentándose en la barra del local viendo como la chica agarraba una segunda copa de un líquido dorado y bebía un poco ---. Sabes que no deberías beber alcohol, ¿verdad?
+---¿Diga?
 
----No me mires ---colocó una mano sobre sus ojos y siguió bebiendo ---. Me apetece vivir esta experiencia con mi amigo.
+---Muy buenas tardes, _princesita_ ---escuchó la voz de Keiken por el altavoz ---, veo que habéis subido la seguridad en la casa.
 
----Pero no te pases ---puso los ojos en blanco y ella le golpeó en el hombro suave con el propio ---. Sé que no te hubieras imaginado nunca acabar así de esta manera ---comenzó a mover su copa hablando mientras la miraba ---, y que tal vez tus expectativas de futuro te iban a llevar por un camino completamente diferente, pero espero que lo que estas viviendo sea algo bueno, al fin y al cabo es una vida compleja, pero no es tan mala si encuentras a las personas adecuadas.
+---Te has colado demasiadas veces ---dijo molesta al saber quién era y resopló fuerte ---, así que hay que tomar medidas -- Escuchó su risa y sintió mucha rabia. La voz de Keiken sonaba tan aburrida como siempre y esa risa parecía más bien molesta ---. Estás jugando con fuego.
 
----Bueno ---dejó su copa sobre la barra y le miró directamente a los ojos ---, no es mala, no ---comentó y sonrió ---, ya te digo que a pesar de las malas consecuencias, estoy conociendo gente que merece la pena que se queden a mi lado.
+---¿En serio? ---se quedó pensativo ---. Me gusta jugar y si es contigo más ---chasqueó la lengua y comentó algo de fondo con alguien ---. Bueno, la verdad es que me han dicho que esta semana has conocido a alguien que te ha rechazado.
 
----Nada de sentimentalismos ---Katashi se colocó entre los dos rodeando sus hombros con los brazos. Se le notaba que estaba algo borracho ---. Vamos a bailar, vamos a disfrutar. Mañana llora por la resaca, pero ahora bebe y baila.
+---Las noticias vuelan ---se giró para quedar boca arriba mirando el techo aún con el teléfono en la oreja.
 
----Es menor.
+---Te comento, espero que estés cómoda, yo estoy echado en la cama, boca arriba, mirando el ventilador del techo ---dijo con tranquilidad ---. A lo que voy, _princesita_, ya tenemos a alguien que ocupe tu lugar.
 
----Y tu jefa, que te _jodan_ ---Katashi le sacó el dedo corazón y la agarró del brazo para arrastrarle a la zona de baile.
+---Como que mi lugar ---cortó lo que estaba diciendo de forma brusca, dándole a entender lo que le molestaba lo que él estaba insinuando ---. No estarás hablando de Mina.
 
-Agarró la copa antes de que el rubio la arrastrara a la pista de baile y le lanzó un beso a Taeku, el cual negó con la cabeza rendido. Séfora no tenía experiencia bailando en el centro de la pista, pero lo que hizo fue imitar a los que a su alrededor bailaban. El dj estaba poniendo un buen repertorio de la música actual con bastante marcha, así que no había un estilo de baile, solo dejarse llevar y disfrutar.
+---Justo, de ella hablo ---afirmó en una risa suave ---, ella ha trabajado duro, todos la conocen y ha crecido con nosotros.
 
-A pesar de estar viviendo una experiencia bastante nueva para ella, algo que le marcaría en su vida sin duda, hubiera preferido estar en una reunión con Ten Shio en un despacho. Ese tipo de situaciones sabía manejarlas mejor que la que estaba viviendo en ese momento, aún así confió en Katashi y en los grados de alcohol de las bebidas que le servían.
+---Como que ha crecido con vosotros ---aquello le sorprendió un poco.
 
-Finalmente acabó bebiendo más de lo que había querido. Perdió la noción del tiempo y de las personas que estaban a su alrededor, pero algo que podía agradecer es que descubrió que era una borracha simpática y que no perdía el control de lo que decía o hacía, por lo que se comportaba dentro de lo que cabía, bastante bien.
+---Te voy a contar una historia, ¿sigues cómoda? Bueno, voy a ello ---habló con rapidez y Séfora tuvo que concentrarse en lo que decía ---: hace unos cuantos años unas familias le debían la vida a un hombre, por lo que tuvieron una deuda eterna con él. Ese hombre creó una pequeña ciudad donde construyó unas casas para esas familias y así comenzaron a crecer niños, y esos niños fueron creciendo para hacer sus propias familias. Se creó un imperio alrededor de ese hombre y todos le trataban como si fuera el mismísimo emperador. _Princesita_ ¿sigues la historia?
 
-A la mañana siguiente maldijo la fiesta y cada copa que se había bebido. Todo en su piso estaba oscuro, vivía con la iluminación justa en ese momento porque cualquier cosa o ruido hacía que su cabeza estallase.
+---Te escucho, sigo aquí.
 
-Decidió que para despejarse lo mejor era darse una ducha relajante y caliente así que la preparó. Estuvo pensando mejor en todos los invitados que fueron a la fiesta y se percató que Sanghun no había asistido. Ni él ni muchas personas que ella creía que eran importantes para la organización de los líderes que había subrayado.
+---Bien ---se aclaró la garganta ---. De esas diversas familias, que habían de varias nacionalidades asiáticas, nacieron siete niños que no se llevaban mucha edad entre ellos, por lo que hacían cosas juntos. Fueron creciendo y educados en una estricta educación tradicional japonesa muy fuerte. A pesar que en su mayoría eran de familias extranjeras lo aceptaron todo, porque el hijo del primer líder que existió y heredó todo quiso que así fuera. Esos niños dejaron de tener infancia. Aprendieron a luchar con espada, a defenderse, a esconderse y atacar de sorpresa. También aprendieron a disparar con armas de fuego reales... y no solo ellos, sino que todos los jóvenes fueron instruidos dentro de esa vida ---continuó hablando, Séfora iba asociando todo lo que le decía con lo que había ido aprendiendo del comportamiento de sus compañeros y los comentarios que hacían a cerca de su _familia_ ---. Conclusión: tú has crecido en un país extranjero y Mina ha aguantado todo lo que estás conociendo ahora en versión reducida.
 
-Tras la ducha se colocó el albornoz y se dejó el pelo suelto. Se hizo un café y con una aspirina para la jaqueca se sentó en la mesita que tenía en el salón con todos los papeles importantes que había estado estudiando hasta ese momento. Jongtae volvió a confiar en bajarlos a su piso. Sí que tenía resaca y quería morirse, pero eso no era excusa para no trabajar.
+---Pero Mina no es la heredera directa. Mina no tiene la sangre Watashime ---dijo ya con irritación ---. No me importa su línea de sangre, no es nadie para mí.
 
-Eso si, había sentenciado que no volvería a beber tanto otra vez, su cabeza no toleraría más días de resaca como la que llevaba encima en ese momento.
+---Ay, _princesita_, que bien suena eso que me has dicho, es música para mis oídos ---dijo con sorna ---. Lucha por lo que es tuyo por nacimiento. No te lo voy a dejar fácil.
 
-De pronto la puerta del piso se abrió asustando a Séfora, que alzó la cabeza de golpe. Tenía la costumbre de no echar con llave esa puerta porque se sentía mucho más segura cuando ellos podían acceder a su casa en cualquier emergencia. Pero ver a Yonghwa con un rostro serio y una mirada voraz la hizo asustarse muchísimo.
+---¿Qué es lo que te impide aceptarme? ---preguntó ya exaltada.
 
----Dime que es mentira ---dijo con tono siniestro ---, que no has contactado con él.
+---Ay _princesita_, han pasado muchas cosas en esta vida de mierda como para aceptar que tú dirijas este imperio ---quería sonar tranquilo pero empezaba notarse molestia en su voz ---. Vuelve a España y vive tu vida tranquila con tu familia. Ah, espera, no puedes, no tienes a nadie.
 
-Fue directo a coger el teléfono de ella, pero pudo evitar que lo agarrara con cierta torpeza. Le miró perpleja.
+Cuando ella iba a responder con enfado a su comentario él ya había colgado. En ese comentario había ido a hacer daño, sabiendo lo que ella había sufrido con la muerte de sus abuelos, además que ya sospechaba que él estaba detrás de eso, aquello lo dejaba más claro.
 
----¿De qué estás hablando? ---se ajustó el albornoz sobre el cuello y se inclinó hacia atrás protegiendo el teléfono contra sí misma.
+No dudó ni un segundo en llamar a Sanghun, se sentó en la cama y suspiró notando como el cuerpo le estaba temblando, no sabía si por la rabia que sentía, por los nervios de la conversación o por lo último que Keiken le había dicho.
 
----De Yongsun ---dijo seco, su voz era completamente diferente de la que ella estaba acostumbrada ---, estoy hablando de ese tipo ---se quedó en silencio, perpleja sin saber muy bien qué decir al respecto ---. Vale, tu silencio te delata. ¿Por qué has contactado con él, de dónde has sacado la información?
+La respuesta de Sanghun fue corta y sencilla.
 
----Bueno ---titubeó un poco, no sabía por donde empezar a hablar. En su cabeza lo había estado planeando perfectamente, pero aquello se acababa de derrumbar ---. ¿Quién te lo ha dicho?
+---Ven a mi casa ya.
 
----Qué más da quién me lo ha dicho ---gruñó apretando con fuerza los labios, su ceño se frunció y pudo ver las venas marcadas por su frente y cuello ---. Has actuado a mi espalda sobre algo que solo a mí ---se llevó la mano al pecho en un golpe seco ---, me concierne. Es que tienes que meter las narices en absolutamente todo y controlar todo.
+Séfora subió al piso de los chicos y se encontró a Hyungmin jugando a un videojuego, se extrañó al verla y le explicó lo que había pasado. Apresuradamente apareció Jongtae por las escaleras, había escuchado la conversación y se colocó una chaqueta.
 
----¿De qué estás hablando? ---aquel último comentario le hizo bastante daño. Vió a su espalda como los demás chicos estaban en la puerta con gesto de disculpa, pero ninguno se acercó a ellos. Le tenía acorralada contra la encimera de la cocina ---. Yo no tengo que controlar nada.
+---Yo te llevo, no te preocupes Hyungmin, quédate despierto hasta que lleguemos.
 
----¿Y el ir a buscarle?, ¿hablar con él? ---casi gritaba cada palabra ---, ¿quién te crees que eres para meterte en mi vida privada?. Te estoy regalando mi presente, deja mi pasado en su lugar y no indagues más de lo que debes. No te lo permito por más que seas quién eres. No tienes derecho.
+Bajaron hasta el coche y se montaron. Séfora le contó con más detalle la conversación que había tenido con Keiken. Se le había pasado por la cabeza que todos comenzaran a pensaran como él y se unieran para acabar con su vida. En realidad nadie le debía lealtad a ella y podrían deshacerse de su cuerpo que nadie la estaría buscando. 
 
----Yonghwa yo...
+Comenzó a llover a mitad del camino. La lluvia mezclada con las luces nocturnas de la ciudad hizo que Séfora se sintiera maravillada de poder verlo, las calles seguían llenas de jóvenes que iban de fiesta, adultos que iban de bares o que tal vez salían tarde del trabajo, pero nadie corría, simplemente caminaban rápido.
 
----No. Para mí esto termina aquí ---sentenció y golpeó la mesa con la mano abierta ---. Lo nuestro se queda en una relación de trabajo. El empleado y la jefa. No te debo absolutamente nada más.
+Llegaron a la puerta del recinto de la casa de Sanghun y esta se abrió para que pudieran meter el coche y dejarlo en la puerta principal de la vivienda, se bajaron del coche dejando este ahí y entraron en la casa, donde la chica que los recibió la vez anterior estaba esperándoles.
 
-Dio meda vuelta y atravesó la puerta chocando con el hombro de Jongtae, que no se quejó ante el choque. Séfora estaba en shock y la mirada de Taeku y Jongtae no la ayudaron para nada en esa situación, sabía que había sobrepasado una línea que ni tendría que haber mirado.
+Esta vez no fueron a su despacho, sino que fueron a una habitación con sillones y luz tenue. Sanghun estaba sentado en uno de los sillones con una copa en la mano, llevaba un yukata azul oscuro puesto y tenía las piernas cruzadas, iba descalzo. En cuanto les vio entrar esbozó una sonrisa.
+
+---Bienvenidos, poneos cómodos ---señaló los demás sillones y el otro sofá que había en la estancia.
+
+---Gracias ---Séfora se sentó en uno de los sillones algo nerviosa, rechazando la bebida que le estaba ofreciendo la muchacha. Miró a Sanghun a los ojos.
+
+---Todo lo que te ha contado es verdad, Séfora. Muchas familias crecieron en aquella mini ciudad, era el sueño del abuelo de tu abuelo ---comenzó a decir con tranquilidad. Se le veía ligeramente el pecho a través de la apertura de aquel yukata y asomaba por un lado un colorido tatuaje ---, tenía idealizado que si todos crecían bajo los mismos principios y enseñanzas podría crear... como decirlo, una sociedad perfecta para su imperio de poder.
+
+---¿Tú también has crecido ahí?
+
+---Todos ---dijo muy relajado ---. Todos a los que conozcas han crecido ahí o han sido adoptados por deudas o simplemente por caridad. Por decirlo de alguna manera ---dejó la copa sobre la mesa y al moverse se pudo ver que su tatuaje era un dragón que subía y se perdía por su hombro ---. Aquello aguantó muy bien muchos años, hasta que tu padre creció y se dio cuenta que quería una vida completamente distinta, así que viajó a Europa y... esa historia te la sabes.
+
+---Si, me dejó una carta ---apretó los labios y se miró las manos ---. Pero también me comentó que mi abuelo nunca supo de mí.
+
+---Eso es lo que tu padre creía, tu abuelo nunca dejó de tenerle controlado. Era su único hijo, tu abuela murió muy joven antes de darle otro hijo y no quiso volver a casarse. La verdad es que era un hombre muy sentimental en ese aspecto, lo admiro ---se echó a reír y ella alzó la cabeza para mirarle ---. Por eso pudimos sacarte a tiempo de Madrid, porque sabíamos de ti en cada momento. Cuando tu padre desapareció...
+
+---Fue asesinado ---le cortó, pero aquello no pareció importarle ---. Llevo tiempo queriendo saber qué paso, por qué no dice nadie nada a cerca de eso.
+
+---Porque es complicado ---se acomodó el pelo con la mano apoyando la espalda en el sofá de nuevo ---. Fue desheredado cuando volvió con tu madre, así que aprovechó en vivir su vida con vosotras dos allí en España hasta que bueno, lo _asesinaron_ ---en la última palabra añadió unas comillas con los dedos ---. Yo era joven en aquella época y desde entonces ese tema se convirtió en tabú. Nadie podía hablar de ello. Tu abuelo cambió el testamento y cuando descubrí que lo había puesto todo a tu nombre quise disuadirlo pero era de ideas firmes.
+
+---Pero eso te deja a ti…
+
+---A mi me deja tranquilo a tu lado mientras tú eres el rostro visible de esto ---la señaló con la mano abierta y una tranquila sonrisa ---. No te pasará nada malo, voy a cuidarte como espero que tú hagas conmigo. Te daré los mejores consejos que tengo. Como por ejemplo: deja de hablar con Keiken ---de pronto su rostro cambió y se puso muy serio ---, lo único que va a hacer será confundirte.
+
+---Hasta ahora solo me pide que me largue de nuevo a mi país ---murmuró bajando ligeramente la cabeza.
+
+---Ese hombre solo ha vivido desgracias en su vida y no tiene un buen equilibrio mental. Lo siento por Junnosuke, pero es que su padre cargó todo su odio en el hijo mayor olvidando al pequeño.
+
+---Junnosuke lo lleva bien ---dijo Tae con calma mientras bebía del vaso que la chica había ofrecido momentos antes. Séfora se había olvidado que él estaba ahí hasta que habló; estaba sentado cómodamente en el sillón como si fuera su casa.
+
+---Es un chico muy fuerte ---asintió Sanghun con media sonrisa, más relajado ---. Me alegra saber que se refugió con vosotros y no con su hermano ---asintió y volcó de nuevo la mirada en la chica ---. No te preocupes de más. Disfruta de la fiesta de Katashi para que puedas ver cómo son las personas en profundidad. Entrena, aprende todo, el tiempo pasará más rápido de lo que crees y no sé si estarás preparada para cuando tengas veintiuno.
+
+---Podré con todo ---se llevó la mano al pecho ---, podré dejar mi adolescencia a un lado. Podré hacerme cargo de todo lo que se espera de mí.
+
+---No es algo que tengas que prometerme a mí, Séfora, es algo que tienes que cumplir por y para ti misma.
+
+Después de un rato más de charla se despidieron de Sanghun, ya eran más de las dos de la mañana. La vuelta fue más tranquila, ya había dejado de llover y el ambiente estaba bastante fresco.
+
+Durante el camino de vuelta Jongtae comenzó a contar pequeñas historias a cerca de como fueron creciendo todos juntos. Séfora sintió que al fin comenzaban a confiar en contarle su pasado oscuro, aunque las historias que contaba fueran momentos divertidos entre Hyungmin y Junnosuke, quienes eran los más jóvenes.
+
+Según contaba, Taeku siempre había sido muy protector con los demás. Tenía un rol de hermano mayor que a día de hoy seguía ejerciendo hasta con ella. Pero el único que había hablado abiertamente de su familia de sangre era Junnosuke, y sentía curiosidad por saber un poco más de la familia de los otros.
+
+---¿Qué pasó con Mina? ---preguntó de pronto. No sabía si aquello era tema delicado, pero se sintió valiente de poder sacar ese tema de conversación con la confianza que él le había brindado.
+
+---Ella creció muy protegida entre algodones. Mis padres la mimaron muchísimo. Su problema era que no podía estar quieta y quería hacer todo lo que yo hacía ---soltó una risa nostálgica ---, así que aprendió esgrima, tiro con arco y defensa personal, que era lo que yo estaba aprendiendo, además de todo lo que le enseñaban por ser una chica.
+
+Se notaba que hablaba de ella con mucho cariño pero también con dolor, así que tras decir aquello, Séfora no quiso profundizar mucho en el tema.
+
+Al llegar a casa y guardar el coche se despidieron y cada uno subió a su respectivo piso para entrar en su apartamento. Séfora se puso el pijama, echó bien las cortinas y se tiró en la cama, tapándose con las sábanas.
+
+¿Qué hubiera sido de ella si sus padres la hubiesen traído a esa mini ciudad y criado con esos chicos? Le costó dormir ya que no paraba de pensar en qué hubiese sucedido si la historia hubiera comenzado de diferente manera para sus padres.
