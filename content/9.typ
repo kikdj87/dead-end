@@ -1,28 +1,44 @@
+#import "util.typ": separador
+
 = Capítulo 9
 
 Séfora estaba en la entrada de la casa sentada. Estaba agotada después de una sesión de ejercicio y necesitaba recuperar fuerzas. Taeku había subido ya al apartamento, pero ella insistió en quedarse fuera ya que necesitaba aire fresco.
 
-Estaba segura allí fuera ya que había seguridad de sobra, por lo que podía relajarse. Alzó la cabeza al cielo cuando de pronto una hoja le cayó en la cara.
+Estaba segura allí fuera ya que había seguridad de sobra, por lo que podía relajarse. Alzó la cabeza al cielo cuando de pronto un papel le cayó en la cara.
 
-Miró el papel y lo vio arrugado, así que pensó que sería una nota hacia ella de Keiken, pero no se esperaba ver el nombre de Yonghwa escrito a un lado.
+Lo agarró y vio que estaba arrugado, así que pensó que sería un papel extraviado de alguien, pero no se esperaba ver el nombre de Yonghwa escrito a un lado.
 
-Miró a todos lados y con mucha curiosidad leyó la carta. En ese momento comprendió las acciones de Yonghwa y apretó los labios con tristeza.
+Recordó el día en el que su compañero recibió la carta y se pegó el papel en el pecho. Miró a todos lados y con mucha curiosidad leyó la carta. En ese momento comprendió las acciones de Yonghwa y apretó los labios con tristeza.
 
-Miró la foto que había dentro del sobre y se sorprendió al ver el gran parecido que había entre Yonghwa y ese chico. No podían negar que eran hermanos. Pero había algo en el brillo de los ojos del chico en la foto que los diferenciaban y era esa mirada inocente que no había perdido a penas nada en su vida y parecía que todo era mucho más fácil. Sin embargo para Yonghwa, el haber crecido donde lo hizo, le había cambiado la vida al completo. No podría decir que a mal, pero si que era una vida dura.
+A su lado, en el suelo, había caído también una fotografía y la agarró. Se sorprendió al ver el gran parecido que había entre Yonghwa y ese chico. No podían negar que eran hermanos. Pero había algo en el brillo de los ojos del chico en la foto que los diferenciaban y era esa mirada inocente.
 
-Tomó el teléfono entre los dedos y apuntó la información de contacto del chico. No sabía como podría hacerlo, pero haría lo posible por que ambos chicos tuvieran contacto. Aunque tendría que empezar por Yonghwa, sabía que si la carta había volado hasta su ventana es que no quería saber nada de su hermano.
+Sin embargo para Yonghwa, el haber crecido donde lo hizo, le había cambiado la vida al completo. No podría decir que a mal, pero sabía que era una vida dura.
 
-Los días pasaban.
+Tomó el teléfono entre los dedos y apuntó la información de contacto del chico. No sabía como podría hacerlo, pero haría lo posible por que ambos chicos tuvieran contacto. Aunque tendría que empezar por Yonghwa. Sabía que si la carta había volado hasta donde estaba, significaba que no quería saber nada del tema.
 
-Mientras entrenaba, iba a reuniones aburridas y seguía entrenando duramente se enviaba mensajes con Yongsun, el hermano menor de Yonghwa. Al principio había sido muy raro para ambos, ella le había contado que le conocía porque trabajaban juntos, pero tampoco quería dar muchos detalles privados de su vida y trabajo, así que trataba de mantener un poco de distancia en ese aspecto.
+Los días pasaron.
 
-Sin embargo, con el tiempo, comenzaron a hablar de cualquier tema que no fuera Yonghwa, hacerlo más personal el uno con el otro. Séfora se dio cuenta que ese chico estaba empezando a ser su vía de escape de esa vida tan dura que le habían obligado a vivir.
+A la vez que entrenaba y leía documentos aburridos encontraba momentos para pensar cómo contactar con el hermano de Yonghwa. Una tarde sentada frente a la ventana aprovechando los últimos rayos de sol decidió escribir un mensaje que leyó en voz alta.
 
-Tras un día agotador de entrenamiento con las espadas de bambú, Taeku decidió que ya estaba preparada para practicar con katanas reales, así que tomó un par de ellas y estiró el brazo para entregarle el arma. Ella lo cogió con miedo.
+---Hola, ¿eres Yongsun? Me pasaron tu contacto hace unos días por un trabajo de modelaje. Mi nombre es Séfora y estoy a cargo de la selección, ¿podríamos charlar? Un saludo.
+
+La mano le tembló mientras dudaba en enviar el mensaje. Finalmente lo mandó y dejó el teléfono boca abajo sobre la cama cubriéndose la cara con la almohada soltando un grito.
+
+Se le pasó por la cabeza que era una excusa absurda, pero era lo mejor que había pensado para poder conocerle. No pasó mucho rato en recibir respuesta.
+
+---Te has equivocado de persona ---leyó Séfora y resopló.
+
+En sus siguientes mensajes trató de dar un tono despistado para poder seguir manteniendo una charla informal con él. Costó mucho, pero finalmente terminó cuajando.
+
+Al principio fueron conversaciones muy triviales de dos desconocidos que se encontraron por casualidad, pero conforme pasaron los días charlando empezaron a interesarse el uno con el otro.
+
+Poco a poco se dio cuenta que Yongsun empezaba a ser esa vía de escape que estaba buscando. Le daba a su vida un toque de normalidad y, aunque no podía hablar de todo con él, sentía que volvía a ser una chica normal.
+
+Tras un día agotador de entrenamiento con los shinai, Taeku decidió que ya estaba preparada para practicar con katanas, así que tomó un par de ellas y estiró el brazo para entregarle el arma. Ella lo cogió con miedo.
 
 ---Bien, ha llegado tu momento ---esbozó una sonrisa de lado y dando bastante miedo. Se puso en posición de ataque ---, a practicar todo lo que te enseñado.
 
----Ni de coña ---la katana pesaba entre sus manos mucho más que las de bambú que había estado usando. Además, que estaban afiladas ---, vamos a acabar muy mal.
+---Ni de coña ---la katana pesaba entre sus manos mucho más que el shinai que había estado usando ---, vamos a acabar muy mal.
 
 ---Esa es la idea ---se encogió de hombros y asestó el primer golpe.
 
@@ -30,25 +46,73 @@ El rápido movimiento de Taeku y la lenta reacción de Séfora provocó que le h
 
 Séfora agarró la katana con ambas manos, se mentalizó y atacó de la misma forma que él lo había hecho, pero a pesar de tantas semanas de prácticas con aquella arma letal en sus manos le costaba moverse, y se notaba que Taeku tenía mucha más experiencia ya que sus movimientos eran más limpios y ágiles para esquivar los torpes golpes de ella.
 
-Estaban en el dojo que Mishima poseía unas calles más abajo de su residencia, así que unas horas por la mañana temprano lo tenían reservado tan solo para ellos, para que Séfora pudiera centrarse, sin otras personas que pudieran distraer o juzgar. 
+Estaban en el dojo que Mishima poseía unas calles más abajo de su residencia, así que unas horas por la mañana temprano lo tenían reservado tan solo para ellos, para que Séfora pudiera centrarse, sin otras personas que pudieran distraer o juzgar.
 
-Tras una hora de rápidos y ágiles movimientos por parte de Taeku Séfora alzó la mano agachando la cabeza, completamente agotada, entumecida y sudando. Respiró de forma entrecortada mientras trataba de calmar su corazón y echó la cabeza hacia atrás soltando un leve grito. Le dolían los pequeños y superficiales cortes que le había hecho a causa de mezclarse con el sudor.
+Taeku, con voz firme pero tranquila daba pasos lentos al rededor de Séfora.
+
+---Levanta la guardia. Anticipas mucho con el hombro derecho y te vuelves a delatar.
+
+Séfora ajustó su postura, sus nudillos estaban blancos sobre la empuñadura de la katana. Sus ojos no se apartan de los de Taeku.
+
+---Equilibrio... observar... ---murmuró.
+
+Taeku lanzó un ataque rápido y bajo, una finta. Séfora reaccionó instintivamente, bloqueando donde esperaba el golpe, dejando una apertura alta. Taeku no la aprovechó del todo, pero deslizó su katana para golpear ligeramente el costado.
+
+---Muerta. No sigas la finta, sigue mis ojos, mi centro. ¿Dónde está mi peso?
+
+Séfora retrocedió un paso, frustrada. Aunque no golpeó fuerte, notó el filo de la katana contra su piel y se erizó.
+
+---Es fácil decirlo. Tus movimientos son... fluidos.
+
+Taeku esbozó una pequeña sonrisa y ladeó la cabeza.
+
+---Años de práctica, Séfora. Y motivación. Otra vez, ataca tú.
+
+Séfora respiró hondo. En su cabeza recordó los miles de movimientos de Taeku y, entre todas esas imágenes, el cuerpo de Hyungmin cubriendo el suyo propio. Una chispa de furia controlada tensó sus músculos. Se lanzó hacia adelante, no con la técnica más depurada, pero sí con velocidad y una agresividad que sorprendió ligeramente a Taeku. Lanzó una serie de cortes: alto, medio, un barrido bajo.
+
+Taeku los desvió con una economía de movimientos casi insultante. No retrocedía, simplemente giraba y usaba su propia katana para redirigir la fuerza de ella. Los hierros cantaban con cada bloqueo.
+
+---¡Bien! ¡Esa es la intención! Pero te abres demasiado en el tercer corte. ¿Ves?
+
+En el momento en que ella se extendió de más, él giró sobre sus talones, su katana pasó rozando la de ella y apuntó directamente a su garganta, deteniéndose a un centímetro. El aire quedó suspendido. Los ojos de Séfora se clavaron en la punta de la katana.
+
+---Lo vi demasiado tarde ---dijo ella bastante tensa, tragando saliva.
+
+---En la calle, "demasiado tarde" no existe ---Taeku bajó la katana y negó con la cabeza---. Solo existe el resultado ---su tono se volvió más grave, perdiendo el aire de simple instructor---, nadie te dará esta pausa, tampoco te darán la oportunidad de corregir. No te atacarán para enseñarte una lección, Séfora.
+
+---Lo sé.
+
+Taeku dio un paso hacia atrás y optó por una pose más relajada, sonriendo con calma.
+
+---Entonces no luches solo con el cuerpo. Lucha con esto ---se tocó la sien---. Observa. Adapta. Sobrevive. Olvida la rabia por un segundo, ésta solo te ciega. Úsala, pero no dejes que te controle. ¿Entendido?
+
+Séfora asintió, su respiración aún estaba agitada, pero sus ojos tenían una nueva determinación.
+
+---Entendido, otra vez.
+
+---Bien, desde la defensa. Prepárate ---él sonrió con aprobación.
+
+Él volvió a moverse, y el sonido de los metales chocando llenó de nuevo el silencio del dojo. Esta vez, Séfora no solo reaccionaba, sino que intentaba anticipar, recordando el peso, los ojos, el centro de su oponente y amigo. La lucha era dura, pero por primera vez, sintió que no solo está aprendiendo a pelear, sino que estaba aprendiendo a sobrevivir en el mundo al que empezaba a pertenecer.
+
+Tras una hora de entrenamiento Séfora alzó la mano agachando la cabeza, completamente agotada. Respiró de forma entrecortada mientras trataba de calmar su corazón y echó la cabeza hacia atrás soltando un leve grito.
 
 ---Taeku ---murmuró tomando aliento ---, no puedo más, vamos a descansar.
 
----Lo has hecho muy bien ---dejó la katana con cuidado sobre el suelo y sonrió dándole una suave palmada en el hombro ---. Te has defendido muy bien aunque no me hayas atacado.
+---Lo has hecho muy bien ---dejó la katana con cuidado sobre el suelo y sonrió dándole una suave palmada en el hombro.
 
----Pesan como condenadas ---alzó la katana que tenía entre las manos y la envainó con cuidado ---, además ha sido la primera vez, por favor, no me pidas más.
+---Pesan tanto ---alzó la katana que tenía entre las manos y la envainó con cuidado.
 
----Tae me ha dicho que te haga una pregunta ---soltó Taeku de pronto ---, cito textualmente: Sef, ¿cuántas reuniones hemos tenido hasta ahora?
+Dejaron las katanas bien colocadas en su lugar correspondiente y tras limpiar las gotas de sudor, Taeku se dirigió hacia ella.
 
---¿Y tenías que llamarme así? ---golpeó su pecho con la mano abierta. Le miró molesta y resopló cuando él se encogió de hombros ---. En fin, habré tenido unas ---contó con los dedos ---, ocho reuniones en total, ¿por qué lo dice?
+---Tae me ha dicho que te diga si recuerdas los límites de la ciudad ---tomó aire y soltó este despacio por la nariz ---. De hecho me ha dicho que te llame Sef.
 
----Las personas con las que te has reunido son las que mandan en sus respectivos grupos ---recogió las katanas con cuidado y las dejó en su lugar ---, una vez los has conocido es momento que conozcas _todo_ de ellos. Sanghun nos ha mandado unos archivos y Tae los tiene en casa así que volvamos.
+---Por que no me sorprende ---ella puso los ojos en blanco y después asintió con la cabeza.
 
-Marcharon a casa y tras una ducha reconfortante y tomarse un relajante muscular se quedó pensando en todas las personas que había visto o conocido en cada una de las reuniones. Por ahora todos le parecían el prototipo de hombre que era Mishima: nada destacable de ellos.
+---El caso es que es el momento de que conozcas a las cabeza de las organizaciones ---asintió mientras cerraba las puertas del dojo y comenzó a caminar a casa ---. Tenemos en casa ya unos archivos que nos ha mandado Sanghun para que estudies.
 
-Una vez estaba vestida y arreglada para la reunión con Tae, este se presentó abriendo la puerta sin llamar cargado con un montón de papeles que dejó sobre la mesa del salón. Resopló por el peso y se sacudió ambas manos sonriendo satisfecho por el cuidado de aquellos papeles.
+#separador
+
+Estaba con el pijama puesto y un refresco en la mano, tumbada en el sofá cuando apareció Tae abriendo la puerta sin llamar, cargado con un montón de papeles. Los dejó sobre la mesa del salón. Resopló por el peso y se sacudió ambas manos sonriendo satisfecho por el cuidado de aquellos papeles.
 
 ---Esta información es importante que la tengas. Sanghun me la ha mandado, es todo lo que tienes que saber de los distintos grupos de los barrios de Tokyo y lugares importantes. Las bandas más relevantes ---apoyó la mano sobre el montón de papeles ---, nombres, familia, los datos más necesarios. Es una forma de mantenerlos controlados.
 
@@ -60,23 +124,23 @@ Una vez estaba vestida y arreglada para la reunión con Tae, este se presentó a
 
 ---¿Perdona? ---Tae se puso nervioso y se echó hacia atrás.
 
----Qué mal ha quedado cuando lo he dicho en voz alta, lo siento ---se tapó ligeramente la cara con la mano muy avergonzada cuando cayó en cuenta de lo que había dicho. Volvió a explicarlo ---. Me gustaría que para el resto de personas os vean a vosotros como si fuera yo misma. A mi mismo nivel.
+---Qué mal ha quedado cuando lo he dicho en voz alta, lo siento ---se tapó ligeramente la cara con la mano muy avergonzada cuando cayó en cuenta de lo que había dicho. Volvió a explicarlo ---. Me gustaría que el resto de personas os vean a vosotros como si fuera yo misma. A mi mismo nivel.
 
 ---Ahá… ---siguió con gesto extraño.
 
----Eres tontísimo Tae -- Golpeó su brazo y ambos se echaron a reír ---. Nadie estará nunca más por encima de vosotros en este mundo.
+---Eres tontísimo Tae ---golpeó su brazo y ambos se echaron a reír ---. Nadie estará nunca más por encima de vosotros en este mundo.
 
 ---Eso es muy bonito, Sef, pero...
 
 ---Séfora ---alzó un dedo señalándolo con amenaza -- Mi nombre es Séfora.
 
----Pero eso no podrá pasar hasta que estés oficialmente al mando, y aún queda tiempo ---ignoró su advertencia y sonrió con mucha calma.
+---Para eso aún queda tiempo ---ignoró su advertencia y sonrió con mucha calma.
 
----Llegará, ese momento va a llegar y quien me lleve la contraria se las verá conmigo y mis puños ---elevó ambos puños frente a su rostro y Tae sonrió con cierto aire de ternura ---. Hablo muy en serio ---bajó los brazos y miró los papeles ---. Voy a estudiarlos muy bien.
+---Llegará, ese momento va a llegar y quien me lleve la contraria se las verá conmigo y mis puños ---elevó ambos brazos frente a su rostro y Jongtae sonrió con cierto aire de ternura. Bajó los brazos y puso el rostro serio mirando los papeles ---. Hablo muy en serio, voy a estudiarlos muy bien.
 
 ---Confío en que lo harás.
 
-En cuanto Tae se marchó por la puerta Séfora se acomodó en la mesa y se quedó mirando aquella cantidad de papeles --al menos superaba los veinte centímetros de altura-- que contenía una valiosa información. Pero antes de empezar a leer se levantó a la cocina a por algo de queso y un refresco, así que cuando estuvo preparada agarró la primera carpeta que había.
+En cuanto Tae se marchó, Séfora se acomodó en la mesa y se quedó mirando aquella cantidad de papeles --al menos superaba los veinte centímetros de altura-- que contenía una valiosa información.
 
 De primeras tenía a un grupo llamado Yamagu. Su líder llevaba poco tiempo al mando por culpa del fallecimiento del anterior, así que se estaba familiarizando con toda la política, había llegado al “poder” tras una lucha interna, lucha literal, se dieron de puñetazos para ver quién se quedaba con la corona. Se decía que era el grupo más numeroso y antiguo de la ciudad, controlaba muchos barrios importantes de Tokyo y eran bastante peligrosos.
 
@@ -90,7 +154,7 @@ El líder era Woohyuk y tenía treinta y ocho años. No tenía familia política
 
 No hablaba de los otros dos miembros en detalle, tan solo estaban escritos sus nombres y el número de teléfono al lado. Seunho y Jaewon. Tenía tanta curiosidad sobre ellos que hizo una videollamada con Taeku.
 
----¿Qué pasa? ---llevaba un sándwich en la mano y la boca la tenía algo llena de comida.
+---¿Qué pasa? ---llevaba un dorayaki en la mano y la boca la tenía algo llena.
 
 ---¿Conoces a los Red Dragons? ---preguntó directamente colocando el móvil sobre la mesa para tener las manos libres y poder ver los papeles ---. Woohyuk, así se llama el líder.
 
@@ -102,7 +166,7 @@ No hablaba de los otros dos miembros en detalle, tan solo estaban escritos sus n
 
 ---Como nosotros contigo, pero para Sanghun ---Hyungmin asomó la cabeza en la pantalla ---, su escuadrón especial.
 
----No les llames así, que tienes ¿cinco años? ---Taeku negó con la cabeza.
+---No les llames así, ¿que tienes cinco años? ---Taeku negó con la cabeza.
 
 ---Ellos no suponen una amenaza ---continuó, ignorando el comentario de Taeku ---, no tienes que preocuparte de nada.
 
@@ -118,7 +182,7 @@ Asomó ligeramente la cabeza dentro del dormitorio en guardia, preparada para at
 
 ---No eres nada silenciosa, _princesita_ ---Keiken estaba apoyado en la pared. Ella se giró para amenazarle con lo que llevaba en la mano, pero él la ignoró y se echó directamente en la cama ---. Es tan cómoda como la recordaba. Un momento, ¿piensas atacarme con un palo? 
 
----Si ---frunció el ceño mirando su mano y alzó el palo. Él se echó a reír ---. Deja de entrar aquí de esta manera, ¿cómo lo haces?
+---Si. Deja de entrar aquí de esta manera, ¿cómo lo haces? ---frunció el ceño mirando su mano y alzó el palo. Él se echó a reír.
 
 ---Si te lo dijera no sería una sorpresa ---se incorporó y se puso en pie. Llevaba la ropa oscura como siempre, se le veían todos los tatuajes, pero el pelo lo tenía algo húmedo y sobre la cara ---. Necesito algo que tienes y me lo vas a dar por las buenas.
 
@@ -128,20 +192,38 @@ Asomó ligeramente la cabeza dentro del dormitorio en guardia, preparada para at
 
 ---Ni de broma, fuera de mi casa ---señaló la ventana abierta por donde imaginaba que habría entrado. Aunque lo que le extrañó fuese que entrase con facilidad teniendo seguridad en cada rincón. Imaginó que estaba abierta para disimular su entrada ---. No voy a darte nada.
 
----Bueno ---sacó del bolsillo una pequeña navaja y comenzó a jugar con ella entre los dedos con una agilidad sorprendente. Tenía cicatrices en los dedos pero dudaba que fuera de jugar de esa manera ---, iré por las malas.
+---Bueno ---sacó del bolsillo una pequeña navaja y comenzó a jugar con ella entre los dedos con una agilidad sorprendente. Tenía cicatrices en los dedos pero dudaba que fuera por jugar de esa manera ---. Iré por las malas.
 
 ---No voy a ponértelo fácil ---se puso en la misma postura que había tomado esa misma mañana con la katana, solo que ahora tenía una pala de cocina en la mano.
 
-Hubo un momento de tensión entre los dos. Unos segundos valiosos en los que Séfora analizó la posición del cuerpo de Keiken. Él no estaba con la misma postura que Taeku había estado esa mañana, parecía entusiasmado de verla en guardia. Él fue el primero en atacar. No fue a ningún punto vital para matarla, pero sí intentó intimidarla para que se apartara de la puerta y así poder entrar al salón, pero para su sorpresa ella no se achantó y le golpeó con el palo en el brazo.
+Se podía sentir como el ambiente estaba cambiando. Se miraban serios e iban tomando posición. Séfora colocó el cuerpo de la misma postura que ese mismo día había hecho con Taeku.
 
-Se le escapó una risa sádica cuando ella le había golpeado y se pasó la lengua por los labios. Hizo el amago de atacarla de la misma manera, pero reculó haciendo que ella pasara por delante de él para así poder estar dentro del salón, pero no contó con la nueva agilidad adquirida de Séfora, quien agarró la camiseta de él dando un fuerte tirón para sí misma y saltar para de nuevo bloquear que llegara a la mesa del salón.
+Por el contrario Keiken mantenía el cuerpo algo relajado, la navaja se movía en su mano de manera automática.
 
-Parecía molesto, así que giró la navaja en la mano para golpear con el mango de esta el costado de la chica, cuando esta se dobló de dolor y soltó un grito asestó otro golpe, preparándose para darle con la parte afilada en el pecho. No quería matarla, pero se había calentado de más al ver como ella estaba respondiendo.
+Él fue el primero en dar el paso.
 
-Séfora se fijó en el movimiento que había hecho con la mano y, a pesar del dolor que tenía en las costillas, alzó los brazos en cruz para protegerse de la navaja que cortó su antebrazo dejando una linea de sangre en el suelo. Se echó hacia atrás y abrió los brazos de nuevo para proteger con todo su cuerpo la mesa donde estaban los papeles.
+Su movimiento a penas fue perceptible pero ella no apartó los ojos de él tal y como le habían enseñado. Miró su centro y supo que su golpe iba a venir bajo, por lo que defendió aquel punto de su cuerpo. Se dió cuenta que él no quería ser letal con sus ataques, solo quería desestabilizar.
 
-Estaba respirando con fuerza cuando de pronto se escuchó un jaleo en el piso superior y Keiken alzó la cabeza maldiciendo entre mil palabrotas por lo bajo al escuchar ruido en la escalera.
+Para la sorpresa de él, Séfora le golpeó con la pala en el brazo y golpeó su antebrazo cuando él regresó a su posición. Se le escapó una leve risa viendo como ella se lo estaba tomando en serio.
+
+De nuevo fue Keiken quien movió el cuerpo haciendo una finta superior, reculando para agacharse y pasar por el hueco que ella había dejado libre. No contó con que ella comprendiera el movimiento que acababa de hacer. Séfora agarró su camiseta y tiró de él hacia el dormitorio para que no pasara su bloqueo.
+
+Aprovechó el impulso del empuje para saltar hacia atrás y volver a ponerse en guardia.
+
+Keiken frunció el ceño soltando un gruñido. Enseñó los dientes y agarró la navaja del revés girando el cuerpo en medio círculo para golpear las costillas de la chica.
+
+Le había pillado desprevenida y se le escapó el aire de golpe del pecho. Sintió un dolor agudo y se tambaleó contra la pared. Por un segundo perdió el equilibrio pero se recuperó soltando un grito al recuperar el aire.
+
+De nuevo giró la navaja en su mano y apuntó hacia ella la afilada hoja que brilló por la luz. Séfora fue viendo como el rostro de su contrincante tenía una sonrisa siniestra, disfrutaba haciéndole daño.
+
+Keiken giró sobre sus pies y se agachó delante de ella. Se impulsó con los pies y asestó un golpe con la hoja afilada contra ella.
+
+Séfora vio su intención, pero él fue mucho más rápido, tan solo pudo cubrirse el rostro con los brazos. Sintió un dolor agudo pasar por su brazo y un líquido caliente comenzó a caer por su piel, goteando en el suelo.
+
+No le importó el dolor que sentía tanto en las costillas como en el brazo. Había bloqueado con éxito el paso del dormitorio al salón. Keiken estaba enfurecido, apretó con fuerza los puños y tensó la mandíbula para asestar un golpe letal a la chica.
+
+Se detuvo de golpe al escuchar ruidos provenientes del piso superior.
 
 ---Los cotillas ---volvió la mirada hacia Séfora y guardó el cuchillo caminando hacia atrás sin apartar la mirada de sus ojos ---. Has mejorado mucho, tienes buenos reflejos. Taeku es buen entrenador ---se acercó al dormitorio y se llevó el índice y el dedo corazón a la frente para despedirse de ella ---. Nos volveremos a ver.
 
-Se perdió de su vista tras saltar por la ventana y ella soltó un fuerte gemido de dolor, llevándose la mano al costado, le saldría un buen cardenal donde él le había golpeado.
+Se perdió de su vista tras saltar por la ventana y ella soltó un fuerte gemido de dolor, llevándose la mano al costado.

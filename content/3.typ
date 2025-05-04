@@ -96,15 +96,39 @@ Para la defensa personal Taeku fue el indicado. A pesar de que ella contaba con 
 
 Una mañana soleada habían decidido practicar en la azotea del edificio, así que ambos se miraban frente a frente.
 
----Bien, sabes esquivar, ahora tiene que aprender a atacar ---Taeku se colocó en posición de defensa asintiendo con la cabeza.
+---Bien, ahora que sabes esquivar, tienes que aprender a atacar ---Taeku se colocó en posición de defensa asintiendo con la cabeza.
 
-//meter escena de lucha
+Séfora dudó pero imitó la posición que había tomado su contrincante en aquella lucha. Se había fijado en los movimientos de pies que él hacía y también en como movía los brazos. Aunque a la hora de la verdad se sintió torpe.
+
+Se lanzó contra él soltando un grito. Fue con un puño directo a su rostro y él, con mucha facilidad, giró el cuerpo para esquivarla.
+
+---Gracias por el anuncio, Séfora.
+
+El tono burlón que usó no le gustó nada, así que se volvió a separar de él para atacarle ahogando un pequeño grito en la garganta. Los movimientos de Taeku eran tan rápidos que a ella le costaba poder siquiera rozarlo.
+
+Por más que ella golpeaba fue imposible darle. Taeku mantenía una calma divertida viendo la frustración de la chica.
+
+---No te concentras, no mantienes equilibrio ---Taeku relajó el cuerpo pero no bajó los brazos ---. Es como la defensa: prevés mis ataques y en consecuencia te cubres.
+
+---Y eso me llevó tres meses entenderlo ---echó la cabeza hacia atrás frustrada.
+
+---Ya sabes lo difícil. Otra vez.
+
+Taeku volvió a colocarse en posición y esbozó media sonrisa. Séfora miró atenta su cuerpo, la posición de sus brazos y las piernas. Se cubría parte del rostro con los antebrazos y la posición encorvada protegía su abdomen.
+
+Dio pequeños pasos al rededor de él. Taeku no perdía ojo en cada movimiento que ella hacía.
+
+Esta vez no soltó ningún sonido cuando algo agachada se lanzó a golpear su rostro pero en el último momento, cuando él alzó los brazos para cubrirse, ella aprovechó para golpear su costado con el otro brazo. Era un movimiento que había estado hablando anteriormente con él, era complejo pero servía para distraer.
+
+No funcionó. Taeku se cubrió en ambos golpes pero dio un paso hacia atrás soltando una carcajada.
+
+---¡Genial! ---dio una fuerte palmada ---. Para ser la primera vez has recordado lo que hablamos. Estoy orgulloso.
 
 Jongtae decidió que cuando aprendiera bien el japonés le enseñaría el coreano. No por decisión propia, sino porque cada día ella iba tras él insistiendo para que le enseñara.
 
 Y cumplió con su palabra. Cuando había un momento de descanso, ella lo aprovechaba para aprender coreano. Descubrió que era mucho más fácil que el japonés o el chino, así que lo practicaba mucho más que cualquier otro.
 
-De vez en cuando hacían pequeñas salidas por la ciudad para tomar el aire. Paseos por parques, visitar museos, ir al cine o a jugar a los bolos. Séfora atesoró cada momento que ellos hacían algo por ella, se preocupaban o tan solo pensaban en algo que podía hacerle ilusión. Realmente se veían como hermanos mayores.
+De vez en cuando hacían pequeñas salidas por la ciudad para tomar el aire. Paseos por parques, visitar museos, ir al cine o a jugar a los bolos.
 
 ---¿De verdad nunca has salido con tus amigos por Madrid? ---Hyungmin estaba sentado a su lado en una cafetería. Nunca salían los seis juntos.
 
@@ -116,7 +140,18 @@ Cuando al fin supo cómo leer un periódico le dejaron explorar la carpeta que T
 
 Era una empresa complicada, pero poco a poco iba entendiendo que tenían a muchos grupos de personas bajo su poder.
 
+---Piénsalo como un árbol ---comentó Jongtae mientras lo dibujaba en un papel para que fuera más gráfico ---. Las raíces son los antepasados de tu abuelo. El tronco es tu abuelo en sí. Las distintas ramas son todas las fracciones que se han ido creando con el paso del tiempo.
+
+---Pero cada una tiene su diferente líder ---Séfora miraba como iba escribiendo los nombres conforme lo iba dibujando.
+
+---Claro ---dibujó con detalle cuatro ramas que salían del tronco principal ---. Estos serían los que dan la cara ante el jefe. Luego están los distintos subordinados que responden con los de aquí.
+
+Señaló con el lápiz las cuatro ramas más grandes y la miró con una pequeña sonrisa.
+
 El esquema de poder era bastante complejo. En lo más alto estaría el abuelo Watashime solo. Bajo su mandato directo habían cuatro nombres, solo conocía el de Ten Shio. Cada uno de los cuatro tenían otros cuatro hombres --o grupos de hombres-- a su cargo. Y así hasta hacer un árbol inmenso.
 
-Sabía que tendría que hacer cualquier cosa para mantenerles a raya y hacerse de valer. Aunque sabía que aquello rozaría la ilegalidad. Y sobre todo, sabía que debía proteger la tapadera que se habían construido. Puede que ese último fuese el más importante.
+---Es un trabajo bastante sucio, pero ahora mismo no tendrás que mancharte las manos para nada ---Jongtae concluyó con media sonrisa, preocupado por su gesto serio.
 
+---Ahora mismo... ---ella repitió.
+
+Sabía que tendría que hacer cualquier cosa para mantenerles a raya y hacerse de valer. Aunque aquello rozara la ilegalidad. Y sobre todo, sabía que debía proteger la tapadera que se habían construido.

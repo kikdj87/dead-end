@@ -1,4 +1,4 @@
-== Capítulo 4
+= Capítulo 4
 
 Y había pasado un año.
 
@@ -79,7 +79,7 @@ Esquivaba a la gente que aparecía de golpe delante de ella mientras paseaban in
 
 ---¡No me importa! ---Hyungmin se giró hacia ella con el ceño fruncido. Se relajó un poco al ver las lágrimas en su rostro y aflojó el agarre de su brazo ---. Perdón. Tenemos que volver ya a casa.
 
-Al entrar por el ascensor se encontró de cara a Taeku que estaba rojo de furia.
+Al salir del ascensor se encontró de cara a Taeku que estaba rojo de furia.
 
 ---Séfora...
 
