@@ -28,11 +28,23 @@ Se le pasó por la cabeza que era una excusa absurda, pero era lo mejor que hab�
 
 ---Te has equivocado de persona ---leyó Séfora y resopló.
 
-En sus siguientes mensajes trató de dar un tono despistado para poder seguir manteniendo una charla informal con él. Costó mucho, pero finalmente terminó cuajando.
+En sus siguientes mensajes trató de dar un tono despistado para poder seguir manteniendo una charla informal con él. Séfora empezó a hacerle miles de preguntas, aunque al principio él se rehusaba a responder muy abiertamente.
 
-Al principio fueron conversaciones muy triviales de dos desconocidos que se encontraron por casualidad, pero conforme pasaron los días charlando empezaron a interesarse el uno con el otro.
+Se había creado una red social con fotografía que había tomado de ella en su apartamento con un apodo que no diera a entender su nombre real y se lo pasó al chico.
+
+Le escribió en ese mensaje que no era una persona peligrosa y que podía confiar en ella. La respuesta de Yongsun se hizo de esperar, pero mandó un emoticono de alivio.
+
+---Pensé que era una broma ---leyó el mensaje que le llegó después de ese emoticono.
+
+Acto seguido, ella se hizo una foto alzando dos dedos para mandársela al chico y se arrepintió enseguida de haberlo hecho.
+
+Lanzó el teléfono a un lado de la cama y lo miró aterrada por lo que acababa de hacer. Sintió un vuelco en el estómago al escuchar el sonido de un mensaje que acababa de llegar. La normalidad que aquella conversación le estaba dando le empezaba a gustar.
+
+La respuesta de Yongsun fue una foto enseñando los ojos con gesto sorprendido. Llevaba el pelo hacia atrás húmedo y el fondo estaba en blanco por pared.
 
 Poco a poco se dio cuenta que Yongsun empezaba a ser esa vía de escape que estaba buscando. Le daba a su vida un toque de normalidad y, aunque no podía hablar de todo con él, sentía que volvía a ser una chica normal.
+
+#separador
 
 Tras un día agotador de entrenamiento con los shinai, Taeku decidió que ya estaba preparada para practicar con katanas, así que tomó un par de ellas y estiró el brazo para entregarle el arma. Ella lo cogió con miedo.
 

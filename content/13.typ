@@ -1,101 +1,149 @@
+#import "util.typ": separador
+
 = Capítulo 13
 
-El día de la fiesta había llegado.
+El día de la fiesta llegó.
 
-Esa semana, a pesar de toda la agenda programada que tenía, pudo encontrar un hueco para salir con Hyungmin de compras, buscar una ropa adecuada para la dichosa fiesta. El problema era que por más que miraba no veía nada que quedara acorde con su personalidad.
+Séfora aprovechó y encontró un hueco para salir con Hyungmin de compras. El problema era que por más que miraba no veía nada que quedara acorde con sus gustos. O eran vestidos demasiado clásicos, o demasiado provocativos. No le gustaba ninguno que veía.
 
-Así que fueron a una tienda para hombres para que Hyungmin se probara diferentes trajes, a ella le llamó la atención un conjunto de pantalón y chaqueta de color negro, fino y ajustado, así que sin decir mucho entró en el probador al lado de su amigo y se lo puso saliendo a la misma vez que él.
+Así que fueron a una tienda de trajes de chaqueta para que Hyungmin viera para él. Mientras él llevaba un traje a uno de los probadores, los ojos de Séfora se detuvieron en un conjunto cercano. Era un traje de pantalón y chaqueta negro, de un tejido que parecía casi líquido a la luz de la tienda. Una chispa de rebeldía se encendió en ella.
 
-Ambos se miraron y el chico se quedó un momento con la boca abierta y tragó saliva para disimular su gesto, tosió un poco y se ajustó la chaqueta de color gris que llevaba puesta para abotonar solo uno de los botones. Séfora se había puesto la chaqueta abotonada sin llevar una camisa debajo y dejaba ver su escote sin ser demasiado expuesto, por lo que quedaba mejor de lo que había imaginado.
+No tardó en cambiarse de ropa y colocarse aquel traje. Salió del cubículo para mirarse en el espejo.
 
-Hyungmin no se había abrochado la camisa bien y se le veía por una parte del pecho un tatuaje, la misma forma que anteriormente le había visto a Sanghun, pero en tonos grises. En ese momento sintió mucha curiosidad por preguntarle a cerca de ese tatuaje, pero él se adelantó al hablar.
+Hyungmin salió del probador ajustándose la chaqueta, pero se detuvo en seco al verla. Sus ojos se abrieron ligeramente, recorriendo la línea elegante del traje, deteniéndose en el sutil escote que insinuaba la chaqueta abotonada sin nada debajo. Tragó saliva, un sonido audible en el silencio momentáneo, y apartó la mirada rápidamente, tosiendo para disimular.
 
----Vaya, Séfora, me dejas sin palabras ---dijo mirándola con los ojos bien abiertos.
+Ambos se miraron a través del espejo, la reacción del chico hizo que ella se cohibiera.
 
-Ella se sonrojó un poco al escucharle y se colocó a su lado ajustándole la camisa para que se viera algo más abierta, quedando estupendo con la chaqueta suelta. Él a su vez le ajustó a la chica el cuello de la chaqueta y se miraron al espejo juntos.
+---Te queda muy bien, pero te has puesto mal la camisa ---dijo Séfora girándose para quedar frente a Hyungmin.
 
-No parecía ella misma. Hacía dos años no se hubiera imaginado que estaría en Japón junto a unos chicos --que eran como sus hermanos cuidándola-- yendo a una fiesta prestigiosa con mucha gente importante.
+Alzó los brazos para arreglarle la camisa, sus dedos rozaron la piel cálida del pecho de Hyungmin. Fue entonces cuando lo vio con claridad: el intrincado diseño en tonos grises, la misma forma que había vislumbrado en Sanghun. La conexión la golpeó, una pregunta formándose en sus labios, pero la voz de Hyungmin la interrumpió.
 
-Ambos decidieron llevarse la ropa que habían escogido, así que después de ver las tiendas de ropa fueron a la peluquería para aprovechar el momento y hacer un gran cambio. Habían estado hablando de la nueva imagen que ella tendría que dar, dejar de ser adolescente para convertirse en un adulto.
+---Me dejas sin palabras ---dijo mirándola con los ojos bien abiertos.
 
-Se cortó el pelo por debajo del hombro, lo tenía más largo de media espalda, se retocó el flequillo para dejarlo recto, dejándose este suelto ya que lo tenía lacio y le quedaba bastante bien ese peinado.
+Ella se sonrojó un poco al escucharle y se colocó a su lado, ambos quedaron frente al espejo.
 
-Volvieron al piso para arreglarse ambos y ya juntarse los seis para ir juntos. Todos llevaban traje de chaqueta, cada uno de un estilo y de un color, clásicos pero con estilo.
+No parecía ella misma. Hacía dos años no se hubiera imaginado que estaría en Japón junto a unos chicos --que se habían convertido en us hermanos-- yendo a una fiesta prestigiosa con mucha gente importante.
 
-Dos coches llegaron a la puerta del local y de ahí se bajaron los seis, causando sensación ante las cámaras que ahí estaban, fotografiando a los famosos que iban entrando al sitio. Séfora se sentía fuera de lugar, pero se acercó a Jongtae algo intimidada y se pararon frente al de seguridad, quien les entregó a todos una pulsera especial con la que tendrían acceso a todas las salas y bebidas.
+Salieron de la tienda después de comprar amos trajes.
 
----Aquí no se pueden llevar armas, ¿no? ---Séfora se colocó bien la parte de atrás de la chaqueta.
+---He pensado en cortarme el pelo ---dijo Séfora mientras se acariciaba uno de sus mechones. Tenía el pelo largo a media espalda y le caía cubriendo sus hombros ---. Para hacer una cambio más radical. Dejar a la chica que dudaba atrás.
 
----Bueno, no deberíamos ---Jongtae se encogió de hombros y le guiñó un ojo con diversión.
+---Me parece buena idea ---Hyungmin metió las bolsas de la compra en el maletero del coche ---. Así dejarás a todos impresionados con el cambio.
 
-Séfora era consciente que sus compañeros llevaban armas escondidas, a pesar que nada más entrar había un cartel que en pequeño ponía que las armas estaban prohibidas.
+---Creo que esa es la idea ---Séfora alzó el pulgar.
 
-Katashi dio un gran discurso de bienvenida a todos sus invitados, animó a que bebieran y disfrutaran sin pensar en las consecuencias de sus acciones, ese día había que actuar sin remordimiento.
+Al principio tenía miedo. Siempre había sido clásica a la hora de peinarse, por lo que sentir como las tijeras cortaban su pelo hacía que se erizara. Veía como mechones oscuros caían en el suelo y sintió una fuerte liberación.
+
+Le cortaron el pelo por debajo de los hombros y le dejaron flequillo recto. Fue un cambio bastante positivo porque aquel peinado le daba al rostro un toque más adulto.
+
+Volvieron al piso para arreglarse y ya juntarse los seis para ir juntos. Todos llevaban traje de chaqueta, cada uno de un estilo y de un color, clásicos pero con estilo.
+
+Dos coches llegaron a la puerta del local y de ahí se bajaron los seis, causando sensación ante las cámaras que ahí estaban, fotografiando a los famosos que iban entrando al sitio.
+
+Los flashes explotaron a su alrededor como relámpagos silenciosos. Séfora se encogió instintivamente, buscando la solidez del brazo de Jongtae. Sentía cientos de ojos sobre ellos, evaluando, juzgando. Respiró hondo, intentando recordar por qué estaba allí.
+
+Pasaron por la puerta y el de seguridad les entregó unas pulseras para acceder a todas las salas.
+
+---Se supone que no se puede entrar con... bueno, ya sabes ---Séfora se colocó bien la parte de atrás de la chaqueta.
+
+---Bueno, digamos que las reglas son flexibles para ciertos invitados ---Jongtae se encogió de hombros y le guiñó un ojo con diversión.
+
+Séfora era consciente que sus compañeros llevaban armas escondidas. A pesar que nada más entrar había un cartel que en pequeño ponía que las armas estaban prohibidas.
+
+Katashi dio un gran discurso de bienvenida a todos sus invitados, animó a que bebieran y disfrutaran sin pensar en las consecuencias de sus acciones. Ese día había que actuar sin remordimiento.
 
 ---Qué bien se le da decir eso ---resopló Taeku con una copa en la mano ---, siempre actúa de forma egoísta.
 
-Jongtae le fue presentando a Séfora algunos de los invitados que aún no conocía. Habían bastantes actores y modelos de la empresa, también algún que otro grupo musical que les deleitaba con música en directo antes de dar paso a un dj que amenizara la noche.
+Habían bastantes actores y modelos de la empresa. También algún que otro grupo musical que les deleitaba con música en directo antes de dar paso a un dj que amenizara la noche.
 
-Entre todas esas personas estaba Ten Shio hablando con varios hombres trajeados y que parecían importantes, así que cuando se percató de la chica, que llevaba una copa en la mano, se acercó a ella.
+Entre todas esas personas estaba Ten Shio hablando con varios hombres trajeados y que parecían importantes. Cuando se percató de Séfora, que llevaba una copa en la mano, se acercó a ella.
 
----Estás impresionante ---dijo satisfecho mientras la miraba. Jongtae se había alejado para hablar con un grupo de chicas que habían captado su atención, por lo que Taeku poco a poco se acercó a la joven hasta estar a su lado.
+---Estás impresionante ---dijo satisfecho mientras la miraba.
+
+Jongtae se había alejado para hablar con un grupo de chicas que habían captado su atención, por lo que Taeku poco a poco se acercó a la joven hasta estar a su lado.
 
 ---Gracias ---inclinó ligeramente la cabeza con una sonrisa.
 
-Cada uno de los chicos se iban turnando para estar un rato con Séfora, le iban presentando a los que ellos consideraban más relevantes para que ella conociera. No tardó mucho en congeniar con algunas modelos más jóvenes ya que estaban más cerca en edad.
+Cada uno de los chicos se iban turnando para estar un rato con Séfora. Le iban presentando a los que ellos consideraban más relevantes.
 
-Las conversaciones que iba escuchando ella de los diversos grupos oscilaban entre las compras de acciones de alguna empresa o inversiones de viviendas, o también de que había alguien de una empresa rival que hacía que tuviera mala fama esa empresa porque esa persona era un fiestero o cosas así. Tenía que admitir que no solo la prensa eran arpías a la hora de criticar, sino los mismos famosos cuando se sentían cómodos en su entorno podían soltar perlas.
+Fue paseando entre la gente, mirando a los diferentes grupos que se juntaban para charlar.
 
-Por suerte eso fue el diez por ciento de las conversaciones, el resto era agradable de escuchar o de participar. A veces Séfora se sentía fuera de lugar porque había crecido en un mundo distinto.
+---El otro día compré las acciones de la empresa de la que hablamos la semana pasada. No sé si me terminará dando beneficios...
 
----En realidad esta vida es algo hipócrita ---Taeku respiró profundamente sentándose en la barra del local viendo como la chica agarraba una segunda copa de un líquido dorado y bebía un poco ---. Sabes que no deberías beber alcohol, ¿verdad?
+Miró a aquellos hombres trajeados hablar de acciones y pasó de largo.
+
+---...yo pienso que ella no tendría que haber debutado como actriz.Se ve muy forzada en las escenas que estamos rodando ahora.
+
+---Tienes razón, la he visto y no me ha gustado nada.
+
+Pasó muy de cerca de un grupo de chicas que cuchicheaban en un pequeño círculo.
+
+Tenía que admitir que no solo la prensa eran arpías a la hora de criticar, sino los mismos famosos cuando se sentían cómodos en su entorno podían soltar perlas.
+
+Por suerte eso fue el diez por ciento de las conversaciones, el resto era agradable de escuchar. A veces Séfora se sentía fuera de lugar porque había crecido en un mundo distinto.
+
+---En realidad esta vida es algo hipócrita ---Taeku se acercó algo más a ella al ver como iba pasando de la gente al escuchar las conversaciones. Ambos se miraron a los ojos, pero la mirada de él se volcó en el vaso que ella sostenía en la mano ---. Sabes que no deberías de beber alcohol, ¿verdad?
 
 ---No me mires ---colocó una mano sobre sus ojos y siguió bebiendo ---. Me apetece vivir esta experiencia con mi amigo.
 
----Pero no te pases ---puso los ojos en blanco y ella le golpeó en el hombro suave con el propio ---. Sé que no te hubieras imaginado nunca acabar así de esta manera ---comenzó a mover su copa hablando mientras la miraba ---, y que tal vez tus expectativas de futuro te iban a llevar por un camino completamente diferente, pero espero que lo que estas viviendo sea algo bueno, al fin y al cabo es una vida compleja, pero no es tan mala si encuentras a las personas adecuadas.
+Retiró la mano de su rostro y se le escapó una risa. Notó las mejillas y las orejas algo calientes.
 
----Bueno ---dejó su copa sobre la barra y le miró directamente a los ojos ---, no es mala, no ---comentó y sonrió ---, ya te digo que a pesar de las malas consecuencias, estoy conociendo gente que merece la pena que se queden a mi lado.
+---Pero no te pases ---puso los ojos en blanco y ella le golpeó en el hombro suave con el propio ---. Sé que no te hubieras imaginado nunca acabar así de esta manera ---Taeku comenzó a mover su copa hablando mientras miraba el rostro de Séfora ---, y que tal vez tus expectativas de futuro te iban a llevar por un camino completamente diferente, pero espero que lo que estas viviendo sea algo bueno. Al fin y al cabo es una vida compleja, pero no es tan mala si encuentras a las personas adecuadas.
 
----Nada de sentimentalismos ---Katashi se colocó entre los dos rodeando sus hombros con los brazos. Se le notaba que estaba algo borracho ---. Vamos a bailar, vamos a disfrutar. Mañana llora por la resaca, pero ahora bebe y baila.
+---Bueno ---ella dejó su copa sobre la barra y le miró directamente a los ojos, moviendo el cuerpo pra quedar frente a él ---. No es mala, no ---comentó y sonrió guiñando los ojos ---, ya te digo que a pesar de las malas consecuencias, estoy conociendo gente que merece la pena que se queden a mi lado.
+
+---Nada de sentimentalismos ---Katashi se colocó entre los dos rodeando sus hombros con los brazos. Se le podía ver un brillo en los ojos bastante peculiar después de varias copas ---. Mucho gusto Séfora, vamos a bailar y a disfrutar. Mañana llora por la resaca, pero ahora bebe y baila.
 
 ---Es menor.
 
----Y tu jefa, que te _jodan_ ---Katashi le sacó el dedo corazón y la agarró del brazo para arrastrarle a la zona de baile.
+---Y tu jefa ---Katashi le sacó el dedo corazón y agarró a Séfora del brazo para arrastrarle a la zona de baile.
 
-Agarró la copa antes de que el rubio la arrastrara a la pista de baile y le lanzó un beso a Taeku, el cual negó con la cabeza rendido. Séfora no tenía experiencia bailando en el centro de la pista, pero lo que hizo fue imitar a los que a su alrededor bailaban. El dj estaba poniendo un buen repertorio de la música actual con bastante marcha, así que no había un estilo de baile, solo dejarse llevar y disfrutar.
+Agarró la copa antes de que el cumpleañero la arrastrara a la pista de baile y le lanzó un beso a Taeku, el cual negó con la cabeza rendido. Séfora no sabía bailar bien, así que fue imitando a los que bailaban a su alrededor. La música que el dj estaba poniendo retumbaba en todo el centro de la pista. Sus oídos y su pecho sentían la música mucho más que el sonido del ambiente. No daba tregua de una canción a otra, así que no había un estilo de baile, solo dejarse llevar y disfrutar.
 
-A pesar de estar viviendo una experiencia bastante nueva para ella, algo que le marcaría en su vida sin duda, hubiera preferido estar en una reunión con Ten Shio en un despacho. Ese tipo de situaciones sabía manejarlas mejor que la que estaba viviendo en ese momento, aún así confió en Katashi y en los grados de alcohol de las bebidas que le servían.
+Mientras Katashi la hacía girar (más bien la arrastraba en círculos), Séfora pensó fugazmente en la tranquilidad de un despacho, en documentos y estrategias. Paradójicamente, se sentía más cómoda enfrentando a un rival de negocios que navegando por esta marea de sonrisas falsas y cuerpos sudorosos.
 
-Finalmente acabó bebiendo más de lo que había querido. Perdió la noción del tiempo y de las personas que estaban a su alrededor, pero algo que podía agradecer es que descubrió que era una borracha simpática y que no perdía el control de lo que decía o hacía, por lo que se comportaba dentro de lo que cabía, bastante bien.
+Finalmente acabó bebiendo más de lo que había querido. Perdió la noción del tiempo y de las personas que estaban a su alrededor.
 
-A la mañana siguiente maldijo la fiesta y cada copa que se había bebido. Todo en su piso estaba oscuro, vivía con la iluminación justa en ese momento porque cualquier cosa o ruido hacía que su cabeza estallase.
+#separador
 
-Decidió que para despejarse lo mejor era darse una ducha relajante y caliente así que la preparó. Estuvo pensando mejor en todos los invitados que fueron a la fiesta y se percató que Sanghun no había asistido. Ni él ni muchas personas que ella creía que eran importantes para la organización de los líderes que había subrayado.
+A la mañana siguiente maldijo la fiesta y cada copa que se había bebido. Todo en su piso estaba oscuro, vivía con la iluminación justa. Cualquier pisada en el suelo de madera sonaba como un gong para su cabeza.
 
-Tras la ducha se colocó el albornoz y se dejó el pelo suelto. Se hizo un café y con una aspirina para la jaqueca se sentó en la mesita que tenía en el salón con todos los papeles importantes que había estado estudiando hasta ese momento. Jongtae volvió a confiar en bajarlos a su piso. Sí que tenía resaca y quería morirse, pero eso no era excusa para no trabajar.
+Decidió que para despejarse lo mejor era darse una ducha relajante y caliente.
+
+---No vi a Sanghun anoche ---habló en voz alta más para sí misma mientras se lavaba la cara ---. Tampoco vi algunos líderes de clanes que creía que eran importantes...
+
+Tras la ducha se colocó el albornoz y se dejó el pelo suelto. Se hizo un café y con una aspirina para la jaqueca se sentó frente la mesa que tenía en el salón con todos los papeles importantes que había estado estudiando hasta ese momento. Jongtae volvió a confiar en bajarlos a su piso. Sí que tenía resaca y quería morir, pero eso no era excusa para no trabajar.
 
 Eso si, había sentenciado que no volvería a beber tanto otra vez, su cabeza no toleraría más días de resaca como la que llevaba encima en ese momento.
 
 De pronto la puerta del piso se abrió asustando a Séfora, que alzó la cabeza de golpe. Tenía la costumbre de no echar con llave esa puerta porque se sentía mucho más segura cuando ellos podían acceder a su casa en cualquier emergencia. Pero ver a Yonghwa con un rostro serio y una mirada voraz la hizo asustarse muchísimo.
 
----Dime que es mentira ---dijo con tono siniestro ---, que no has contactado con él.
+Yonghwa estaba tan tenso que el cuerpo le temblaba ligeramente. Los puños los tenía apretados a ambos lados de su cuerpo y la mandíbula apretada.
 
-Fue directo a coger el teléfono de ella, pero pudo evitar que lo agarrara con cierta torpeza. Le miró perpleja.
+---Dime que es mentira ---dijo con voz grave, no parecía él ---, que no has contactado con él.
+
+Fue directo a coger el teléfono de Séfora, pero ella pudo evitar que lo agarrara con cierta torpeza. Le miró perpleja.
 
 ---¿De qué estás hablando? ---se ajustó el albornoz sobre el cuello y se inclinó hacia atrás protegiendo el teléfono contra sí misma.
 
----De Yongsun ---dijo seco, su voz era completamente diferente de la que ella estaba acostumbrada ---, estoy hablando de ese tipo ---se quedó en silencio, perpleja sin saber muy bien qué decir al respecto ---. Vale, tu silencio te delata. ¿Por qué has contactado con él, de dónde has sacado la información?
+---De Yongsun ---dijo seco ---, estoy hablando de ese tipo ---la miró guiñando los ojos y cuando no obtuvo respuesta soltó una carcajada cruel ---. Vale, tu silencio te delata. ¿Por qué has contactado con él, de dónde has sacado la información?
 
----Bueno ---titubeó un poco, no sabía por donde empezar a hablar. En su cabeza lo había estado planeando perfectamente, pero aquello se acababa de derrumbar ---. ¿Quién te lo ha dicho?
+---¿Quién... te lo ha dicho? ---titubeó un poco.
 
----Qué más da quién me lo ha dicho ---gruñó apretando con fuerza los labios, su ceño se frunció y pudo ver las venas marcadas por su frente y cuello ---. Has actuado a mi espalda sobre algo que solo a mí ---se llevó la mano al pecho en un golpe seco ---, me concierne. Es que tienes que meter las narices en absolutamente todo y controlar todo.
+El miedo le atenazó la garganta. La mirada de Yonghwa no era la de su amigo, era la de un depredador acorralando a su presa. Las palabras sobre Yongsun la dejaron sin aire. Un flash de su propia determinación terca al buscar esa información la golpeó con la fuerza de una bofetada. ¿Qué había hecho?
 
----¿De qué estás hablando? ---aquel último comentario le hizo bastante daño. Vió a su espalda como los demás chicos estaban en la puerta con gesto de disculpa, pero ninguno se acercó a ellos. Le tenía acorralada contra la encimera de la cocina ---. Yo no tengo que controlar nada.
+---Qué más da quién me lo ha dicho ---gruñó bajando la voz. La posición de su cuerpo estaba preparada para atacar en cualquier momento ---. Has actuado a mi espalda sobre algo que solo a mí me concierne ---se llevó la mano al pecho en un golpe seco ---. ¿Tienes que meter las narices en absolutamente todo y controlar todo?
 
----¿Y el ir a buscarle?, ¿hablar con él? ---casi gritaba cada palabra ---, ¿quién te crees que eres para meterte en mi vida privada?. Te estoy regalando mi presente, deja mi pasado en su lugar y no indagues más de lo que debes. No te lo permito por más que seas quién eres. No tienes derecho.
+---¿De qué estás hablando? ---dijo Séfora con un hilo de voz. Aquel último comentario le hizo bastante daño.
+
+Ella miró hacia la puerta y vio como los otros cuatro estaban de pie. Taeku negó con la cabeza mientras era el único que le sostenía la mirada. Notó el aviso en sus ojos.
+
+---Yo no tengo que controlar nada ---dijo Séfora acorralada por Yonghwa.
+
+---¿Y el ir a buscarle?, ¿hablar con él? ---cada vez alzaba más la voz ---. ¿Quién te crees que eres para meterte en mi vida privada?. Te estoy regalando mi presente, deja mi pasado en su lugar y no indagues más. No te lo permito por más que seas quién eres. No tienes derecho.
 
 ---Yonghwa yo...
 
----No. Para mí esto termina aquí ---sentenció y golpeó la mesa con la mano abierta ---. Lo nuestro se queda en una relación de trabajo. El empleado y la jefa. No te debo absolutamente nada más.
+---No. Para mí esto termina aquí ---sentenció y alzó el brazo para golpear la mesa con la mano abierta. Retumbó por toda la casa ---. Lo nuestro se queda en una relación de trabajo. El empleado y la jefa. No te debo absolutamente nada más.
 
-Dio meda vuelta y atravesó la puerta chocando con el hombro de Jongtae, que no se quejó ante el choque. Séfora estaba en shock y la mirada de Taeku y Jongtae no la ayudaron para nada en esa situación, sabía que había sobrepasado una línea que ni tendría que haber mirado.
+Dio meda vuelta y atravesó la puerta chocando con el hombro de Jongtae, que no dijo nada. Séfora estaba en shock y la mirada de Taeku y Jongtae no la ayudaron para nada, sabía que había sobrepasado una línea que no tendría que haber mirado.

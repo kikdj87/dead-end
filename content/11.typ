@@ -2,7 +2,7 @@
 
 Comenzó una nueva semana. Tras una ducha refrescante después de una mañana de entrenamiento con Taeku, Séfora miró la ropa que había escogido en especial para aquel día. Se puso los pantalones de traje de color negro con calma y antes de abrocharse el botón se puso una camisa azul celeste y la abotonó. Las mangas le quedaban un poco por debajo del hombro y sonrió satisfecha al ver que al abotonarla quedaba perfecta. Se metió los faldones dentro del pantalón y finalmente se lo abrochó.
 
-Se miró al espejo de cuerpo entero que tenía en el dormitorio y respiró profundamente. No se sentía ella misma cuando le tocaba reunirse con gente y llevar aquel estilo de ropa, pero ya se había acostumbrado. Se recogió el pelo en un moño bajo y se fue a la cocina percatándose del ruido de la escalera mientras alguien bajaba. Junnosuke abrió la puerta y asomó la cabeza.
+Se miró al espejo de cuerpo entero que tenía en el dormitorio y respiró profundamente. No se sentía ella misma cuando le tocaba llevar aquel estilo de ropa, pero ya se había acostumbrado. Se recogió el pelo en un moño bajo y se fue a la cocina percatándose del ruido de la escalera mientras alguien bajaba. Junnosuke abrió la puerta y asomó la cabeza.
 
 ---Buenos días Séfora -- Sonrió y entró en la casa al verla en la cocina ---, ¿has dormido bien?
 
@@ -16,7 +16,7 @@ Se miró al espejo de cuerpo entero que tenía en el dormitorio y respiró profu
 
 ---En fin ---alzó la mano molesta restando importancia y terminó el café, siguiendo la conversación ---. Salí a tomar un café con alguien que no me trataba como la hija heredera de un tipo todo poderoso que manejaba el mundo a su antojo. Me trató como una chica normal ---respiró hondo, dejó a un lado la taza y se llevó ambas manos al pecho para señalarse -- Nunca he sabido quien soy, pero no soy esto que estás viendo ahora mismo.
 
----Tal vez ---se colocó algo más cerca de ella y apoyó su mano sobre su hombro ---, esto es una etapa, no será para siempre. Tienes 19 años. Aún tienes que conocer de dónde vienes y lo que vas a hacer el resto de tu vida. No lo has escogido, pero es lo que eres ahora mismo.
+---Tal vez ---se colocó algo más cerca de ella y apoyó su mano sobre su hombro ---, esto es una etapa, no será para siempre. Tienes diecinueve años. Aún tienes que conocer de dónde vienes y lo que vas a hacer el resto de tu vida. No lo has escogido, pero es lo que eres ahora mismo.
 
 Hubo un momento de silencio entre ambos, Junnosuke parecía sentir el desasosiego que Séfora sentía en aquel momento, así que le dio unas palmadas en la espalda con suavidad como si fuera otro de sus hermanos mayores.
 
@@ -26,7 +26,7 @@ Hubo un momento de silencio entre ambos, Junnosuke parecía sentir el desasosieg
 
 ---Estarías muerta ---sentenció como si nada pero cuando vio el rostro de horror de la chica y que había dejado caer la mano de su rostro se sintió mal ---. Perdón, me he pasado, perdón.
 
-Le dio la espalda y fregó la taza en la que había tomado café. Junnosuke pilló la indirecta y se marchó al piso superior coincidiendo en el camino con Hyungmin y Taeku, que iban directos al garaje, que era ahí donde habían quedado para tomar el coche e ir a la nueva reunión del día. Séfora no tenía ganas de conocer a más gente, pero sabía que no tenía alternativa.
+Le dio la espalda y fregó la taza en la que había tomado café. Junnosuke pilló la indirecta y se marchó al piso superior coincidiendo en el camino con Hyungmin y Taeku, que iban directos al garaje. Ahí donde habían quedado para tomar el coche e ir a la nueva reunión. Séfora no tenía ganas de conocer a más gente, pero sabía que no tenía alternativa.
 
 Los tres se montaron en el coche una vez estaban listos y fueron en silencio hasta un local de juegos de azar que había en los suburbios de Tokio. Parecía una zona sucia y llena de delincuencia. Se bajaron del coche los tres y entraron dentro del local, el cual estaba lleno de gente frente a unas máquinas, otros jugaban a cartas pero lo que tenían todos en común era el agotamiento mental y el apostar dinero.
 
@@ -52,9 +52,9 @@ Su pelo era canoso y estaba recortado por el cuello y las orejas. Fumaba un puro
 
 ---Me llamo Séfora ---dijo con rostro serio, algo molesta por el tono que había tomado al referirse a ella.
 
----Chica, no me voy a molestar en aprender como se dice tu nombre ---apagó el puro en el cenicero y dejó la copa sobre la mesa ---. He hecho un trato ya con Keiken, así que habéis llegado tarde. Sanghun aquí no pinta nada ya.
+---Chica, no me voy a molestar en aprender como se dice tu nombre ---apagó el puro en el cenicero y dejó la copa sobre la mesa ---. He hecho un trato ya con Keiken, así que habéis llegado tarde. Ten Shio aquí no pinta nada ya.
 
----Pero es que yo no soy Sanghun ---alzó una ceja.
+---Pero es que yo no soy Ten Shio ---alzó una ceja.
 
 ---Me da igual ---abrió los brazos y luego metió las manos en los bolsillos ---. Aoi y Kanon os acompañarán a la salida.
 
@@ -80,13 +80,13 @@ Uno era más alto que el otro y parecía más mayor de edad, tenía el pelo algo
 
 Sin decir nada de lo que había pasado se montaron en el coche y fueron directos a la empresa principal.
 
----Pues ellos son Aoi y Kanon ---dijo Hyungmin sentado en la parte delantera del copiloto, girado hacia ella ---, el del pelo largo es Aoi ---especificó mientras asentía ---, ah, y el otro memo es el Katsura de las narices ---resopló.
+---Pues ellos son Aoi y Kanon ---dijo Hyungmin sentado en la parte delantera del copiloto, girado hacia ella ---, el del pelo largo es Aoi ---especificó mientras asentía ---, ah, y el otro memo es Katsura de las narices ---resopló.
 
 ---¿Quién era importante conocer en esa reunión? ---dijo Séfora con curiosidad.
 
 ---Los tres ---dijo Taeku pensativo a su lado.
 
-Los demás chicos ya les estaban esperando en la empresa, no hacía falta que todos fueran a todas las reuniones, así que se turnaban con Taeku para acompañarla en cada reunión.
+Los demás chicos ya les estaban esperando en la empresa, no hacía falta que todos fueran juntos, así que se turnaban con Taeku para acompañarla en cada salida.
 
 ---¿Qué te ha dicho Aoi? ---preguntó Séfora con curiosidad.
 
@@ -96,7 +96,7 @@ Llegaron al aparcamiento del edificio y se bajaron del coche. Allí frente al as
 
 ---Esto es serio ---Taeku llamó por teléfono y puso el manos libres, dejando este en el centro de la mesa. Sanghun contestó al otro lado del altavoz ---. Tenemos un problema.
 
----Keiken y Katsura, ¿verdad? ---dijo la voz tranquila del hombre al otro lado. Taeku afirmó con un rotundo _sí_ ---. Ya me lo veía venir. Keiken ha ido con Mina haciendo el mismo recorrido que vosotros.
+---Keiken y Katsura, ¿verdad? ---dijo la voz tranquila del hombre al otro lado. Taeku afirmó con un rotundo _sí_ ---. Ya me lo veía venir. Keiken ha estado metiendo a Mina por todos lados.
 
 ---¿Por qué mi hermana? ---dijo de pronto Jongtae ---. De verdad que sigo sin entenderlo.
 
@@ -108,17 +108,17 @@ Llegaron al aparcamiento del edificio y se bajaron del coche. Allí frente al as
 
 ---Asimilar o no, Jongtae tiene el mismo derecho de estar donde está que Mina, de hecho, tiene el mismo derecho de regir esto que una piedra en el trono de un reino ---dijo Taeku bastante molesto.
 
----Yo quiero estar bien al margen ---dijo Tae alzando las manos ---, y mi hermana se ha metido en un marrón bastante feo.
+---Yo quiero estar bien al margen ---dijo Tae alzando las manos ---. Mi hermana se ha metido en un marrón bastante feo.
 
----Lo que está haciendo Keiken es que, ya que quieren meter a una chica en el liderazgo, que sea una que ha crecido dentro de este mundo ---Sanghun parecía beber algo al otro lado de la línea ---aunque tenga la cara de su padre, para la mayoría Séfora es una extranjera.
+---Lo que está haciendo Keiken es que, ya que quieren meter a una chica en el liderazgo, que sea una que ha crecido dentro de este mundo. Alguien a que él puede controlar ---Sanghun parecía beber algo al otro lado de la línea ---aunque tenga la cara de su padre, para la mayoría Séfora es una extranjera.
 
-Séfora estaba escuchando esa conversación en silencio, con los brazos cruzados bastante molesta por como hablaban de ella. Sabía que tenían razón, muchas de las reuniones que había tenido habían sido muy duras de asimilar y que les aceptaran, prometiendo cosas que ni ella misma conocía bien del todo. No se había criado allí y eso era un factor bastante importante para las personas que vivían de ese mundo. Cuando se cansó de ser una simple espectadora en esa conversación se inclinó hacia delante mirando el teléfono que estaba en el centro de la mesa.
+Séfora estaba escuchando esa conversación en silencio, con los brazos cruzados bastante molesta por como hablaban de ella. Aunque sabía que tenían razón, no se había criado allí y eso era un factor bastante importante para las personas que vivían de ese mundo. Cuando se cansó de ser una simple espectadora en esa conversación se inclinó hacia delante mirando el teléfono que estaba en el centro de la mesa.
 
----Soy capaz de olvidar todo lo que soy con tal de estar donde estoy, de ser capaz de estar a la cabeza de este asco de organización ---dijo bastante seria. Se contradecía con sus pensamientos, pero estaba cansada de dar tantas vueltas de un lado para otro y necesitaba ya ver la realidad, la cual era estar donde estaba y tener el cargo que debía tener ---. Así que les callaré la maldita boca a todos esos. Y si Katsura quiere estar bien, tendrá que saber a quien le debe su lealtad.
+---Soy capaz de olvidar todo lo que soy con tal de estar donde debo estar, de ser capaz de estar a la cabeza de este asco de organización ---dijo bastante seria. Se contradecía con sus pensamientos, pero estaba cansada de dar tantas vueltas de un lado para otro y necesitaba ya ver la realidad ---. Así que les callaré la maldita boca a todos esos. Y si Katsura quiere estar bien, tendrá que saber a quien le debe su lealtad.
 
----No sabes lo que me gusta escucharte decir eso, Séfora, muy bien ---dijo Sanghun bastante animado ---. Pero no hagas nada, tengo allí a dos personas que lo están vigilando todo el tiempo.
+---No sabes lo que me ha gustado escuchar eso, Séfora, muy bien ---dijo Sanghun bastante animado ---. Pero no hagas nada, tengo allí a dos personas que lo están vigilando todo el tiempo.
 
----Ah, hablando de ellos ---dijo Taeku rápidamente ---, me ha dicho Aoi que el tiroteo lo organizó Keiken y que Katsura lo realizó. Y que además tienen organizado algo más para espantar a la chica.
+---Ah, hablando de ellos ---dijo Taeku rápidamente ---. Me ha dicho Aoi que el tiroteo lo planeó Keiken y que Katsura lo ejecutó. Y que además tienen organizado algo más para espantar a la chica.
 
 ---¿Te dijo todo eso? ---Séfora se sorprendió, ya que a penas fueron unos segundos que Aoi le habló al oído.
 
@@ -126,24 +126,26 @@ Séfora estaba escuchando esa conversación en silencio, con los brazos cruzados
 
 ---Ya lo sé…
 
----Por cierto ---dijo cambiando el tono de voz, sonó más agradable ---, si tuvieras que hablar con alguien externo a ti, sobre a qué te dedicas o a qué se dedican los chicos ¿qué le dirías?
+---Por cierto ---dijo cambiando el tono de voz, sonó más agradable ---, si tuvieras que hablar con alguien externo a ti, sobre a qué te dedicas ¿qué le dirías?
 
----Pues ---se quedó pensando y apretó los labios en una línea. Ya había estado en esa situación ---. No lo sé, he pensado que son mis guardias.
+---Pues ---se quedó pensando y apretó los labios en una línea. Ya había estado en esa situación ---. Aún no me he visto en esa posición.
 
----No está mal, pero, ¿de qué? ---Sanghun soltó una pequeña risa y se aclaró la garganta ---. La función principal del edificio en el que estáis es una empresa de entretenimiento ---dijo, hizo una pausa ---. Es una forma fácil de blanquear el trabajo que tenemos con modelos, cantantes y actores. Así nos dejan tranquilo por la cantidad de dinero que movemos en toda Asia.
+---Te voy a explicar ---Sanghun soltó una pequeña risa y se aclaró la garganta ---. La función principal del edificio en el que estáis es una empresa de entretenimiento ---dijo, hizo una breve pausa ---. Es una forma fácil de blanquear el trabajo que tenemos. Usando modelos, cantantes y actores. Así nos dejan tranquilo por la cantidad de dinero que movemos en toda Asia.
 
 ---Entiendo ---Séfora tomó aire y lo echó poco a poco ---. ¿Soy modelo o algo del estilo?
 
 ---No ---se echó a reír más fuerte ---. No me malinterpretes, no es que no sirvas para modelo, pero no te vamos a poner en un nivel así. Digamos que eres una directora general de un departamento de algo que subiremos de nivel en un par de años.
 
----Ah, vale ---respiró aliviada pensando en la mentira que le había contado a Yongsun, al final no era tan mentira.
+---Ah, vale ---respiró aliviada pensando en la mentira que le contaría a Yongsun.
 
 ---De todas formas lleva cuidado. No se puede hablar o entablar amistad con mucha gente desconocida y más en tu situación ---Sanghun hablaba con calma, como si fuera un tema normal que tratar. Pero ella sabía perfectamente por qué se lo decía y sentía las miradas de Taeku y Jongtae ---. Solo tienes que ser precavida y no pasará nada malo.
 
----Lo sé, lo entiendo ---dijo seria y dio un leve respingo al sentir el vibrar de su teléfono en el bolsillo del pantalón.
+---Lo sé, lo entiendo. Tampoco tengo mucha oportunidad de hacerlo ---dijo seria y dio un leve respingo al sentir el vibrar de su teléfono en el bolsillo del pantalón.
 
-Taeku siguió hablando con Sanghun de varias cosas, así que Séfora aprovechó para ir hacia la ventana y sacar el teléfono, donde vio un mensaje que Yongsun le había mandado, como si supiera que estaban hablando de él hacía tan solo unos segundos.
+Taeku siguió hablando con Sanghun. Séfora aprovechó para ir hacia la ventana y sacar el teléfono, donde vio un mensaje que Yongsun le había mandado, como si supiera que estaban hablando de él hacía tan solo unos segundos.
 
-Le había mandado una foto de un templo bastante famoso llamado Santuario Meiji Jingu donde estaba con un grupo turístico, aprendiendo como se desenvolvían en Japón. En la foto le decía que aquel lugar era mágico y que tendrían que ir juntos a visitarlo. Estaba aprendiendo mucho de los lugares más bonitos y emblemáticos para ser el guía turístico especial de Séfora.
+Le había mandado una foto de un templo bastante famoso llamado Santuario Meiji Jingu donde estaba con un grupo turístico, aprendiendo como se desenvolvían en Japón. En la foto le decía que aquel lugar era mágico y que tendrían que ir juntos a visitarlo. Estaba aprendiendo mucho de los lugares más bonitos y emblemáticos para poder enseñárselos a ella en un futuro.
 
-Debía admitir que aquella conversación que estaba teniendo por mensajes con Yongsun hizo que olvidara lo que había dicho hacía unos minutos. Notó mariposas en el estómago y tan solo tenía ganas de verle y pasar tiempo con él. Pero era consciente que no podía llegar a más, ¿qué pasaría si él descubría quién era en realidad? Intentaba pensar en que aquella relación estaba prohibida, pero algo en su interior le hacía querer investigar más sobre lo que sentía.
+Debía admitir que aquella conversación que estaba teniendo por mensajes con Yongsun hizo que olvidara lo que había dicho hacía unos minutos. Notó mariposas en el estómago y tan solo tenía ganas de verle y pasar tiempo con él.
+
+Era consciente que no podía llegar a más, ¿qué pasaría si él descubría quién era en realidad? Intentaba pensar en que aquella relación estaba prohibida, pero algo en su interior le hacía querer investigar más sobre lo que Yongsun le estaba despertando.
