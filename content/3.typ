@@ -1,10 +1,12 @@
+#import "util.typ": separador
+
 = Capítulo 3
 
 Aseada y nerviosa, Séfora esperaba a que aquel desconocido apareciera por el ascensor en cualquier momento.
 
 ---Ten Shio quiere asegurarse de que todo ha ido bien ---Taeku estaba un par de pasos detrás de ella mirándose el reloj ---. Quiere ver que estás bien informada.
 
----Pero es que no sé nada ---dijo Séfora sobresaltada ---, si yo hace básicamente nada supe de la existencia de mi abuelo Watashime. Qué narices voy a saber yo de ser dueña de un centro comercial y del manejo y el cuidado de las tiendas.
+---Pero si no lo estoy ---dijo Séfora sobresaltada ---, si yo hace básicamente nada supe de la existencia de mi abuelo Watashime. Qué narices voy a saber yo de ser dueña de un centro comercial y del manejo y el cuidado de las tiendas.
 
 ---Taeku, qué metáfora más buena ---dijo Junnosuke desde el otro lado del apartamento.
 
@@ -56,39 +58,45 @@ Para los chicos era bastante obvio que antes de ir o de hacer cualquier cosa, S�
 
 Séfora lo miró desolada. Estaría viviendo con cinco desconocidos aprendiendo un idioma desconocido. Tendría que aprender sobre una empresa desconocida y, además, aprender sobre su liderazgo.
 
----Oye Séfora, sé que esto no lo quieres escuchar ahora, pero necesitas saberlo ---Taeku llevaba el móvil en la mano y se lo enseñó ---. Ha salido ya la noticia de lo que pasó en Madrid.
+---Oye Séfora, sé que esto no lo quieres escuchar ahora, pero necesitas saberlo ---Taeku llevaba el móvil en la mano y se lo enseñó ---. Ha salido una noticia de lo que pasó en Madrid.
 
 ---¿Qué? ---agarró el teléfono con ambas manos y leyó la noticia varias veces. Estaba impactada ---. Los han matado... por mi culpa.
 
 ---No ha sido culpa tuya ---Jongtae colocó la mano sobre su hombro.
 
-La noticia hablaba de un allanamiento y robo, y los abuelos habían sido victimas de aquel brutal ataque. No se habló nada de una tercera persona. Parecía una noticia digna de salir en todos los medios de comunicación, pero a penas se había profundizado en lo ocurrido. Séfora admitió que el grupo de su familia tenía mucho poder en todo el mundo.
+La noticia hablaba de un allanamiento y robo, y los abuelos habían sido victimas de aquel brutal ataque. No se habló nada de una tercera persona. Parecía una noticia digna de salir en todos los medios de comunicación, pero a penas se había profundizado en lo ocurrido. Séfora admitió que el grupo de la familia Watashime tenía mucho poder en todo el mundo.
 
-Séfora se inclinó hacia delante y se tapó la cara con ambas manos mientras parecía que lloraba, pero ninguna lágrima se podía ver por su rostro.
+---No quiero sonar muy duro con esto pero no podemos perder más tiempo ---dijo Taeku en cuclillas frente a la chica ---. Siento mucho lo de tus abuelos.
 
----No quiero sonar muy duro con esto ---dijo Taeku en cuclillas frente a la chica ---. No podemos perder más tiempo. Siento mucho lo de tus abuelos.
+No lloraba, pero una quietud gélida la envolvía, como si el aire a su alrededor se hubiera solidificado. Cuando Taeku le preguntó si estaba bien, ella tardó un momento en responder.
 
----No sé como sentirme ---se destapó la cara y se dejó ver triste ---, nunca me sentí querida por ellos, pero también me lo han dado todo.
+---Es solo... que ya no queda nadie de... antes. Ni siquiera para discutir ---dijo en apenas un susurro.
+
+Un recuerdo fugaz de su abuela sirviéndole el desayuno en silencio, un deber cumplido sin una pizca de calidez, le apretó el pecho.
+
+---Me dieron un techo, pero nunca me enseñaron cómo se sentía un hogar ---dijo Séfora bajando la cabeza.
+
+La culpa, fría y afilada, se retorció en su estómago. Y ahora, por su culpa, ni siquiera ese techo existía ahora.
 
 ---Entiendo ese sentimiento muy bien ---Taeku se sentó a su lado y soltó un profundo suspiro bajando la cabeza ---. Es muy duro. Pero créeme que vas a salir de esto. A partir de ahora nos tienes a nosotros. Seremos tu nueva familia.
 
 ---Cierto ---Jongtae sonrió ---, vamos a estar contigo en lo bueno y en lo malo.
 
-Séfora asintió y se encogió un poco en el sofá. Había perdido muchas cosas de golpe y aún se sentía reacia a poder considerarles una familia como habían dicho.
+Séfora asintió con la mirada perdida y se encogió un poco en el sofá. Había perdido muchas cosas de golpe y aún se sentía reacia a poder considerarles una familia, como ellos habían dicho.
 
-Para Séfora fue el año más duro y difícil que había vivido.
+#separador
 
-Los tres primeros meses fueron de clases intensivas de japonés. Desde el amanecer hasta el anochecer Yonghwa se dedicó a enseñarle desde lo más básico hasta cómo interpretar documentos oficiales. El chico no tenía mucha paciencia cuando ella se equivocaba, así que Séfora descubrió una nueva faceta de él. Cuando Yonghwa se frustraba acababa golpeando lo que tenía más a mano.
+Los tres primeros meses fueron de clases intensivas de japonés. Yonghwa fue el primero que propuso enseñarle el idioma. El chico no tenía mucha paciencia cuando ella se equivocaba, así que Séfora descubrió una nueva faceta suya, cuando Yonghwa se frustraba acababa golpeando lo que tenía más a mano.
 
----No es tan difícil ---Yonghwa, que siempre había sido más tranquilo, daba vueltas al rededor de la mesa que habían puesto en el comedor. Ésta estaba llena de papeles con kanjis de lo más complejos ---. Solo tienes que copiar una y otra vez.
+---No es tan difícil ---Yonghwa, que siempre había sido más tranquilo, daba vueltas al rededor de la mesa que habían puesto en el comedor. Tenía el cuerpo rígido de la tensión y el ceño fruncido ---. Solo tienes que copiar una y otra vez.
 
 ---Ya basta ---Junnosuke agarró a su compañero del brazo y le miró con gesto divertido ---. Creo que de esto debería encargarme yo.
 
 Yonghwa miró a ambos chicos y en un fuerte resoplido se marchó de allí desapareciendo.
 
----Jamás imaginé que hablara así ---Séfora se llevó la mano al pecho algo asustada.
+---Jamás imaginé que se fuera a poner así ---Séfora se llevó la mano al pecho algo asustada.
 
----Lo sé ---Junnosuke soltó una pequeña risa y apartó los papeles que habían en la mesa. Por el contrario colocó con mucho cuidado un montón de libros infantiles en su lugar ---. Parece que han olvidado como de verdad se aprende un idioma.
+---Lo sé ---Junnosuke soltó una pequeña risa y apartó los papeles que habían en la mesa. Por el contrario colocó con mucho cuidado un montón de libros infantiles ---. Parece que han olvidado como de verdad se aprende un idioma.
 
 Ella sintió un gran alivio al continuar de aquella manera su aprendizaje con el idioma. Desde entonces fue Junnosuke el que le enseñó el japonés. Los momentos que pasaban con el chico hicieron que los malos momentos con Yonghwa se olvidaran.
 
@@ -152,6 +160,4 @@ El esquema de poder era bastante complejo. En lo más alto estaría el abuelo Wa
 
 ---Es un trabajo bastante sucio, pero ahora mismo no tendrás que mancharte las manos para nada ---Jongtae concluyó con media sonrisa, preocupado por su gesto serio.
 
----Ahora mismo... ---ella repitió.
-
-Sabía que tendría que hacer cualquier cosa para mantenerles a raya y hacerse de valer. Aunque aquello rozara la ilegalidad. Y sobre todo, sabía que debía proteger la tapadera que se habían construido.
+---Ahora mismo... ---ella repitió con gesto de disgusto.

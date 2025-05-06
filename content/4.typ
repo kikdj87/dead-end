@@ -2,8 +2,6 @@
 
 Y había pasado un año.
 
-Séfora había sufrido una evolución obligatoria, había dejado de ser una adolescente para empezar a ser una mujer.
-
 El viaje a Japón ya estaba preparado para finales de ese mismo mes de Julio. Todo estaba estrictamente dispuesto para que cuando llegara tuviera las reuniones pertinentes. Debía conocer a las personas importantes que su abuelo había dejado al cargo en cada país.
 
 Cuando se dio cuenta de que se marcharía para nunca volver, solo pensaba en que necesitaba despedirse del país que le había visto crecer. Por que suplicó y suplicó que la dejaran sola durante solo un día.
@@ -45,7 +43,7 @@ Parecía que no quería estar allí. Su timbre de voz era dulce y cautivador. S�
 
 Aquello ya no le sorprendió mucho. Había mucha gente que la conocía sin que ella fuera consciente de su existencia. Miró a todos lados buscando una salida rápida, sabía que no podía enfrentarse a él porque tenía las de perder.
 
-Keiken se percató de lo que ella quería hacer y se giró un poco para mirar a su alrededor. Negó con la cabeza mientras se encogía de hombros y se hizo a un lado para dejando ver que en realidad no quería hacerle daño. Había espacio entre Séfora y su salida.
+Keiken se percató de lo que ella quería hacer y se giró un poco para mirar a su alrededor. Negó con la cabeza mientras se encogía de hombros y se hizo a un lado para dejar ver que en realidad no quería hacerle daño. Había espacio entre Séfora y su salida.
 
 ---No voy a tardar mucho ---se giró de nuevo hacia ella y esta vez dio largas zancadas hasta estar a menos de un metro de ella. Olía bastante bien a un perfume dulce mezclado con un ligero toque a alcohol y tabaco ---. Solo quería verte de cerca, es todo.
 
@@ -57,7 +55,7 @@ Séfora se pudo fijar en una ladina y siniestra sonrisa que se asomó por sus la
 
 ---Nos volveremos a ver pronto. Espero que no sea aquí sino en casa ---hizo una leve inclinación de cabeza y se giró hacia uno de los paseos del parque.
 
-Aquella aura amenazante dejó a la chica bloqueada, mirando como desaparecía. Séfora echó a correr hacia donde había ido Keiken pero se había esfumado, no había rastro de él.
+Aquella aura amenazante dejó a la chica bloqueada, mirando como desaparecía. Las piernas le tardaron en responder por el miedo, pero echó a correr hacia donde había ido Keiken. Y en un momento se había esfumado.
 
 Con la mano en el pecho y el corazón latiendo con fuerza se marchó al piso. Había sido demasiado ingenua al salir ella sola a pasear, aún existían amenazas a su alrededor.
 
