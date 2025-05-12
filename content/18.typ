@@ -62,11 +62,11 @@ Séfora despertó con dolor de cuerpo por estar tantas horas en la cama. Estaba 
 
 ---En su despacho ---respondió el chico ---. ¿Quieres que le diga que venga?
 
--- No, iré yo.
+---No, iré yo.
 
 Jongtae dejó intimidad a la chica que con dolor se cambió de ropa.Vió que en el armario estaba toda su ropa de forma muy ordenada así que soltó un suspiro. Se colocó el traje de chaqueta que llevó en el cumpleaños de Katashi, solo que esta vez decidió ponerse una camisa blanca bajo la chaqueta. Se dejó el pelo lacio suelto y se peinó con cuidado, no podía hacer mucho movimiento con los brazos por el impacto recibido.
 
-Se colocó los uwabaki que estaban al lado del armario, los típicos que se llevaban en las viviendas allí, y salió de la habitación. Jongtae estaba apoyado en la pared al lado de la puerta.
+Se colocó los uwabaki que estaban al lado del armario y salió de la habitación. Jongtae estaba apoyado en la pared al lado de la puerta.
 
 ---Te acompaño ---dijo él.
 

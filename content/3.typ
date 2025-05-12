@@ -6,7 +6,7 @@ Aseada y nerviosa, Séfora esperaba a que aquel desconocido apareciera por el as
 
 ---Ten Shio quiere asegurarse de que todo ha ido bien ---Taeku estaba un par de pasos detrás de ella mirándose el reloj ---. Quiere ver que estás bien informada.
 
----Pero si no lo estoy ---dijo Séfora sobresaltada ---, si yo hace básicamente nada supe de la existencia de mi abuelo Watashime. Qué narices voy a saber yo de ser dueña de un centro comercial y del manejo y el cuidado de las tiendas.
+---Pero si no lo estoy ---dijo Séfora sobresaltada ---, si yo hace básicamente nada supe de la existencia de mi abuelo Watashime. ¿Qué narices voy a saber yo de ser dueña de un centro comercial y del manejo y el cuidado de las tiendas?
 
 ---Taeku, qué metáfora más buena ---dijo Junnosuke desde el otro lado del apartamento.
 
@@ -28,7 +28,7 @@ El que estaba en medio era un señor bastante mayor, algo bajo y delgado con el 
 
 ---Oh, si es la viva imagen de su padre ---el hombre se acercó a Séfora pasando de los chicos y agarró la mano de ella entre las dos suyas. Estaban algo ásperas y frías. A Séfora no le gustó aquel gesto ---. Soy Ten Shio. Era el mejor amigo de tu abuelo. Mucho gusto Séfora, me alegra poder conocerte al fin.
 
----Lo... mismo digo ---casi murmuró inclinada hacia atrás. Le apestaba el aliento a tabaco mezclado con menta y para ella era bastante desagradable. A pesar que acababa de ser consciente de su existencia, no le gustaba, pero quería ser cordial.
+---Lo... mismo digo ---casi murmuró inclinada hacia atrás. Le apestaba el aliento a tabaco mezclado con menta y para ella era bastante desagradable. A pesar de que acababa de ser consciente de su existencia, no le gustaba, pero quería ser cordial.
 
 ---Sé que hasta ayer no sabías nada de nosotros, ha sido todo repentino ---dijo Ten Shio. La llevó hasta el sofá e indicó que se sentara y él se sentó a su lado ---. Siento que te hayas tenido que enterar de todo esto en estas circunstancias. Lamento tu pérdida.
 
@@ -50,7 +50,7 @@ Inclinó la cabeza hacia la chica en una muy ligera y poco respetuosa reverencia
 
 ---Claro ---Jongtae asintió desconcertado ---, es que no sabes japonés...
 
-Para los chicos era bastante obvio que antes de ir o de hacer cualquier cosa, Séfora tenía que aprender japonés. Para ella era estar un año encerrada. Jongtae que se sentó a su lado.
+Para los chicos era bastante obvio que antes de ir o de hacer cualquier cosa, Séfora tenía que aprender japonés. Para ella era estar un año encerrada. Jongtae se sentó a su lado.
 
 ---¿Me voy a quedar aquí encerrada un año aprendiendo japonés? ---Séfora giró la cara para mirar a Jongtae.
 
@@ -64,7 +64,7 @@ Séfora lo miró desolada. Estaría viviendo con cinco desconocidos aprendiendo 
 
 ---No ha sido culpa tuya ---Jongtae colocó la mano sobre su hombro.
 
-La noticia hablaba de un allanamiento y robo, y los abuelos habían sido victimas de aquel brutal ataque. No se habló nada de una tercera persona. Parecía una noticia digna de salir en todos los medios de comunicación, pero a penas se había profundizado en lo ocurrido. Séfora admitió que el grupo de la familia Watashime tenía mucho poder en todo el mundo.
+La noticia hablaba de un allanamiento y robo, y los abuelos habían sido victimas de aquel brutal ataque. No se habló nada de una tercera persona. Parecía una noticia digna de salir en todos los medios de comunicación, pero apenas se había profundizado en lo ocurrido. Séfora admitió que el grupo de la familia Watashime tenía mucho poder en todo el mundo.
 
 ---No quiero sonar muy duro con esto pero no podemos perder más tiempo ---dijo Taeku en cuclillas frente a la chica ---. Siento mucho lo de tus abuelos.
 
@@ -88,7 +88,7 @@ Séfora asintió con la mirada perdida y se encogió un poco en el sofá. Había
 
 Los tres primeros meses fueron de clases intensivas de japonés. Yonghwa fue el primero que propuso enseñarle el idioma. El chico no tenía mucha paciencia cuando ella se equivocaba, así que Séfora descubrió una nueva faceta suya, cuando Yonghwa se frustraba acababa golpeando lo que tenía más a mano.
 
----No es tan difícil ---Yonghwa, que siempre había sido más tranquilo, daba vueltas al rededor de la mesa que habían puesto en el comedor. Tenía el cuerpo rígido de la tensión y el ceño fruncido ---. Solo tienes que copiar una y otra vez.
+---No es tan difícil ---Yonghwa, que siempre había sido más tranquilo, daba vueltas alrededor de la mesa que habían puesto en el comedor. Tenía el cuerpo rígido de la tensión y el ceño fruncido ---. Solo tienes que copiar una y otra vez.
 
 ---Ya basta ---Junnosuke agarró a su compañero del brazo y le miró con gesto divertido ---. Creo que de esto debería encargarme yo.
 
@@ -124,7 +124,7 @@ Por más que ella golpeaba fue imposible darle. Taeku mantenía una calma divert
 
 Taeku volvió a colocarse en posición y esbozó media sonrisa. Séfora miró atenta su cuerpo, la posición de sus brazos y las piernas. Se cubría parte del rostro con los antebrazos y la posición encorvada protegía su abdomen.
 
-Dio pequeños pasos al rededor de él. Taeku no perdía ojo en cada movimiento que ella hacía.
+Dio pequeños pasos alrededor de él. Taeku no perdía ojo en cada movimiento que ella hacía.
 
 Esta vez no soltó ningún sonido cuando algo agachada se lanzó a golpear su rostro pero en el último momento, cuando él alzó los brazos para cubrirse, ella aprovechó para golpear su costado con el otro brazo. Era un movimiento que había estado hablando anteriormente con él, era complejo pero servía para distraer.
 
@@ -144,7 +144,7 @@ De vez en cuando hacían pequeñas salidas por la ciudad para tomar el aire. Pas
 
 Séfora estaba cansada de la lástima que a veces despertaba en ellos cuando le preguntaban por su pasado. A pesar de vivir una vida de lo más normal, nunca había buscado hacer muchos amigos. Veía en ellos relaciones superficiales que sabía que no conservaría en su vida por mucho tiempo. Pero sí tenía que admitir que había echado de menos un confidente a su lado como otros compañeros tenían.
 
-Cuando al fin supo cómo leer un periódico le dejaron explorar la carpeta que Taeku le enseñó el primer día.
+Cuando al fin supo cómo leer un periódico en japonés, le dejaron explorar la carpeta que Taeku le enseñó el primer día.
 
 Era una empresa complicada, pero poco a poco iba entendiendo que tenían a muchos grupos de personas bajo su poder.
 
@@ -160,4 +160,4 @@ El esquema de poder era bastante complejo. En lo más alto estaría el abuelo Wa
 
 ---Es un trabajo bastante sucio, pero ahora mismo no tendrás que mancharte las manos para nada ---Jongtae concluyó con media sonrisa, preocupado por su gesto serio.
 
----Ahora mismo... ---ella repitió con gesto de disgusto.
+---_Ahora mismo_... ---ella repitió con gesto de disgusto.

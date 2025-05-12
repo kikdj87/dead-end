@@ -1,5 +1,5 @@
 = Capítulo 19
-
+//tratar de meter a Mina en la conversación con Ten Shio para que se vea que Séfora es vulnerable y a nadie le gusta eso.
 El sol se estaba escondiendo entre los altos edificios que se veían por el gran ventanal que había tras el despacho. Ten Shio estaba de pie mirando por este con las manos en los bolsillos, esperando a que la gente empezara a llegar.
 
 Sanghun había insistido mucho en esta reunión a última hora, así que ahí estaba, esperando a que por primera vez en mucho tiempo, el abogado saliera de su casa. Siempre, al menos para él, participaba desde su despacho desconocido a las afueras de la ciudad. Hasta para residir era misterioso.

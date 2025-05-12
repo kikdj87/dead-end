@@ -120,8 +120,12 @@ Pero el dolor del pecho no se iba con medicinas.
 
 En otra había un montón de nombres de asesinos a sueldo que tenía repartidos por todo el mundo para vigilar cada acuerdo. Necesitaban verificar que las personas que contrataban eran leales y cumplían con las órdenes asignadas.
 
----Y así un sin fin de papeleos y viajes que hay que hacer. Que por ahora está haciendo Ten Shio porque aún no tienes la edad legal ---mientras Sanghun iba explicando las cosas ella intentó poner expresión neutra ya que saber todo aquello le estaba horrorizando ---. Sin embargo, esto de aquí --Sanghun sacó la tarjeta del hombre que la había visitado en el hospital ---, es del inspector Minematsu Ko. Ha puesto la mira en ti porque ha muerto una persona.
+---Y así un sin fin de papeleos y viajes que hay que hacer. Que por ahora está haciendo Ten Shio porque aún no tienes la edad legal ---se pasó la mano por el pelo y bajó por su rostro con expresión cansada ---. Mientras tú estabas jugando a los novios Mina se ha ganado unos cuantos seguidores.
 
+Séfora sintió como un cubo de agua fría caía por su cuerpo cuando dijo aquello último. No le faltaba razón. Había dejado que ganara su corazón en vez de la razón. Aguantó las lágrimas con un nudo en la garganta y una fuerte quemazón. Sanghun seguía hablando y ella tenía que ser más fuerte. Tenía que saber tragar todas esas atrocidades que estaba dando a conocer su interlocutor.
+
+---Sin embargo, esto de aquí no me gusta. Es el inspector Minematsu Ko. Ha puesto la mira en ti porque ha muerto una persona --Sanghun alzó la mano con una tarjeta entre los dedos. Aquel trozo de cartón la sacó de sus pensamientos. Creyó recordar que era la tarjeta que le habían entregado en el hospital.
+       
 ---Entiendo ---dijo ella de pronto frunciendo el ceño. Por un momento se le pasó por la cabeza tirarlo todo por la borda. Buscar al policía y confesar la organización criminal que tenía, pero también recordó que en todos los documentos que Sanghun había mostrado habían altos cargos de la policía y políticos importantes.
 
 ---Pues no se nota. Debes de ser más consciente que no puedo permitirme el lujo de matar a un policía sin ningún motivo. No me da la vida para seguir sobornando y comprando a las personas ---soltó un suspiro y bebió de la copa, volviendo a dejar esta en la mesa ---. El vino español es el mejor del mundo, digan lo que digan los franceses ---La miró a los ojos y cambió su gesto. Suavizó sus facciones cuando alzó las cejas preocupado y abrió la aletas de la nariz respirando hondo ---. No solo no quiero que mueras para que la empresa no se pierda, es que desde la distancia te he visto crecer.
