@@ -44,7 +44,7 @@ A veces le gustaba recordar esos viejos tiempos en los que él se dedicaba a ens
 
 ---A penas tiene cinco años ---Keiken se quejó colocando un brazo delante de su hermano pequeño ---, no puede hacerlo bien.
 
----Tiene que aprender si quiere llegar a ser como vosotros ---Sanghun sujetaba una katana con una mano y la movía con agilidad de un lado a otro. Finalmente la sostuvo con ambas manos e hizo un corte contra un trozo de bambú. Limpiamente éste cayó cortado en dos partes.
+---Tiene que aprender si quiere llegar a ser como vosotros ---Sanghun sujetaba una katana con una mano y la movía con agilidad de un lado a otro. Finalmente la sostuvo con ambas manos e hizo un corte contra un trozo de bambú. Limpiamente éste cayó en dos partes.
 
 Un fuerte golpe sacó a Sanghun de su recuerdo y miró como Ten Shio tenía la mano abierta sobre la mesa tras golpear esta.
 
@@ -60,4 +60,5 @@ Ten Shio intercaló las miradas entre ambos y luego se incorporó colocándose b
 
 ---Me temo que habrá un pequeño cambio con eso ---apuntó Séfora alzando una mano ---. Sanghun se quedará a mi lado como un igual para todos nosotros.
 
----Está bien ---dijo Ten Shio. Parecía que trataba de concentrarse en no estallar y enfadarse, pero llevó bien la situación ---. 
+---Está bien ---dijo Ten Shio. Parecía que trataba de concentrarse en no estallar y enfadarse, pero llevó bien la situación ---.
+
