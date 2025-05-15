@@ -2,9 +2,9 @@
 
 Y había pasado un año.
 
-El viaje a Japón ya estaba preparado para finales de ese mismo mes de Julio. Todo estaba estrictamente dispuesto para que cuando llegara tuviera las reuniones pertinentes. Debía conocer a las personas importantes que su abuelo había dejado al cargo en cada país.
+El viaje a Japón ya estaba preparado para finales de ese mismo mes de julio. Todo estaba estrictamente dispuesto para que cuando llegara tuviera las reuniones pertinentes. Debía conocer a las personas importantes que su abuelo había dejado al cargo en cada país.
 
-Cuando se dio cuenta de que se marcharía para nunca volver, solo pensaba en que necesitaba despedirse del país que le había visto crecer. Por que suplicó y suplicó que la dejaran sola durante solo un día.
+Cuando se dio cuenta de que se marcharía para nunca volver, solo pensaba en que necesitaba despedirse del país que le había visto crecer. Por lo que suplicó y suplicó que la dejaran sola durante solo un día.
 
 Pensó muy bien lo que tenía que hacer. Había subido a la azotea para asegurarse que el coche había salido del edificio, así que con mochila en mano ella también salió.
 
@@ -35,7 +35,7 @@ Sin embargo él no se movió al ver su reacción. Tenía las manos en los bolsil
 
 Parecía que no quería estar allí. Su timbre de voz era dulce y cautivador. Séfora volvió a dar un paso hacia atrás intimidada.
 
----No tengas miedo ---él dio otro paso hacia ella encogiendo los hombros. Era mucho alto que sus compañeros ---, no voy a hacerte daño.
+---No tengas miedo ---él dio otro paso hacia ella encogiendo los hombros. Era mucho más alto que sus compañeros ---, no voy a hacerte daño.
 
 ---Repito ¿Quién eres? ---preguntó Séfora.
 
@@ -65,9 +65,9 @@ Esquivaba a la gente que aparecía de golpe delante de ella mientras paseaban in
 
 ---¿Estás loca? ---Se encontró con Hyungmin delante que agarró su brazo alzándola del suelo. Estaba jadeando y sudaba bastante ---. ¿Por qué has salido sola?
 
----Me haces daño ---Jadeó cuando se incorporó tratando se soltar su agarre. Él apretó mucho más la mano al rededor de su brazo. Sacudió ligeramente su cuerpo provocando que ella la mirara.
+---Me haces daño ---Jadeó cuando se incorporó tratando se soltar su agarre. Él apretó mucho más la mano alrededor de su brazo. Sacudió ligeramente su cuerpo provocando que ella la mirara.
 
----Él podría haberte hecho más daño. Taeku se va a enfadar cuando se entere ---Comenzaron a caminar ---. No sé en qué estabas pensando, de verdad que no eres consciente de todo el peligro.
+---Él podría haberte hecho más daño. Taeku se va a enfadar cuando se entere ---comenzaron a caminar ---. No sé en qué estabas pensando, de verdad que no eres consciente de todo el peligro.
 
 ---Hyungmin.
 
@@ -111,4 +111,4 @@ Había llegado el 26 de Julio y la casa estaba llena de maletas. Iba a comenzar 
 
 ---Sé que no fui lo que vosotros esperabais de mi madre ---comenzó a decir en voz baja ---. Crecí siendo un constante recordatorio de lo que perdisteis y cómo ocurrió. Pero sé también que me quisisteis a vuestra manera, que me disteis de todo porque realmente no me faltó nada. Sí, podría haber sido más feliz, como los niños que iban al parque con sus abuelos cada tarde, pero me bastó para crecer bien. Así que allí donde estéis lo siento. Siento que por mi culpa vuestra vida haya sido... arrebatada de esta manera tan abrupta. Yo no creo en lo divino, pero sé que vosotros creíais, así que descansad en paz.
 
-Se inclinó hacia delante y después de un momento de silencio apagó la vela de un soplido mirando la foto. Se puso en pie y la guardó de nuevo en su monedero, donde a penas tenía unos recuerdos de su vida pasada. Se lo echó en la mochila que llevaba en la espalda, salió de la habitación y lo miró todo a su alrededor: estaba lista para afrontar el día de la mejor manera posible.
+Se inclinó hacia delante y después de un momento de silencio apagó la vela de un soplido mirando la foto. Se puso en pie y la guardó de nuevo en su monedero, donde apenas tenía unos recuerdos de su vida pasada. Se lo echó en la mochila que llevaba en la espalda, salió de la habitación y lo miró todo a su alrededor: estaba lista para afrontar el día de la mejor manera posible.
