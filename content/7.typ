@@ -1,6 +1,8 @@
 = Capítulo 7
 
-Taeku había salido fuera junto con Junnosuke, arma en mano, buscando a más posibles tiradores por la zona. Aquello era un completo caos y la gente corría a resguardarse. Los coches de la policía habían aparcado en la puerta y apuntaban con las armas a los dos muchachos que acababan de salir para vigilar. Alguien había llamado a la ambulancia y ésta se abría paso entre los coches para aparcar e ir hacia la policía esperando instrucción.
+Taeku había salido fuera junto con Junnosuke, arma en mano, buscando a más posibles tiradores por la zona.
+
+Aquello era un completo caos y la gente corría a resguardarse. Los coches de la policía habían aparcado en la puerta y apuntaban con las armas a los dos muchachos que acababan de salir para vigilar. Alguien había llamado a la ambulancia y ésta se abría paso entre los coches para aparcar e ir hacia la policía esperando instrucción.
 
 Los dos chicos armados alzaron las manos para acercarse a la policía y hablar sobre lo sucedido. Taeku tenía buenos contactos por donde iba, ya conocía a unos cuantos de los agentes, así que podía hablar con ellos dando su versión del asunto. Optó por tener una postura tranquila, mientras uno de los agentes lo miraba con gesto serio.
 
@@ -14,7 +16,7 @@ Los dos chicos armados alzaron las manos para acercarse a la policía y hablar s
 
 Uno de los policías desvió la mirada hacia Junnosuke, que escoltaba a los paramédicos hacia el interior.
 
----Mira, no queremos líos —añadió Taeku, en voz más baja, dirigiéndose a uno de los agentes---. Ya sabes cómo funciona esto. Nosotros mantenemos el orden aquí, no conviene que esto se haga público... para nadie.
+---Mira, no queremos líos ---añadió Taeku, en voz más baja, dirigiéndose a uno de los agentes---. Ya sabes cómo funciona esto. Nosotros mantenemos el orden aquí, no conviene que esto se haga público... para nadie.
 
 ---Esta debería ser la última vez, Taeku ---el policía suspiró, cansado.
 
