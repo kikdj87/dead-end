@@ -1,45 +1,5 @@
 = Capítulo 7
 
-Después una reunión junto a Ten Shio en el edificio principal Séfora no podía más. Tenía la cabeza embotada sobre la información de camuflaje de la empresa, tenía que conocer cada detalle del funcionamiento interno.
-
-Necesitaba estirar las piernas y se fue a por un café junto a Junnosuke. A la vuelta se quedaron en la entrada, donde ella vio a una mujer de mediana edad mirando a todos lados. Parecía algo perdida así que se acercó a ella.
-
----Hola, perdona, ¿necesita algo?
-
----Hola sí, estoy buscando a... ---leyó un sobre que tenía en la mano ---, Kim Yonghwa. ¿Sabes dónde puedo encontrarlo?
-
----Ah, claro que sí ---se giró levemente hacia Junnosuke que estaba apoyado en una pared mirándola ---, dame un momento.
-
-Fue hacia donde estaba el más joven con una botella de agua en la mano, lanzando esta al aire. Séfora le pidió que llamara a Yonghwa para que bajase con rapidez, ya que tenía una visita. No tardó en bajar extrañado y Séfora le indicó dónde estaba la señora que le buscaba.
-
----¿Quién es? ---preguntó Junnosuke.
-
----No lo sé, tenía un sobre para él ---contestó encogiendo los hombros, bebiendo con calma el delicioso líquido del vaso.
-
-La curiosidad les podía, así que se quedaron mirando a los dos que hablaban cada vez más cerca de la puerta. Séfora se pudo dar cuenta que el chico estaba a la defensiva, señalaba hacia la puerta y mantenía un tono bajo para que no se escuchara nada. La mujer le puso el sobre en la mano y ahí fue cuando empujó a la mujer para que se marchara.
-
-Estuvo unos largos segundos de espaldas y mantenía el papel agarrado firme con la mano. Respiró profundamente y se giró a los otros dos esbozando una sonrisa algo forzada. Se marchó al otro lado de la entrada pasando por delante de ellos.
-
-La cara de Junnosuke se iba poniendo cada vez más seria mientras veía todo aquello. Parecía que comprendía lo que su compañero estaba viviendo mientras trataba de zafarse de aquella mujer. No quiso responder a alguna pregunta que Séfora dejaba caer al aire. Ella tenía curiosidad y era comprensible, pero Junnosuke conocía a su amigo, _su hermano_, y sabía que todo aquello era un tema delicado. El pasado que ellos cinco tenían había quedado bien atrás y enterrado.
-
-Hyungmin bajó por el ascensor yendo hacia donde estaban los dos. Les miró extrañado al verles con ese rostro tan serio y miró a todos lados.
-
----¿Qué ha pasado? ---preguntó, pero Junnosuke negó con la cabeza y no volvió a preguntar nada al respecto ---. Vamos al coche ---dijo Hyungmin mientras señalaba con la cabeza la salida ---, tenemos que irnos ya, esperaremos a los demás allí.
-
-Los tres chicos fueron hacia el coche mientras esperaban a los que faltaban. Era hora de la cena, así que los comercios comenzaban a cerrar y los restaurantes estaban llenándose de gente. Aquella zona era más empresarial que residencial, así que se veían más personas con paso ligero hacia la parada del metro o para reunirse a tomar algo de sake para terminar el día.
-
-Séfora estaba apoyada en el capó del coche mirando el cielo, estaba algo anaranjado por el atardecer cuando de pronto se escuchó un ruido estridente. Eran pequeñas explosiones proveniente de la carretera. El mundo se detuvo de golpe. Hyungmin estaba al lado de la chica y se lanzó hacia ella para protegerla con su propio cuerpo.
-
-Un coche negro había pasado despacio por su lado y de la ventana trasera se asomó una pistola de la cual pegaron varios tiros hacia ellos. Repentinamente sintió el peso de su amigo sobre ella y un fuerte dolor en su muslo, que le hizo gritar de forma desgarradora.
-
-Empujó con ambas manos el cuerpo de Hyungmin para quitarlo de encima suya. Dejó de escuchar el jaleo de la gente gritar a su alrededor cuando notó que el chico no se movía por voluntad propia. Con toda la fuerza que podía le giró y le zarandeó para que despertara gritando su nombre.
-
-Alguien tiró de su brazo para arrastrarla y alzarla, y aunque intentó resistirse, no pudo zafarse. La tomaron en brazos y corrieron con ella hacia dentro del edificio. Pudo ver por detrás como dos personas cargaban el cuerpo de Hyungmin llevándolo tras ellos, protegiéndolos de más posibles tiradores.
-
----Atiende a Hyungmin con mucho cuidado, aprieta la herida con fuerza porque veo que la sangre está saliendo a borbotones ---Yonghwa daba órdenes mientras mantenía las manos en el muslo de la chica. Comenzó a hacer un torniquete con el cinturón que se había quitado segundos antes ---. Trata de buscar orificio de salida ---seguía ordenando sin apartar la vista de ella ---, que no haya dado en ningún órgano vital y, por el amor de Dios, que no se muera Jongtae.
-
----No se va a morir ---dijo el aludido concentrado.
-
 Taeku había salido fuera junto con Junnosuke, arma en mano, buscando a más posibles tiradores por la zona. Aquello era un completo caos y la gente corría a resguardarse. Los coches de la policía habían aparcado en la puerta y apuntaban con las armas a los dos muchachos que acababan de salir para vigilar. Alguien había llamado a la ambulancia y ésta se abría paso entre los coches para aparcar e ir hacia la policía esperando instrucción.
 
 Los dos chicos armados alzaron las manos para acercarse a la policía y hablar sobre lo sucedido. Taeku tenía buenos contactos por donde iba, ya conocía a unos cuantos de los agentes, así que podía hablar con ellos dando su versión del asunto. Optó por tener una postura tranquila, mientras uno de los agentes lo miraba con gesto serio.

@@ -139,3 +139,25 @@ Cuando estaban bajando en el ascensor ella aprovechó que estaba sujeta para cer
 ---Takada Mishima nos ha prestado su casa de lujo ---dijo con una amplia sonrisa ---. Tendremos una mansión solo para nosotros seis, qué maravilla. Ya veréis la casa, es una pasada.
 
 ---Conozco la casa ---Jongtae se colocó al lado de Taeku que buscaba en el móvil la dirección ---, vamos a vivir de lujo.
+
+La casa por fuera se veía sencilla. Tenía una puerta de garaje, la puerta de entrada y estaba en la orilla de la carretera. Pero cuando ella se bajó del coche, se dió cuenta que ese barrio era residencial. La furgoneta aparcó dentro del espacioso garaje y todos se bajaron llenos de emoción. Subieron por una escalera de mármol hasta llegar a la primera planta, aunque la escalera seguía subiendo. Frente a ellos encontraron una puerta sencilla de madera oscura que estaba abierta, dejando ver un pequeño apartamento. Taeku se acercó a Séfora y le entregó una tarjeta con código.
+
+---Esta es la casa del servicio, pero se ha habilitado para que tú vivas aquí. Es para que puedas tener tu propia intimidad. Las casas están conectadas con el ascensor y esta escalera, pero básicamente son independientes ---dijo mientras la miraba serio ---. Eso no quiere decir que vayamos a dejarte hacer lo que quieras.
+
+---Me lo suponía ---tomó la tarjeta con la mano poniendo un gesto de molestia y suspiró cansada.
+
+---Nosotros tendremos los otros dos pisos porque somos más. Solo tiene dos dormitorios así que vamos a estar apretados ---miró a los demás que estaban resignados. Parecía que habían estado viviendo toda su vida juntos y que estaban acostumbrados ---. Ve a descansar, a darte un baño o lo que necesites.
+
+---No lo dudes ---sin despedirse entró a su piso.
+
+Pasó una semana hasta que se habituó por completo al horario y pudo descansar, recuperando fuerzas. Pronto Taeku apremió a que tenía que saber desenvolverse en las reuniones que tendría con los grupos de subordinados más pequeños.
+
+---Séfora ---Taeku soltó un suspiro en el momento del descanso y se reclinó hacia atrás en la silla. La miró a los ojos ---, esto, donde te has metido obligada es muy serio. Es un mundo muy negro y peligroso ---ella le devolvió la mirada, casi pudo ver en él un gesto de preocupación que no había visto anteriormente.
+
+Sin apartar la mirada de la chica sacó de la espalda una pistola negra mate y la dejó sobre la mesa, estaba descargada. Ella le mantenía aquella mirada, había dicho algo que era muy cierto: la habían obligado para estar allí.
+
+---Esto es lo que somos ---murmuró Taeku con pesadez ---, estamos entrenados para matar si hace falta.
+
+Se guardó de nuevo el arma en el pantalón y se acomodó en la silla 
+
+---Ahora mismo vivimos para protegerte.

@@ -2,36 +2,6 @@
 
 = Capítulo 6
 
-La casa por fuera se veía sencilla. Tenía una puerta de garaje, la puerta de entrada y estaba en la orilla de la carretera. Pero cuando ella se bajó del coche, se dió cuenta que ese barrio era residencial. La furgoneta aparcó dentro del espacioso garaje y todos se bajaron llenos de emoción. Subieron por una escalera de mármol hasta llegar a la primera planta, aunque la escalera seguía subiendo. Frente a ellos encontraron una puerta sencilla de madera oscura que estaba abierta, dejando ver un pequeño apartamento. Taeku se acercó a Séfora y le entregó una tarjeta con código.
-
----Esta es la casa del servicio, pero se ha habilitado para que tú vivas aquí. Es para que puedas tener tu propia intimidad. Las casas están conectadas con el ascensor y esta escalera, pero básicamente son independientes ---dijo mientras la miraba serio ---. Eso no quiere decir que vayamos a dejarte hacer lo que quieras.
-
----Me lo suponía ---tomó la tarjeta con la mano poniendo un gesto de molestia y suspiró cansada.
-
----Nosotros tendremos los otros dos pisos porque somos más. Solo tiene dos dormitorios así que vamos a estar apretados ---miró a los demás que estaban resignados. Parecía que habían estado viviendo toda su vida juntos y que estaban acostumbrados ---. Ve a descansar, a darte un baño o lo que necesites.
-
----No lo dudes ---sin despedirse entró a su piso.
-
-Cerró la puerta a su espalda. Se apoyó en esta soltando un profundo suspiro mirando el apartamento. Frente a ella tenía un sofá amplio que estaba frente al televisor y un mueble moderno. Al lado una mesa de salón para comer con unas sillas, y por el pasillo veía una cocina abierta. Al final del todo estaba el dormitorio. Miró por los armarios de la cocina y se fijó que estaba completamente equipada con comida, la nevera llena y el cuarto de baño con todo lo necesario.
-
-Fue directa al dormitorio. Nada más entrar vio a un lado la cama y al otro un escritorio. Tenía cuatro ventanales grandes y dos hermosos armarios a cada lado de la puerta. En medio de la habitación estaba la única maleta que había llevado consigo. Ordenó la ropa y tras dejarlo todo listo se fue al baño y se dio una ducha de agua caliente. Necesitaba relajarse.
-
-Estaba bastante nerviosa con todo lo que se le venía encima. Trataba de controlar aquel nudo que se le había formado en el estómago pensando en que realmente no estaba sola. Hasta ahora sus compañeros habían sido un apoyo emocional muy importante en su camino.
-
-La primera semana le dejaron descansar y habituarse al nuevo horario. Séfora tenía que admitir que estar sola en aquel apartamento le había dado una privacidad que nunca había tenido. Como no tenía que salir de casa, no vio a los chicos durante tres días enteros, que estuvo viendo animes y series.
-
-Pero las vacaciones acabaron pronto y al cuarto día Taeku se presentó llamando a su puerta. Y así comenzó con clases de japonés más avanzado, necesitaba dialogar en las reuniones importantes con los líderes de bandas pequeñas. Todo iba tomando un tono más serio y ella tenía que ser consiente de ello.
-
----Séfora ---Taeku soltó un suspiro en el momento del descanso y se reclinó hacia atrás en la silla. La miró a los ojos ---, esto, donde te has metido obligada es muy serio. Es un mundo muy negro y peligroso ---ella le devolvió la mirada, casi pudo ver en él un gesto de preocupación que no había visto anteriormente.
-
-Sin apartar la mirada de la chica sacó de la espalda una pistola negra mate y la dejó sobre la mesa, estaba descargada. Ella le mantenía aquella mirada, había dicho algo que era muy cierto: la habían obligado para estar allí.
-
----Esto es lo que somos ---murmuró Taeku con pesadez ---, estamos entrenados para matar si hace falta.
-
-Se guardó de nuevo el arma en el pantalón y se acomodó en la silla 
-
----Ahora mismo vivimos para protegerte.
-
 Hubo un momento bastante largo de silencio entre ambos. No era incómodo, pero ella tenía en mente las palabras que acababa de decir. Taeku trataba de adivinar sus pensamientos sin apartar los ojos ella, pero Séfora había desviado la mirada hacia donde tan solo un momento había estado el arma.
 
 ---No voy a negar que tengo miedo ---dijo ella algo nerviosa y molesta por la situación. Pero se había resignado a ese destino que le había tocado ---. Me asusta mucho lo que puede llegar a pasar.
@@ -86,7 +56,7 @@ Séfora negó con la cabeza aún quieta en la puerta. Keiken se encogió de homb
 
 ---¿Cómo tú? ---preguntó con una sonrisa irónica al escucharle.
 
----No, gracias, no quiero esta mierda ---se puso en pie, guardó el arma en el pantalón y se acercó a ella, que retrocedió varios pasos ---. Voy a ir por las buenas, _princesita_, vete a casa. Olvida este mundo, ve con... no sé, un hombre que trabaje en algo sencillo y vivid felices. Haz lo que hagan las mujeres españolas en casa y vete de aquí.
+---No, gracias, no quiero esta porquería ---se puso en pie, guardó el arma en el pantalón y se acercó a ella, que retrocedió varios pasos ---. Voy a ir por las buenas, _princesita_, vete a casa. Olvida este mundo, ve con... no sé, un hombre que trabaje en algo sencillo y vivid felices. Haz lo que hagan las mujeres españolas en casa y vete de aquí.
 
 Conforme él iba diciendo todo aquello Séfora sentía que le clavaban un puñal en el pecho. La persona que tenía delante era el posible causante de que ya no le quedara nada en este mundo. Apretó los puños con fuerza y bajó los brazos a ambos lados de su cuerpo.
 
@@ -149,3 +119,45 @@ El vestuario de Séfora había cambiado. Había pasado de ser una adolescente co
 Le habían explicado encarecidamente que la empresa se dedicaba al entretenimiento. Viajaban por todos los países del mundo con la excusa de giras de conciertos o estrenos cinematográficos. Cuando en verdad lo que se hacía era mucho más ilegal y siniestro.
 
 Como era tan joven, de cara al público no se sabía nada de ella. Pero de cara a lo interno ya estaban preparando a todos para lo que llegaría a ser. Debía de acostumbrarse a esa nueva vida, porque desde ese momento solo iba a subir y subir de estatus.
+
+#separador
+
+Después una reunión junto a Ten Shio en el edificio principal Séfora no podía más. Tenía la cabeza embotada sobre la información de camuflaje de la empresa, tenía que conocer cada detalle del funcionamiento interno.
+
+Necesitaba estirar las piernas y se fue a por un café junto a Junnosuke. A la vuelta se quedaron en la entrada, donde ella vio a una mujer de mediana edad mirando a todos lados. Parecía algo perdida así que se acercó a ella.
+
+---Hola, perdona, ¿necesita algo?
+
+---Hola sí, estoy buscando a... ---leyó un sobre que tenía en la mano ---, Kim Yonghwa. ¿Sabes dónde puedo encontrarlo?
+
+---Ah, claro que sí ---se giró levemente hacia Junnosuke que estaba apoyado en una pared mirándola ---, dame un momento.
+
+Fue hacia donde estaba el más joven con una botella de agua en la mano, lanzando esta al aire. Séfora le pidió que llamara a Yonghwa para que bajase con rapidez, ya que tenía una visita. No tardó en bajar extrañado y Séfora le indicó dónde estaba la señora que le buscaba.
+
+---¿Quién es? ---preguntó Junnosuke.
+
+---No lo sé, tenía un sobre para él ---contestó encogiendo los hombros, bebiendo con calma el delicioso líquido del vaso.
+
+La curiosidad les podía, así que se quedaron mirando a los dos que hablaban cada vez más cerca de la puerta. Séfora se pudo dar cuenta que el chico estaba a la defensiva, señalaba hacia la puerta y mantenía un tono bajo para que no se escuchara nada. La mujer le puso el sobre en la mano y ahí fue cuando empujó a la mujer para que se marchara.
+
+Estuvo unos largos segundos de espaldas y mantenía el papel agarrado firme con la mano. Respiró profundamente y se giró a los otros dos esbozando una sonrisa algo forzada. Se marchó al otro lado de la entrada pasando por delante de ellos.
+
+La cara de Junnosuke se iba poniendo cada vez más seria mientras veía todo aquello. Parecía que comprendía lo que su compañero estaba viviendo mientras trataba de zafarse de aquella mujer. No quiso responder a alguna pregunta que Séfora dejaba caer al aire. Ella tenía curiosidad y era comprensible, pero Junnosuke conocía a su amigo, _su hermano_, y sabía que todo aquello era un tema delicado. El pasado que ellos cinco tenían había quedado bien atrás y enterrado.
+
+Hyungmin bajó por el ascensor yendo hacia donde estaban los dos. Les miró extrañado al verles con ese rostro tan serio y miró a todos lados.
+
+---¿Qué ha pasado? ---preguntó, pero Junnosuke negó con la cabeza y no volvió a preguntar nada al respecto ---. Vamos al coche ---dijo Hyungmin mientras señalaba con la cabeza la salida ---, tenemos que irnos ya, esperaremos a los demás allí.
+
+Los tres chicos fueron hacia el coche mientras esperaban a los que faltaban. Era hora de la cena, así que los comercios comenzaban a cerrar y los restaurantes estaban llenándose de gente. Aquella zona era más empresarial que residencial, así que se veían más personas con paso ligero hacia la parada del metro o para reunirse a tomar algo de sake para terminar el día.
+
+Séfora estaba apoyada en el capó del coche mirando el cielo, estaba algo anaranjado por el atardecer cuando de pronto se escuchó un ruido estridente. Eran pequeñas explosiones proveniente de la carretera. El mundo se detuvo de golpe. Hyungmin estaba al lado de la chica y se lanzó hacia ella para protegerla con su propio cuerpo.
+
+Un coche negro había pasado despacio por su lado y de la ventana trasera se asomó una pistola de la cual pegaron varios tiros hacia ellos. Repentinamente sintió el peso de su amigo sobre ella y un fuerte dolor en su muslo, que le hizo gritar de forma desgarradora.
+
+Empujó con ambas manos el cuerpo de Hyungmin para quitarlo de encima suya. Dejó de escuchar el jaleo de la gente gritar a su alrededor cuando notó que el chico no se movía por voluntad propia. Con toda la fuerza que podía le giró y le zarandeó para que despertara gritando su nombre.
+
+Alguien tiró de su brazo para arrastrarla y alzarla, y aunque intentó resistirse, no pudo zafarse. La tomaron en brazos y corrieron con ella hacia dentro del edificio. Pudo ver por detrás como dos personas cargaban el cuerpo de Hyungmin llevándolo tras ellos, protegiéndolos de más posibles tiradores.
+
+---Atiende a Hyungmin con mucho cuidado, aprieta la herida con fuerza porque veo que la sangre está saliendo a borbotones ---Yonghwa daba órdenes mientras mantenía las manos en el muslo de la chica. Comenzó a hacer un torniquete con el cinturón que se había quitado segundos antes ---. Trata de buscar orificio de salida ---seguía ordenando sin apartar la vista de ella ---, que no haya dado en ningún órgano vital y, por el amor de Dios, que no se muera Jongtae.
+
+---No se va a morir ---dijo el aludido concentrado.
