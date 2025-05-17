@@ -14,7 +14,7 @@ Taeku asintió con la cabeza a sus palabras y volvieron a mirarse.
 
 ---Ten Shio y los otros dos hombres, Takada Mishima y Junho son el consejo de "sabios" ---Séfora notó como al nombrar al último Taeku se puso algo tenso.
 
----No diría eso exactamente ---se movió incomodo sobre la silla ---, cada uno representa un país. Los tres son los cabecillas de la organización. Recuerda el diagrama de poderes que ya vimos. Responden ante el jefe Watashime. El abogado tiene más detalles sobre ellos tres.
+---No diría eso exactamente ---se movió incomodo sobre la silla y puso mala cara ---, cada uno representa un país. Los tres son los cabecillas de la organización. Recuerda el diagrama de poderes que ya vimos. Responden ante el jefe Watashime. El abogado tiene más detalles sobre ellos tres.
 
 ---¿Ese abogado manda sobre ellos? ---Séfora se quedó pensando mientras movía el lápiz que tenía entre los dedos.
 
