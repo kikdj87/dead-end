@@ -1,10 +1,8 @@
 = Capítulo 5
 
-Paseaba ajena a todo el bullicio del derredor, la gente yendo y viniendo por toda la terminal. Caminó por las tiendas hasta pararse frente a la portada de un periódico que le llamó la atención. Una chica había desaparecido, era menor de edad y hacía más de una semana que no se sabía nada de ella.
+Subieron al avión.
 
-Ella llevaba un año prácticamente desaparecida y, aunque no hubiese podido mirar las redes sociales o los periódicos, sabía que nadie la estaría buscando. No le quedaba nadie que la atase en esta tierra que estaba a punto de despedir, así que se labraría un nuevo futuro allí donde iba.
-
-Cuando al fin subieron en el avión los asientos estaban divididos de dos en dos y, al ser un número par, estaban tranquilos de que ella no estaría sola.
+Los asientos estaban divididos de dos en dos y, al ser un número par, estaban tranquilos ya que ella no estaría sola.
 
 ---Junnosuke ---Séfora agarró su brazo ---. ¿Te sentarías conmigo?
 
@@ -36,9 +34,9 @@ Séfora se fijaba en cada detalle de su rostro. No había visto durante mucho ti
 
 ---Crecimos juntos, muy bien entre nosotros ---comenzó a explicar Junnosuke aun con el movimiento de sus manos nervioso ---. Pero cuando una facción del grupo e sublevó contra el viejo Watashime... perdón, tu abuelo Watashime, mi padre se fue con ellos.
 
-Ella escuchaba atenta la historia y pudo ver como él estaba concentrado en buscar las palabras exactas para poder explicar la situación.
+Ella escuchaba atenta la historia y pudo ver como él estaba concentrado en buscar las palabras exactas.
 
----Yo a penas tenía ocho años cuando aquello sucedió. Y no lo malinterpretes, no era un niño normal ---una ladina sonrisa se le vio reflejada en el rostro al decir aquello ---. Sabía luchar cuerpo a cuerpo, con armas de verdad... Pero yo no tenía la fiereza de Keiken.
+---Yo a penas tenía ocho años cuando aquello sucedió. Y no lo malinterpretes, no era un niño normal ---una ladina sonrisa se le vio reflejada en el rostro al decir aquello ---. Sabía luchar cuerpo a cuerpo, con armas de verdad... Pero no tenía la fiereza de Keiken.
 
 Cuando dijo lo último giró completamente el rostro para mirar a Séfora.
 
@@ -46,9 +44,9 @@ Cuando dijo lo último giró completamente el rostro para mirar a Séfora.
 
 Ambos se quedaron en silencio. Séfora no tenía valor de preguntarle nada más a cerca de su hermano, había visto lo complicado que había sido para él poder decir todo aquello. Por lo que decidió cambiar de tema.
 
-El vuelo duraba más de quince horas, era directo de Barcelona hasta Tokyo. Daba tiempo a dormir, de ver alguna película, a hablar de cosas más triviales, por lo que decidió divertirse con su compañero.
+El vuelo duraba más de quince horas, era directo de Barcelona hasta Tokyo. Daba tiempo a dormir, de ver alguna película y de hablar de cosas más triviales. Así que decidió divertirse con su compañero.
 
-Cuando el avión llegó a tierra salieron, Séfora miró al cielo impresionada. Olvidó el cansancio del avión y las horas encerradas en esa caja. Las vistas eran impresionantes.
+Cuando el avión llegó a tierra salieron. Entraron dentro de la terminal y recogieron las maletas. Séfora lo miraba todo impresionada. Olvidó el cansancio del avión y las horas encerradas en esa caja. Las vistas eran impresionantes.
 
 ---¿Qué te parece? ---Junnosuke estaba al lado de ella, esperaba con algo de ansia su respuesta.
 
@@ -64,7 +62,7 @@ Había muchísima gente andando por las calles, pero a la vez había orden cuand
 
 ---Lo echaba de menos ---Junnosuke suspiró detrás de ella en su asiento y se inclinó hacia Séfora ---. Y verás cuando sea de noche, gana mucho más con las luces.
 
-No tardaron mucho en llega a un barrio lleno de edificios altos y carteles luminosos. A pesar que era el medio día había una batalla silenciosa de ver qué cartel brillaba más y era la atención de los habitantes.
+No tardaron mucho en llega a un barrio lleno de edificios altos y carteles luminosos. A pesar que era el medio día había una batalla silenciosa de ver qué cartel brillaba más y era la atención de los transeuntes.
 
 ---Bienvenida a Ginza ---Junnosuke era el guía personal de Séfora en ese viaje.
 
@@ -72,7 +70,7 @@ El coche paró frente a un edificio lujoso y se bajaron de este. Cuando Séfora 
 
 ---Esto será un momento y volveremos, no saques nada ---dijo él con calma.
 
-Los seis fueron a un ascensor y Taeku marcó la última planta, el piso 27. Esperaron agotados mientras subían, se les hizo eterno. Séfora sentía que tenía las piernas agarrotadas por culpa de estar tantas horas en el asiento del avión. Lo último que le apetecía era reunirse con gente y hablar de temas que no le interesaban en ese momento.
+Los seis fueron a un ascensor y Taeku marcó la última planta, el piso veintisiete. Esperaron agotados mientras subían, se les hizo eterno. Séfora sentía que tenía las piernas agarrotadas por culpa de estar tantas horas en el asiento del avión. Lo último que le apetecía era reunirse con gente y hablar de temas que no le interesaban en ese momento.
 
 Solo pensaba en una ducha y una cama en la que poder descansar. Aunque no sabía donde iba a vivir, intuía que aquellas personas lo tenían todo planificado. Solo tenía que dejarse llevar aunque le daba un poco de miedo.
 
@@ -92,7 +90,7 @@ Ambos hombres la miraron con mucha curiosidad. Analizaban cada parte de la cara 
 
 ---Se parece tanto a Ryu ---dijo Takada Mishima, el hombre fornido, muy atento a su rostro ---, no podemos negar que es su hija.
 
----Admito que llegué a pensar que el viejo se lo había inventado ---dijo Junho, el más alto, asintiendo con la cabeza ---, pero es que no puedo negar lo evidente. Bienvenida a Japón, señorita Watashime ---hubo un momento que Taeku y Junho se miraron serios.
+---Admito que llegué a pensar que el viejo se lo había inventado ---dijo Junho, el más alto, asintiendo con la cabeza ---, pero es que no puedo negar lo evidente. Bienvenida a Japón, señorita Watashime ---hubo un momento que Taeku y Junho cruzaron serias miradas.
 
 ---Pero mi apellido no es…
 
@@ -120,13 +118,13 @@ Y de la nada un nombre sacó a Séfora de sus pensamientos.
 
 ---Pues los que apoyen a Keiken la llevan clara teniendo a Séfora aquí con nosotros ---Takada la señaló abiertamente con un dedo regordete ---. No es la hija sobrina nieta del primo tercero del tío de alguien ---continuó hablando algo molesto ---. Es la nieta directa de Watashime.
 
----Por eso me preocupa ese asunto ---Ten Shio se pasó la mano por la barbilla ---, porque le estará metiendo cosas extrañas en la cabeza a la pobre muchacha.
+---Por eso me preocupa ese asunto ---Ten Shio se pasó la mano por la barbilla ---, porque Keiken le estará metiendo cosas extrañas en la cabeza a la pobre muchacha.
 
-Séfora se movió un poco para hablar a cerca de la persona a la que estaban nombrando, Keiken, pero una mano en su hombro hizo que reculara. Miró hacia atrás y vio a Taeku, que negó muy levemente con la cabeza. Ella entendió que no tenía que decir absolutamente nada.
+Séfora se movió un poco para hablar a cerca de la persona a la que estaban nombrando, pero una mano en su hombro hizo que reculara. Miró hacia atrás y vio a Taeku, que negó muy levemente con la cabeza. Ella entendió que no tenía que decir absolutamente nada.
 
 Y mientras Séfora escuchaba todo aquello, meditó en algo que ya había pensado anteriormente: no tenía nada. Este mundo le había castigado bastante quitándole lo poco que había poseído en su vida. Le daba igual lo que ocurriera, su felicidad se había acabado el día que se marchó de Madrid.
 
-Se llegó a un acuerdo allí mismo en que ellos tres se quedarían como consejo y liderazgo. Junto con el apoyo del abogado de la familia la prepararían para poder ocupar su lugar correspondiente. No opuso resistencia a ello ya que realmente era un bebé que acababa de nacer en ese mundo tan peligroso.
+Se llegó a un acuerdo allí mismo en que ellos tres se quedarían como consejo y liderazgo como habían estado hasta ahora. Junto con el apoyo del abogado de la familia la prepararían para poder ocupar su lugar correspondiente. No opuso resistencia a ello ya que realmente era un bebé que acababa de nacer en ese mundo tan peligroso.
 
 Al fin la reunión había terminado. Ya casi había oscurecido y Séfora estaba dando lo mejor de sí misma para no quedarse dormida. Estaba mentalmente agotada por el tremendo viaje y toda la información que había tragado en esa tarde. Se despidieron de los tres hombres y se marcharon de nuevo por donde habían venido. Mientras caminaban la chica se tambaleó un poco y Yonghwa agarró su brazo.
 
