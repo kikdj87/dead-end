@@ -1,10 +1,10 @@
 #import "util.typ": separador
 
-= Capítulo 9
+=
 
 Séfora estaba en la entrada de la casa sentada. Estaba agotada después de una sesión de ejercicio y necesitaba recuperar fuerzas. Taeku había subido ya al apartamento, pero ella insistió en quedarse fuera ya que necesitaba aire fresco.
 
-Estaba segura allí fuera ya que había seguridad de sobra, por lo que podía relajarse. Alzó la cabeza al cielo cuando de pronto un papel le cayó en la cara.
+Estaba segura allí ya que había seguridad de sobra, por lo que podía relajarse. Alzó la cabeza al cielo cuando de pronto un papel le cayó en la cara.
 
 Lo agarró y vio que estaba arrugado, así que pensó que sería un papel extraviado de alguien, pero no se esperaba ver el nombre de Yonghwa escrito a un lado.
 
@@ -120,7 +120,7 @@ Dejaron las katanas bien colocadas en su lugar correspondiente y tras limpiar la
 
 ---Por que no me sorprende ---ella puso los ojos en blanco y después asintió con la cabeza.
 
----El caso es que es el momento de que conozcas a las cabeza de las organizaciones ---asintió mientras cerraba las puertas del dojo y comenzó a caminar a casa ---. Tenemos en casa ya unos archivos que nos ha mandado Sanghun para que estudies.
+---El caso es que es el momento de que conozcas a las cabeza de las organizaciones ---asintió mientras cerraba las puertas del dojo y comenzó a caminar a casa.
 
 #separador
 

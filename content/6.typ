@@ -46,13 +46,13 @@ Séfora negó con la cabeza aún quieta en la puerta. Keiken se encogió de homb
 
 --- Bueno, como quieras ---se acomodó cruzando una pierna sobre la otra mirándola serio ---. Vengo a darte un consejo: vete de aquí.
 
----¿Qué? ---ella le miró sorprendida por lo que acababa de decir.
+---¿Qué?
 
 ---Si. Te he estado observando un tiempo y veo que no has sido criada para este mundo ---movió una mano en círculos delante de su cara, dando a entender a lo que se refería ---, eres como una princesa en un castillo lleno de espinas ---la miró al completo y eso causó que se sintiera aún más incómoda.
 
----No me gustan esto. Que puedas ser tan escurridizo y que te puedas colar en mi casa para...
+---No me gusta esto. Que puedas ser tan escurridizo y que te puedas colar en mi casa para...
 
----Espera ---alzó la mano y se quedó callada cuando la cortó con un gesto mucho más duro sin su sonrisa ---. Solo decirte que antes de ser tú casa esto fue mío ---señaló al suelo ---. Si, sorpresa. Ese hombre no es mi padre, por Dios no. No podría criar a dos hijos tan estupendos con ese cerebro de mono que tiene ---Keiken esbozó una pequeña sonrisa alzando un solo lado de su boca ---. Hay personas mejores capacitadas que tú para estar en este puesto.
+---Espera ---alzó la mano con un gesto mucho más duro sin su sonrisa ---. Solo decirte que antes de ser tú casa esto fue mío ---señaló al suelo ---. Si, sorpresa. Ese hombre no es mi padre, por Dios no. No podría criar a dos hijos tan estupendos con ese cerebro de mono que tiene ---Keiken esbozó una pequeña sonrisa alzando un solo lado de su boca ---. Hay personas mejores capacitadas que tú para estar en este puesto.
 
 ---¿Cómo tú? ---preguntó con una sonrisa irónica al escucharle.
 
@@ -74,7 +74,7 @@ Se inclinó y fue a la ventana, saltó por ella antes de que Séfora pudiera dec
 
 Salió del apartamento y subió las escaleras bien ofuscada. Golpeó la puerta que estaba cerrada con el puño y esperó, un sorprendido Junnosuke le abrió la puerta. Ella no dijo nada, simplemente entró y comenzó a dar vueltas por el salón.
 
----¿Qué ocurre? ---Junnosuke la miró mientras daba las vueltas.
+---¿Qué ocurre?
 
 ---Keiken ha entrado en mi casa ---dijo ella mirando sus ojos. El chico se alarmó pero ella siguió hablando ---. No ha pasado nada, parece que le gusta aparecer y desaparecer.
 
@@ -118,11 +118,11 @@ El vestuario de Séfora había cambiado. Había pasado de ser una adolescente co
 
 Le habían explicado encarecidamente que la empresa se dedicaba al entretenimiento. Viajaban por todos los países del mundo con la excusa de giras de conciertos o estrenos cinematográficos. Cuando en verdad lo que se hacía era mucho más ilegal y siniestro.
 
-Como era tan joven, de cara al público no se sabía nada de ella. Pero de cara a lo interno ya estaban preparando a todos para lo que llegaría a ser. Debía de acostumbrarse a esa nueva vida, porque desde ese momento solo iba a subir y subir de estatus.
+Como era tan joven, de cara al público no se sabía nada de ella. Pero de cara a lo interno ya estaban preparando a todos para lo que llegaría a ser. Debía acostumbrarse a esa nueva vida, porque desde ese momento solo iba a subir y subir de estatus.
 
 #separador
 
-Después una reunión junto a Ten Shio en el edificio principal Séfora no podía más. Tenía la cabeza embotada sobre la información de camuflaje de la empresa, tenía que conocer cada detalle del funcionamiento interno.
+Después de una reunión junto a Ten Shio en el edificio principal Séfora no podía más. Tenía la cabeza embotada sobre la información de camuflaje de la empresa, tenía que conocer cada detalle del funcionamiento interno.
 
 Necesitaba estirar las piernas y se fue a por un café junto a Junnosuke. A la vuelta se quedaron en la entrada, donde ella vio a una mujer de mediana edad mirando a todos lados. Parecía algo perdida así que se acercó a ella.
 
@@ -148,9 +148,9 @@ Hyungmin bajó por el ascensor yendo hacia donde estaban los dos. Les miró extr
 
 ---¿Qué ha pasado? ---preguntó, pero Junnosuke negó con la cabeza y no volvió a preguntar nada al respecto ---. Vamos al coche ---dijo Hyungmin mientras señalaba con la cabeza la salida ---, tenemos que irnos ya, esperaremos a los demás allí.
 
-Los tres chicos fueron hacia el coche mientras esperaban a los que faltaban. Era hora de la cena, así que los comercios comenzaban a cerrar y los restaurantes estaban llenándose de gente. Aquella zona era más empresarial que residencial, así que se veían más personas con paso ligero hacia la parada del metro o para reunirse a tomar algo de sake para terminar el día.
+Los tres chicos fueron hacia el coche mientras esperaban a los que faltaban. Era hora de la cena, así que los comercios comenzaban a cerrar y los restaurantes estaban llenándose de gente. Aquella zona era más comercial que residencial, así que se veían más personas con paso ligero hacia la parada del metro o para reunirse a tomar algo de sake para terminar el día.
 
-Séfora estaba apoyada en el capó del coche mirando el cielo, estaba algo anaranjado por el atardecer cuando de pronto se escuchó un ruido estridente. Eran pequeñas explosiones proveniente de la carretera. El mundo se detuvo de golpe. Hyungmin estaba al lado de la chica y se lanzó hacia ella para protegerla con su propio cuerpo.
+Séfora estaba apoyada en el capó del coche mirando el cielo, estaba algo anaranjado por el atardecer cuando de pronto se escuchó un ruido estridente. Eran pequeñas explosiones provenientes de la carretera. El mundo se detuvo de golpe. Hyungmin estaba al lado de la chica y se lanzó hacia ella para protegerla con su propio cuerpo.
 
 Un coche negro había pasado despacio por su lado y de la ventana trasera se asomó una pistola de la cual pegaron varios tiros hacia ellos. Repentinamente sintió el peso de su amigo sobre ella y un fuerte dolor en su muslo, que le hizo gritar de forma desgarradora.
 
@@ -158,6 +158,6 @@ Empujó con ambas manos el cuerpo de Hyungmin para quitarlo de encima suya. Dej�
 
 Alguien tiró de su brazo para arrastrarla y alzarla, y aunque intentó resistirse, no pudo zafarse. La tomaron en brazos y corrieron con ella hacia dentro del edificio. Pudo ver por detrás como dos personas cargaban el cuerpo de Hyungmin llevándolo tras ellos, protegiéndolos de más posibles tiradores.
 
----Atiende a Hyungmin con mucho cuidado, aprieta la herida con fuerza porque veo que la sangre está saliendo a borbotones ---Yonghwa daba órdenes mientras mantenía las manos en el muslo de la chica. Comenzó a hacer un torniquete con el cinturón que se había quitado segundos antes ---. Trata de buscar orificio de salida ---seguía ordenando sin apartar la vista de ella ---, que no haya dado en ningún órgano vital y, por el amor de Dios, que no se muera Jongtae.
+---Atiende a Hyungmin con mucho cuidado, aprieta la herida con fuerza porque veo que la sangre está saliendo a borbotones ---Yonghwa daba órdenes mientras mantenía las manos en el muslo de la chica. Comenzó a hacer un torniquete con el cinturón que se había quitado segundos antes ---. Trata de buscar orificio de salida ---seguía ordenando sin apartar la vista de ella ---, que no haya dado en ningún órgano vital y, por el amor de Dios, que no se muera, Jongtae.
 
 ---No se va a morir ---dijo el aludido concentrado.

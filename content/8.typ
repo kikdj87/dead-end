@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 8
+=
 
 En el coche hacia casa de Sanghun solo iban Séfora y Taeku. Hicieron el trayecto en silencio, a ella empezaba a pasarse el efecto de los calmantes y el lugar del disparo le empezaba a doler, pero quería disimular. Quería aparentar ser más fuerte y no una niña delicada como le había dicho anteriormente Keiken.
 
@@ -12,9 +12,9 @@ Paró el coche y una chica vestida con un bonito y sencillo kimono de colores cr
 
 ---Bienvenidos ---un hombre que no aparentaba tener más de treinta años se giró en su asiento tras la mesa del despacho cuando la puerta se abrió. Taeku hizo una leve reverencia y él sonrió ---. No tengas tanta cortesía conmigo, amigo ---se puso en pie y ambos se abrazaron.
 
-Séfora estaba sorprendida mientras asimilaba la situación. Ambas personas que tenía delante eran más o menos de la misma edad, pero había algo en la mirada de los dos hombres que le hacía entender que habían vivido demasiadas cosa juntos.
+Séfora estaba sorprendida mientras asimilaba la situación. Ambas personas que tenía delante eran más o menos de la misma edad, pero había algo en la mirada de los dos hombres que le hacía entender que habían vivido demasiadas cosas juntos.
 
-Sanghun llevaba la camisa algo abierta y sin corbata, el pantalón del traje era de color gris claro, su jornada laboral acababa de comenzar ya que se estaba preparando.
+Sanghun llevaba la camisa algo abierta y sin corbata, el pantalón del traje era de color gris claro.
 
 ---Disculpa la urgencia de esta reunión, Séfora ---se acercó a ella y estiró la mano hacia delante, esperando que ella se la estrechara. No tardó mucho en reaccionar y apretó su mano con firmeza ---. Pero las circunstancias lo han obligado.
 
@@ -38,7 +38,7 @@ Se separó y de nuevo se sentó en su asiento señalando las sillas que tenía f
 
 ---Sí, claro que lo sé ---Sanghun miró a Taeku ---. Espera fuera, por favor, no tardaremos mucho.
 
-Taeku miró a la chica y se puso en pie, se inclinó y salió fuera. A veces parecía que Taeku tenía un rango mucho superior que cualquiera que se encontrara por como actuaba. Sin embargo obedeció las órdenes de Sanghun como si fuera su sirviente y el otro fuera el dueño supremo del mundo entero; cuando tan solo era el abogado que tenía su abuelo contratado. O eso es lo que ella tenía entendido.
+Taeku miró a la chica y se puso en pie, se inclinó y salió fuera. A veces parecía que Taeku tenía un rango muy superior que cualquiera que se encontrara por como actuaba. Sin embargo obedeció las órdenes de Sanghun como si fuera su sirviente y el otro fuera el dueño supremo del mundo entero; cuando tan solo era el abogado que tenía su abuelo contratado. O eso es lo que ella tenía entendido.
 
 ---Bueno, Séfora ---esbozó una tranquila sonrisa ---, me agrada ver que hablas con fluidez el japonés y además el coreano ---mezcló ambos idiomas en esa frase, ella asintió con la cabeza mientras él seguía hablando ---, así que no te va a resultar difícil lo que tienes que estudiar.
 
@@ -106,7 +106,7 @@ Habían arriesgado su vida para cuidarla, para protegerla de todo lo malo. Y es 
 
 Taeku llegó a su piso soltando un profundo suspiro, cerrando la puerta a su espalda. Miró al frente y vio a Jongtae salir a su encuentro con gesto preocupado.
 
----Como ha ido.
+---¿Cómo ha ido?
 
 ---Bueno ---Taeku fue a la cocina y se sirvió una copa de vino tinto ---, no ha ido mal, Sanghun se lo ha tomado con paciencia. Sabe que ella a penas conoce esto y para nosotros al final no ha habido bronca.
 

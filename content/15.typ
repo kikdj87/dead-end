@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 15
+=
 
 Taeku hablaba por teléfono con Sanghun contándole lo que había pasado.
 

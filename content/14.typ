@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 14
+=
 
 A pesar del dolor punzante que le causó la discusión con Yonghwa, la rutina laboral la obligaba a seguir adelante y a enfrentarlo cada día. La cortesía distante de él era una nueva barrera a la que le costaba horrores acostumbrarse. Desde que conoció a Yongsun, había tejido cuidadosamente un plan para presentárselo a Yonghwa, con la esperanza de que viera a su hermano bajo una nueva luz. Pero ese elaborado plan se hizo añicos de la noche a la mañana.
 

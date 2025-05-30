@@ -1,4 +1,4 @@
-= Capítulo 11
+=
 
 Comenzó una nueva semana. Tras una ducha refrescante después de una mañana de entrenamiento con Taeku, Séfora miró la ropa que había escogido en especial para aquel día. Se puso los pantalones de traje de color negro con calma y antes de abrocharse el botón se puso una camisa azul celeste y la abotonó. Las mangas le quedaban un poco por debajo del hombro y sonrió satisfecha al ver que al abotonarla quedaba perfecta. Se metió los faldones dentro del pantalón y finalmente se lo abrochó.
 

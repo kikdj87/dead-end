@@ -6,8 +6,10 @@
 // CONTENIDO
 //#include "content/0.typ"
 #include "content/1.typ"
+#include "content/2.1.typ"
 #include "content/2.typ"
 #include "content/3.typ"
+#include "content/4.1.typ"
 #include "content/4.typ"
 #include "content/5.typ"
 #include "content/6.typ"

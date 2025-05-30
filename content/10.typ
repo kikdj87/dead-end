@@ -1,4 +1,4 @@
-= Capítulo 10
+=
 
 Taeku había echado a correr hacia la ventana que estaba abierta de par en par, ya no había rastro de Keiken por ningún lado y por ello estaba maldiciendo entre dientes. Lo cerró todo. Por otro lado Yonghwa estaba examinando el brazo de Séfora donde tenía un leve corte, no muy profundo pero si escandaloso.
 

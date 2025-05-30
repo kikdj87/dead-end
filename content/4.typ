@@ -1,4 +1,4 @@
-= Capítulo 4
+=
 
 Y había pasado un año.
 
@@ -55,7 +55,7 @@ Séfora se pudo fijar en una ladina y siniestra sonrisa que se asomó por sus la
 
 ---Nos volveremos a ver pronto. Espero que no sea aquí sino en casa ---hizo una leve inclinación de cabeza y se giró hacia uno de los paseos del parque.
 
-Aquella aura amenazante dejó a la chica bloqueada, mirando como desaparecía. Las piernas le tardaron en responder por el miedo, pero echó a correr hacia donde había ido Keiken. Y en un momento se había esfumado.
+Aquella aura amenazante dejó a la chica bloqueada, mirando como desaparecía. Las piernas le tardaron en responder por el miedo, pero echó a correr hacia donde se había ido Keiken. Y en un momento se había esfumado.
 
 Con la mano en el pecho y el corazón latiendo con fuerza se marchó al piso. Había sido demasiado ingenua al salir ella sola a pasear, aún existían amenazas a su alrededor.
 
@@ -63,49 +63,53 @@ Esquivaba a la gente que aparecía de golpe delante de ella mientras paseaban in
 
 ---Auch...
 
----¿Estás loca? ---Se encontró con Hyungmin delante que agarró su brazo alzándola del suelo. Estaba jadeando y sudaba bastante ---. ¿Por qué has salido sola?
+---¿Estás loca? ---Se encontró con Taeku delante que agarró su brazo alzándola del suelo. Estaba jadeando y sudaba bastante ---. ¿Por qué has salido sola?
 
 ---Me haces daño ---Jadeó cuando se incorporó tratando se soltar su agarre. Él apretó mucho más la mano alrededor de su brazo. Sacudió ligeramente su cuerpo provocando que ella la mirara.
 
----Él podría haberte hecho más daño. Taeku se va a enfadar cuando se entere ---comenzaron a caminar ---. No sé en qué estabas pensando, de verdad que no eres consciente de todo el peligro.
+---Él podría haberte hecho más daño ---comenzaron a caminar ---. No sé en qué estabas pensando, de verdad que no eres consciente de todo el peligro.
 
----Hyungmin.
+---Taeku...
 
 ---Has olvidado todo lo que te explicamos de los enemigos que tenemos. ¿Para esto querías estar sola? ¿Para que te mataran?
 
 ---Me duele...
 
----¡No me importa! ---Hyungmin se giró hacia ella con el ceño fruncido. Se relajó un poco al ver las lágrimas en su rostro y aflojó el agarre de su brazo ---. Perdón. Tenemos que volver ya a casa.
+---¡No me importa! ---Taeku se giró hacia ella con el ceño fruncido. Se relajó un poco al ver las lágrimas en su rostro y aflojó el agarre de su brazo ---. Perdón. Tenemos que volver ya a casa.
 
-Al salir del ascensor se encontró de cara a Taeku que estaba rojo de furia.
+Entraron al piso y la empujó tras pasar el ascensor. Séfora estaba asustada al ver cómo estaba reaccionando, le parecía algo exagerado. Se llevó la mano al brazo.
 
 ---Séfora...
 
-Su voz fue tan tranquila que ella sintió miedo. Hacía un rato que Hyungmin le había soltado el agarre y aún le dolía el brazo, no quería volver a empezar la discusión.
+La voz de Taeku fue tan tranquila que ella sintió miedo. Había cambiado nada más entrar a la casa, pero ella tenía preguntas. La forma en la que él había reaccionado al principio parecía exagerada.
 
 ---¿Quién es Keiken?
 
-Séfora los miró sin saber la bomba que acababa a soltar y el terremoto que había provocado.
+Séfora los miró sin saber la bomba que acababa a soltar y el terremoto que había provocado. La cara de Junnosuke había cambiado por completo en el momento que ese nombre salió de su boca.
 
----¿Estás bien, te ha tocado, te ha hecho algo, te ha dicho algo? ---Yonghwa se acercó hacia la muchacha, mirando que no estuviese herida por ningún lado.
+---¿Keiken? ---Junnosuke se tensó.
 
----Estoy bien ---dijo mientras intentaba soltarse del agarre de su compañero ---. Ha sido Hyungmin quien me hizo más daño.
+Sintió el peligro en la pregunta que Junnosuke había hecho.
 
----Es sencillo... ---Jongtae se aclaró la garganta y miró a Hyungmin un momento ---. Vigila a Junnosuke.
+---Digamos que Keiken es... ---Taeku se quedó pensando en cómo describirlo-. Keiken hace...
 
----No hace falta. Keiken es mi hermano mayor ---dijo de pronto Junnosuke temblando, no podía controlar el movimiento de sus manos ---. Es un hijo de la grandísima...
+// ---¿Estás bien, te ha tocado, te ha hecho algo, te ha dicho algo? ---Yonghwa se acercó hacia la muchacha, mirando que no estuviese herida por ningún lado.
 
----Si, si, si ---Yonghwa lo cortó de pronto ---; palabrota, palabrota y más palabrotas.
+// ---Estoy bien ---dijo mientras intentaba soltarse del agarre de su compañero ---. Ha sido Hyungmin quien me hizo más daño.
 
----Séfora no sé si has sido consciente de... ---Taeku se giró hacia ella alzando la voz.
+// ---Es sencillo... ---Jongtae se aclaró la garganta y miró a Hyungmin un momento ---. Vigila a Junnosuke.
 
----Ya lo sé ---ella se agarró el brazo dolorido, le saldría un cardenal ---. Ya me lo han dicho.
+---Keiken es mi hermano mayor ---dijo de pronto Junnosuke temblando, no podía controlar el movimiento de sus manos ---. Es un hijo de la grandísima...
 
-El hecho de que Keiken hubiese aparecido en ese momento fue bastante duro para todos. Es como si hubiese estado vigilando cada movimiento que hiciesen durante todo ese año esperando un momento de debilidad. Y aún daban gracias que simplemente se hubiese presentado.
+---Séfora no sé si has sido consciente del peligro que has pasado ---Taeku se giró hacia ella alzando la voz.
 
----Solo para que lo sepas ---Taeku se puso muy serio frente a ella ---, él es el responsable de la muerte de tus abuelos en Madrid y seguro que es el responsable de la muerte de tu abuelo en Japón. No pienses que no es peligroso.
+---Ya lo sé ---ella se agarró el brazo dolorido ---. Me ha quedado claro.
 
----Me doy cuenta de la gravedad del asunto ---dijo ella inquieta por esa explicación. Comprendiendo entonces el por qué todos se habían alarmado.
+// El hecho de que Keiken hubiese aparecido en ese momento fue bastante duro para todos. Es como si hubiese estado vigilando cada movimiento que hiciesen durante todo ese año esperando un momento de debilidad. Y aún daban gracias que simplemente se hubiese presentado.
+
+---Solo para que lo sepas ---Taeku se puso muy serio ---, creemos que él es el responsable de la muerte de tus abuelos en Madrid. Sospechamos que es ayudó de alguna manera en muerte de tu abuelo en Japón. No pienses que no es peligroso.
+
+---Me doy cuenta de la gravedad del asunto ---dijo ella inquieta por esa explicación. Comprendiendo entonces el por qué se habían alarmado.
 
 Había llegado el 26 de Julio y la casa estaba llena de maletas. Iba a comenzar una nueva vida y aún no se sentía del todo mentalizada en dejar su tierra. Séfora se encerró en su habitación una última vez y encendió una vela frente a una foto de sus abuelos, los que ella había conocido.
 

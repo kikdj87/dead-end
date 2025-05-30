@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 16
+=
 
 Dejaron a Yonghwa acostado sobre el suelo del salón que estaba limpio. Taeku estaba bajo las órdenes de Jongtae, que titubeaba un poco a la hora de ordenar que le trajese productos para desinfectar y limpiar la herida.
 

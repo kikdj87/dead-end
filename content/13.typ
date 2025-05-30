@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 13
+=
 
 El día de la fiesta llegó.
 

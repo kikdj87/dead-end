@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 17
+=
 
 La habitación del hospital se sintió fría. Tras la salida de Sanghun el silencio reinaba y aunque tuviera los ojos cerrados, podía notar la incomodidad. Se movió finalmente, aguantando el dolor fuerte de su cuerpo y se incorporó. Notó como unas manos la ayudaban a sentarse en la cama.
 

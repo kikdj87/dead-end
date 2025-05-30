@@ -39,8 +39,8 @@
       // radius: 7pt,
       // outset: 10pt,
       [
-        //#smallcaps("Capítulo")
-        //#counter(heading).display()
+        #smallcaps("Capítulo")
+        #counter(heading).display()
         #it.body
       ],
     )

@@ -1,4 +1,4 @@
-= Capítulo 5
+=
 
 Subieron al avión.
 
@@ -32,7 +32,7 @@ Ahora no era menos, pero creía que era una buena situación entre los dos solos
 
 Séfora se fijaba en cada detalle de su rostro. No había visto durante mucho tiempo a Keiken, pero de primeras los había confundido a ambos.
 
----Crecimos juntos, muy bien entre nosotros ---comenzó a explicar Junnosuke aun con el movimiento de sus manos nervioso ---. Pero cuando una facción del grupo e sublevó contra el viejo Watashime... perdón, tu abuelo Watashime, mi padre se fue con ellos.
+---Crecimos juntos, muy bien entre nosotros ---comenzó a explicar Junnosuke aun con el movimiento de sus manos nervioso ---. Pero cuando una facción del grupo se sublevó contra el viejo Watashime... perdón, tu abuelo Watashime, mi padre se fue con ellos.
 
 Ella escuchaba atenta la historia y pudo ver como él estaba concentrado en buscar las palabras exactas.
 
@@ -106,7 +106,7 @@ Ten Shio parecía la voz cantante del equipo. Se veía un hombre muy limpio y or
 
 A su derecha estaba Junho. Era el más elegante de los tres, rostro impecable, dientes perfectos y blancos, pelo muy bien cortado repeinado hacia atrás. Se le notaban las canas y eso le daba un toque interesante. Su traje era de rayas azul marino muy fino y se notaba que la tela era de calidad. Movía mucho dinero solo por los accesorios que no se molestaba en ocultar: un buen reloj y un gran anillo de oro.
 
-Y la izquierda estaba Takada Mishima. Era el más bajo y fornido de los tres. Llevaba la abierta por el cuello y no llevaba corbata, dejando ver un tatuaje cuando se movía. Su traje era blanco y tenía la pinta que mostraban las películas americanas sobre los Yakuza. 
+Y a la izquierda estaba Takada Mishima. Era el más bajo y fornido de los tres. Llevaba la camisa abierta por el cuello y no llevaba corbata, dejando ver un tatuaje cuando se movía. Su traje era blanco y tenía la pinta que mostraban las películas americanas sobre los Yakuza. 
 
 Y de la nada un nombre sacó a Séfora de sus pensamientos.
 

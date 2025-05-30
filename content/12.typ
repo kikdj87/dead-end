@@ -1,6 +1,6 @@
 #import "util.typ": separador
 
-= Capítulo 12
+=
 
 El día que conoció a Mina fue en una reunión en la empresa. Keiken no había ido con ella, no era tan tonto, pero la chica estaba bien acompañada.
 

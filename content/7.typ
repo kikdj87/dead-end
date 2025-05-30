@@ -1,4 +1,4 @@
-= Capítulo 7
+=
 
 Taeku había salido fuera junto con Junnosuke, arma en mano, buscando a más posibles tiradores por la zona.
 
@@ -26,7 +26,7 @@ Taeku se quedó en la puerta del edificio junto a otros guardias de seguridad da
 
 ---Él lo necesita más ---le miró y de nuevo volcó la mirada en la herida de la pierna de Séfora, la cual ya estaba controlada ---. Estás a salvo, tranquila, no ha sido grave.
 
-Séfora se incorporó como pudo sentada en el suelo, la pierna le dolía a rabiar y sentía que iba a vomitar en cualquier momento. Miró como había mucha gente al rededor del cuerpo de Hyungmin y, cuando se fijó que tenía movimiento propio, se dio cuenta que volvió a respirar algo más aliviada.
+Séfora se incorporó como pudo sentada en el suelo, la pierna le dolía a rabiar y sentía que iba a vomitar en cualquier momento. Miró como había mucha gente alrededor del cuerpo de Hyungmin y, cuando se fijó que tenía movimiento propio, se dio cuenta que volvió a respirar algo más aliviada.
 
 ---No te muevas tú sola ---Junnosuke agarró el hombro de la chica cuando intentó ponerse de pie ---, te va a doler más.
 
@@ -36,7 +36,7 @@ Séfora se incorporó como pudo sentada en el suelo, la pierna le dolía a rabia
 
 Llevaron a los dos heridos al hospital privado de la empresa. Atendieron con urgencia a Hyungmin y, gracias a la rápida actuación de Jongtae, su vida no corría peligro. La bala no había dado en un lugar crítico y había salido de forma limpia por su costado, por lo que la intervención fue mínima.
 
-Aún no tenían información del tirador, ya que conforme había aparecido se marchó a toda velocidad. Como fue tan de sorpresa no había nadie preparado para correr tras el vehículo e iniciar una persecución. Tampoco tenían apuntado la matrícula o cualquier cosa identificativa de los que había disparado.
+Aún no tenían información del tirador, ya que conforme había aparecido se marchó a toda velocidad. Como fue tan de sorpresa no había nadie preparado para correr tras el vehículo e iniciar una persecución. Tampoco tenían apuntado la matrícula o cualquier cosa identificativa de los que habían disparado.
 
 Tras unas horas bastante movidas y estresantes, metieron a los dos heridos en la misma habitación. Cerraron las puertas, ventanas y, teniendo seguridad por fuera de la puerta, se permitieron a hablar sobre lo que había pasado.
 
@@ -60,13 +60,11 @@ El silencio reinó en la habitación durante un eterno minuto. Todos estaban ana
 
 ---No sé en qué pensaste cuando te dijimos que este mundo era peligroso ---Taeku alzó el rostro del teléfono ---, muere más gente de la que querríamos. Nos protegemos unos a otros.
 
-Séfora asintió con la cabeza. Se había percatado de que Hyungmin se había arriesgado por ella. No lo había pensado mucho cuando saltó sobre su cuerpo y la cubrió de la bala que iba directa a ella. Iban en serio cuando decían que darían la vida por ella desde que se conocieron. Después de un rato de un silencio nada incómodo y que se agradeció tener, Taeku se sentó en una silla junto a Jongtae.
+Séfora asintió. Se había percatado de que Hyungmin se había arriesgado por ella. No lo había pensado mucho cuando saltó sobre su cuerpo y la cubrió de la bala que iba directa a ella. Iban en serio cuando decían que darían la vida por ella desde que se conocieron. Después de un rato de un silencio nada incómodo y que se agradeció tener, Taeku se sentó en una silla junto a Jongtae.
 
 ---En cuanto salgas de aquí irás a conocer a Sanghun ---dijo mientras miraba el móvil ---. Ah, casi se me olvida ---alzó una bolsa blanca y la dejó sobre la cama. Dentro había una caja con un teléfono móvil ---, he conseguido el mejor, tenemos que estar comunicados en cualquier momento y lugar. Aunque no nos separemos de ti.
 
 ---No me lo puedo creer ---rápidamente lo sacó de la bolsa, abrió la caja y empezó a toquetear el teléfono con gesto asombrado.
-
-Los chicos miraban a la muchacha divertida trastear el teléfono y añadir toda su información. Crearía sus nuevas cuentas desde cero y descubriría el perfecto funcionamiento de aquella cámara de fotos. Le dejaron su espacio, viendo que de nuevo parecía una adolescente sin problemas a su alrededor.
 
 De pronto hubo un silencio incómodo. Los que podían ponerse de pie lo hicieron de golpe, inclinando el cuerpo en un saludo formal hacia la persona que acababa de entrar por la puerta de la habitación. Ten Shio tenía el rostro serio cuando resopló mirando a todos y cada uno de la habitación. Séfora despegó la mirada del móvil y apretó los labios en una fina linea.
 
