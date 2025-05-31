@@ -27,3 +27,6 @@
 #include "content/18.typ"
 #include "content/19.typ"
 #include "content/20.typ"
+
+
+//10 (8) Séfora va con el abogado y él le cuenta la historia de la familia, le habla del testamento y le explica que si ella muere se pierde todo.

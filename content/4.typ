@@ -26,8 +26,7 @@ Se giró hacia la persona que había a su lado y se sorprendió cuando descubri�
 
 ---¿Quién eres? ---Se echó hacia atrás notando el peligro que emanaba de esa persona. Se le erizó el vello de la nuca.
 
-La postura tranquila y la mirada fría de aquella persona hizo que 
-Séfora se pusiese en guardia, subió los brazos para proteger el cuerpo cerrando los puños.
+La postura tranquila y la mirada fría de aquella persona hizo que Séfora se pusiese en guardia, subió los brazos para proteger el cuerpo cerrando los puños.
 
 Sin embargo él no se movió al ver su reacción. Tenía las manos en los bolsillos del pantalón vaquero negro y ajustado, dejando ver lo delgado que estaba. Llevaba una camiseta negra dejando al aire sus brazos, los cuales estaban completamente tatuados. Del cuello colgaba una cadena de plata bastante pesada y tenía un colmillo como colgante. Tenía el pelo oscuro y largo, le cubría parte del rostro, las orejas y le caía por la parte de atrás del cuello.
 
@@ -63,9 +62,9 @@ Esquivaba a la gente que aparecía de golpe delante de ella mientras paseaban in
 
 ---Auch...
 
----¿Estás loca? ---Se encontró con Taeku delante que agarró su brazo alzándola del suelo. Estaba jadeando y sudaba bastante ---. ¿Por qué has salido sola?
+---¿Estás loca? ---se encontró con Taeku delante que agarró su brazo alzándola del suelo. Estaba jadeando y sudaba bastante ---. ¿Por qué has salido sola?
 
----Me haces daño ---Jadeó cuando se incorporó tratando se soltar su agarre. Él apretó mucho más la mano alrededor de su brazo. Sacudió ligeramente su cuerpo provocando que ella la mirara.
+---Me haces daño ---jadeó cuando se incorporó tratando se soltar su agarre. Él apretó mucho más la mano alrededor de su brazo. Sacudió ligeramente su cuerpo provocando que ella le mirara.
 
 ---Él podría haberte hecho más daño ---comenzaron a caminar ---. No sé en qué estabas pensando, de verdad que no eres consciente de todo el peligro.
 
@@ -91,7 +90,7 @@ Séfora los miró sin saber la bomba que acababa a soltar y el terremoto que hab
 
 Sintió el peligro en la pregunta que Junnosuke había hecho.
 
----Digamos que Keiken es... ---Taeku se quedó pensando en cómo describirlo-. Keiken hace...
+---Digamos que Keiken es... ---Taeku se quedó pensando ---. Keiken hace...
 
 // ---¿Estás bien, te ha tocado, te ha hecho algo, te ha dicho algo? ---Yonghwa se acercó hacia la muchacha, mirando que no estuviese herida por ningún lado.
 
@@ -101,9 +100,9 @@ Sintió el peligro en la pregunta que Junnosuke había hecho.
 
 ---Keiken es mi hermano mayor ---dijo de pronto Junnosuke temblando, no podía controlar el movimiento de sus manos ---. Es un hijo de la grandísima...
 
----Séfora no sé si has sido consciente del peligro que has pasado ---Taeku se giró hacia ella alzando la voz.
+---Séfora, no sé si has sido consciente del peligro que has pasado ---Taeku se giró hacia ella alzando la voz.
 
----Ya lo sé ---ella se agarró el brazo dolorido ---. Me ha quedado claro.
+---No ---ella se agarró el brazo dolorido ---. Pero me ha quedado claro.
 
 // El hecho de que Keiken hubiese aparecido en ese momento fue bastante duro para todos. Es como si hubiese estado vigilando cada movimiento que hiciesen durante todo ese año esperando un momento de debilidad. Y aún daban gracias que simplemente se hubiese presentado.
 

@@ -87,3 +87,29 @@ Se fijó en el gesto concentrado de Séfora y miró a Taeku esperando que añadi
 ---Pues...
 
 Junnosuke daba golpes con el dedo sobre la mesa mientras esperaba a que ella reaccionara o respondiera.
+
+---Me enfrentaría a ellos ---ella comenzó a hablar ---, les diría que cuales son...
+
+---No ---Taeku alzó la mano ---. Habla para nosotros.
+
+---¿Cuál es tu problema conmigo? ---Séfora estaba concentrada ---. ¿Por qué no quieres que yo sea la líder?
+
+---Eres joven, no sabes nada de este mundo ---comenzó a argumentar Taeku ---, no te veo dispuesta a arriesgar tu vida por lo que está en juego.
+
+---Taeku a penas sé nada ---dejó de actuar y Junnosuke se fijó en el miedo de sus ojos ---. No sé cuál sería la mejor manera de afrontarlo.
+
+---Por eso estamos practicando ---Junnosuke soltó un suspiro agotado ---. Empezamos de nuevo.
+
+---Tú ---ella señaló a Taeku con un dedo ---, si no me haces caso te mato.
+
+Se hizo el silencio en la habitación. Junnosuke quiso reprimir una carcajada por lo que agachó la cabeza llevándose la mano hasta la frente. Si seguía mirándola rompería el momento.
+
+---Si vamos con amenazas yo también sé jugar a ese juego ---Taeku se irguió ---. No me da la gana que el equilibrio que Watashime construyó se vaya al traste por una jovencita que acaba de llegar. Deberían de haber elecciones internas, buscar a un mejor postor.
+
+---Watashime ya decidió que fuera ella ---Junnosuke volvió a meterse en su papel ---. Tiene un equipo detrás que la está ayudando en su trabajo. Sanghun trabajará codo a codo con ella.
+
+---¿Cuándo voy a conocer a Sanghun? ---interrumpió Séfora.
+
+---Cuando llegues a Japón ---respondió Taeku molesto ---. ¿Te das cuenta de que no te lo estás tomando en serio? No puedes amenazar a alguien de muerte y cambiar de tema. Tu estancia aquí se alargará conforme estés más o menos preparada.
+
+Séfora agachó la cabeza y Junnosuke se estiró en la silla. Taeku tenía razón, aún veía inmadurez en ella, por mucho que estuviera cargando en su espalda, aún era una niña.
