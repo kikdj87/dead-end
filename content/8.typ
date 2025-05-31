@@ -62,7 +62,7 @@ Sanghun estaba muy relajado. La expresión de Séfora cambió abriendo los ojos 
 
 ---Legalmente aquí no eres mayor de edad.
 
-Empujó con suavidad los papeles hacia la chica y se quedó esperando. Colocó un bolígrafo a su lado y se echó hacia atrás en la silla, le dejó su tiempo y espacio para que leyera con calma lo que ahí ponía.
+Empujó con suavidad los papeles hacia ella y se quedó esperando. Colocó un bolígrafo a su lado y se echó hacia atrás en la silla, le dejó su tiempo y espacio para que leyera con calma lo que ahí ponía.
 
 Comenzó a leer el testamento lo primero, pero se detuvo y bajó los papeles hasta dejarlos sobre la mesa.
 
@@ -98,7 +98,7 @@ Buscó el testamento y apretó ligeramente los labios, concentrado mientras esta
 
 ---¿Todo se perderá?
 
----Me llevó años descubrir a qué se refería eso. Como su abogado ayudé a redactar el testamento, pero eso nunca lo entendía. ¿Qué se perdería? ---hizo una pausa para soltar una risa irónica ---. El viejo los tenía bien puestos. Como él ya estaría muerto, le daba igual a cuanta gente se llevara por delante con esa decisión. El caso, hay otro abogado que tiene en su poder documentación clasificada de la empresa. Es un hombre austero y no hay por qué amenazarle en nada, ya he mantenido charlas con él. Está preparado para que, llegado el momento, publicar esos documentos y acabar con todo.
+---Me llevó años descubrir a qué se refería eso. Como su abogado ayudé a redactar el testamento, pero eso nunca lo entendí. ¿Qué se perdería? ---hizo una pausa para soltar una risa irónica ---. El viejo los tenía bien puestos. Como él ya estaría muerto, le daba igual a cuanta gente se llevara por delante con esa decisión. El caso, hay otro abogado que tiene en su poder documentación clasificada de la empresa. Es un hombre austero y no hay por qué amenazarle en nada, ya he mantenido charlas con él. Está preparado para que, llegado el momento, publique esos documentos y acabar con todo.
 
 Aquello le dejó en shock. ¿Por qué llegar a ese extremo? Estiró la mano hacia el testamento y leyó atentamente lo que estaba escrito.
 
@@ -116,7 +116,7 @@ Aquello le dejó en shock. ¿Por qué llegar a ese extremo? Estiró la mano haci
 
 Asintió con la cabeza sin poder decir nada. Tenía razón, hasta ahora solo era un nombre y una cara. Terminaría su entrenamiento y se enfrentaría a quienes no la querían allí para ganarse el respeto de todos.
 
----Entonces tú y yo compartimos el peso de la organización ---dijo con calma.
+---Entonces tú y yo compartimos el peso ---dijo con calma.
 
 ---Exacto ---asintió con calma ---. Digamos que compartimos el peso de la organización entre los dos. Cada uno es una cara de la misma moneda.
 

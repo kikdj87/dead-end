@@ -1,80 +1,38 @@
 =
 
-Comenzó una nueva semana. Tras una ducha refrescante después de una mañana de entrenamiento con Taeku, Séfora miró la ropa que había escogido en especial para aquel día. Se puso los pantalones de traje de color negro con calma y antes de abrocharse el botón se puso una camisa azul celeste y la abotonó. Las mangas le quedaban un poco por debajo del hombro y sonrió satisfecha al ver que al abotonarla quedaba perfecta. Se metió los faldones dentro del pantalón y finalmente se lo abrochó.
+// Comenzó una nueva semana. Tras una ducha refrescante después de una mañana de entrenamiento con Taeku, Séfora miró la ropa que había escogido en especial para aquel día. Se puso los pantalones de traje de color negro con calma y antes de abrocharse el botón se puso una camisa azul celeste y la abotonó. Las mangas le quedaban un poco por debajo del hombro y sonrió satisfecha al ver que al abotonarla quedaba perfecta. Se metió los faldones dentro del pantalón y finalmente se lo abrochó.
 
-Se miró al espejo de cuerpo entero que tenía en el dormitorio y respiró profundamente. No se sentía ella misma cuando le tocaba llevar aquel estilo de ropa, pero ya se había acostumbrado. Se recogió el pelo en un moño bajo y se fue a la cocina percatándose del ruido de la escalera mientras alguien bajaba. Junnosuke abrió la puerta y asomó la cabeza.
+// Se miró al espejo de cuerpo entero que tenía en el dormitorio y respiró profundamente. No se sentía ella misma cuando le tocaba llevar aquel estilo de ropa, pero ya se había acostumbrado. Se recogió el pelo en un moño bajo y se fue a la cocina percatándose del ruido de la escalera mientras alguien bajaba. Junnosuke abrió la puerta y asomó la cabeza.
 
----Buenos días Séfora -- Sonrió y entró en la casa al verla en la cocina ---, ¿has dormido bien?
+// ---Buenos días Séfora -- Sonrió y entró en la casa al verla en la cocina ---, ¿has dormido bien?
 
----Si ---se encogió de hombros y llenó una taza del café que acababa de hacer. Lo bebió poco a poco.
+// ---Si ---se encogió de hombros y llenó una taza del café que acababa de hacer. Lo bebió poco a poco.
 
----No te noto muy convencida ---se colocó a su lado apoyado en la encimera, mirándola serio - ¿Es por lo que pasó con Keiken?
+// ---No te noto muy convencida ---se colocó a su lado apoyado en la encimera, mirándola serio - ¿Es por lo que pasó con Keiken?
 
----No -- Dijo sin pensar y se mordió el labio inferior. Bebió del café y soltó el aire por la nariz ---, el otro día viví una experiencia que jamás había tenido ---él la miró con curiosidad.
+// ---No -- Dijo sin pensar y se mordió el labio inferior. Bebió del café y soltó el aire por la nariz ---, el otro día viví una experiencia que jamás había tenido ---él la miró con curiosidad.
 
----El día que saliste a escondidas ---sonrió con diversión y ella puso un mohín quejándose en silencio ---. Nos enteramos todos.
+// ---El día que saliste a escondidas ---sonrió con diversión y ella puso un mohín quejándose en silencio ---. Nos enteramos todos.
 
----En fin ---alzó la mano molesta restando importancia y terminó el café, siguiendo la conversación ---. Salí a tomar un café con alguien que no me trataba como la hija heredera de un tipo todo poderoso que manejaba el mundo a su antojo. Me trató como una chica normal ---respiró hondo, dejó a un lado la taza y se llevó ambas manos al pecho para señalarse -- Nunca he sabido quien soy, pero no soy esto que estás viendo ahora mismo.
+// ---En fin ---alzó la mano molesta restando importancia y terminó el café, siguiendo la conversación ---. Salí a tomar un café con alguien que no me trataba como la hija heredera de un tipo todo poderoso que manejaba el mundo a su antojo. Me trató como una chica normal ---respiró hondo, dejó a un lado la taza y se llevó ambas manos al pecho para señalarse -- Nunca he sabido quien soy, pero no soy esto que estás viendo ahora mismo.
 
----Tal vez ---se colocó algo más cerca de ella y apoyó su mano sobre su hombro ---, esto es una etapa, no será para siempre. Tienes diecinueve años. Aún tienes que conocer de dónde vienes y lo que vas a hacer el resto de tu vida. No lo has escogido, pero es lo que eres ahora mismo.
+// ---Tal vez ---se colocó algo más cerca de ella y apoyó su mano sobre su hombro ---, esto es una etapa, no será para siempre. Tienes diecinueve años. Aún tienes que conocer de dónde vienes y lo que vas a hacer el resto de tu vida. No lo has escogido, pero es lo que eres ahora mismo.
 
-Hubo un momento de silencio entre ambos, Junnosuke parecía sentir el desasosiego que Séfora sentía en aquel momento, así que le dio unas palmadas en la espalda con suavidad como si fuera otro de sus hermanos mayores.
+// Hubo un momento de silencio entre ambos, Junnosuke parecía sentir el desasosiego que Séfora sentía en aquel momento, así que le dio unas palmadas en la espalda con suavidad como si fuera otro de sus hermanos mayores.
 
----Solo tienes que tener un poco de paciencia y conocer a todas las personas importantes que tienes que conocer para saber moverte ---esbozó una amplia sonrisa guiñando más los ojos ---. Nos tienes a nosotros si quieres hacer cosas normales también. Si necesitas una noche de pizza y película soy el indicado. Si quieres videojuegos habla con Hyungmin ---ella soltó una risa ---. No estás sola.
+// ---Solo tienes que tener un poco de paciencia y conocer a todas las personas importantes que tienes que conocer para saber moverte ---esbozó una amplia sonrisa guiñando más los ojos ---. Nos tienes a nosotros si quieres hacer cosas normales también. Si necesitas una noche de pizza y película soy el indicado. Si quieres videojuegos habla con Hyungmin ---ella soltó una risa ---. No estás sola.
 
----Gracias por todo, Jun ---alzó una mano para pellizcar con suavidad su mejilla ---, de verdad que no sé qué sería de mí sin vosotros.
+// ---Gracias por todo, Jun ---alzó una mano para pellizcar con suavidad su mejilla ---, de verdad que no sé qué sería de mí sin vosotros.
 
----Estarías muerta ---sentenció como si nada pero cuando vio el rostro de horror de la chica y que había dejado caer la mano de su rostro se sintió mal ---. Perdón, me he pasado, perdón.
+// ---Estarías muerta ---sentenció como si nada pero cuando vio el rostro de horror de la chica y que había dejado caer la mano de su rostro se sintió mal ---. Perdón, me he pasado, perdón.
 
-Le dio la espalda y fregó la taza en la que había tomado café. Junnosuke pilló la indirecta y se marchó al piso superior coincidiendo en el camino con Hyungmin y Taeku, que iban directos al garaje. Ahí donde habían quedado para tomar el coche e ir a la nueva reunión. Séfora no tenía ganas de conocer a más gente, pero sabía que no tenía alternativa.
+// Le dio la espalda y fregó la taza en la que había tomado café. Junnosuke pilló la indirecta y se marchó al piso superior coincidiendo en el camino con Hyungmin y Taeku, que iban directos al garaje. Ahí donde habían quedado para tomar el coche e ir a la nueva reunión. Séfora no tenía ganas de conocer a más gente, pero sabía que no tenía alternativa.
 
-Los tres se montaron en el coche una vez estaban listos y fueron en silencio hasta un local de juegos de azar que había en los suburbios de Tokio. Parecía una zona sucia y llena de delincuencia. Se bajaron del coche los tres y entraron dentro del local, el cual estaba lleno de gente frente a unas máquinas, otros jugaban a cartas pero lo que tenían todos en común era el agotamiento mental y el apostar dinero.
 
-Se notaba que esas personas estaban enganchadas al juego y que lo necesitaban para sobrevivir cada día, ya pensaban que de esa manera podrían salir de la pobreza. Pero era un círculo vicioso, cuando ganaban apostaban más hasta perder todo, entonces pedían préstamos y volvían a empezar. Y así vivían este tipo de mafias: prestando dinero y cobrando enormes comisiones.
 
-Pero no todas las personas que habían eran hombres mayores. Se encontró muchas mujeres y algunos adolescentes que probaban suerte por primera vez y con emoción en las máquinas, gritando cada vez que ganaban alguna moneda de más. Séfora sintió una profunda tristeza al ver el tipo de vida que esas personas habían elegido. Porque sí, ellos habían escogido estar ahí gastando su dinero en un pozo que no tenía fondo.
+// ---Un momento ---Aoi agarró levemente a Taeku del brazo y le susurró algo al oído ---. Y ya sabéis, no volváis.
 
-Caminaron por aquella sala iluminada en exceso por escandalosas luces leds de colores y paredes de espejo hasta llegar a una puerta de color rosa pastel que había medio escondida al fondo de la sala. Taeku llamó a la puerta tres veces y una muchacha con exceso de maquillaje abrió la puerta dejando que los tres entraran. No los miró a la cara en ningún momento y los acompañó hasta el otro extremo del pasillo, donde había una puerta de color negro. Se había dado cuenta que a partir de la puerta rosa los colores y luces se habían acabado ipso facto.
-
-La muchacha llamó tres veces a la puerta y con las mismas se marchó desapareciendo de nuevo por la puerta rosa, parecía tener miedo de lo que había al otro lado.
-
-Se abrió la puerta y se dejó ver un despacho hortera. En la pared del fondo había una pecera llena de peces tropicales nadando entre corales, y un hombre estaba sentado en una silla frente a su despacho admirando como nadaban y jugaban.
-
----¿A qué se debe esta visita? ---preguntó girando la silla, dejando ver a un hombre entrado en años, muy delgado y algo desastre para llevar la ropa, ya que la camisa la tenia abierta por el cuello y los faldones mal metidos por los pantalones.
-
-Su pelo era canoso y estaba recortado por el cuello y las orejas. Fumaba un puro y tenía una copa de un líquido ambarino en esta.
-
----¿Y tú eres...? ---señaló a Séfora con una mano llena de anillos.
-
----Alguien que puede arruinarte la vida ---dijo Taeku a espaldas de Séfora. El hombre se echó a reír.
-
----Siempre eres tan dramático, Taeku ---dio una profunda calada echando el humo hacia donde ella se encontraba. Aguantó la respiración para no tragar el humo asqueroso. El hombre se puso en pie y se ajustó los tirantes que tenía colgando del pantalón por los hombros ---. Bueno, entonces esta es la chica de la que todo el mundo habla.
-
----Me llamo Séfora ---dijo con rostro serio, algo molesta por el tono que había tomado al referirse a ella.
-
----Chica, no me voy a molestar en aprender como se dice tu nombre ---apagó el puro en el cenicero y dejó la copa sobre la mesa ---. He hecho un trato ya con Keiken, así que habéis llegado tarde. Ten Shio aquí no pinta nada ya.
-
----Pero es que yo no soy Ten Shio ---alzó una ceja.
-
----Me da igual ---abrió los brazos y luego metió las manos en los bolsillos ---. Aoi y Kanon os acompañarán a la salida.
-
-Señaló con la cabeza dos hombres que estaban apoyados en la pared con gesto aburrido, pero en cuanto sus nombres salieron de su boca se incorporaron y se acercaron a ellos.
-
----No nos vamos a ir a ningún lado, Katsura ---dijo Taeku dando un paso hacia él con media sonrisa ---, te traigo una carta. Disfrútala un rato mientras esperamos ---le entregó un sobre y el hombre lo cogió con mala gana.
-
-Abrió el papel y lo leyó detenidamente. Su rostro cambió de estar con el ceño fruncido a soltar una sonora carcajada.
-
----Un ultimátum dice ---rompió el papel y lo tiró al suelo con sorna ---. Gracias por el servicio prestado, pero mi lealtad ya está puesta en otra persona así que podéis marcharos.
-
----De acuerdo, está bien ---Taeku miró a los hombres que estaban con Katsura y se giró hacia Séfora ---. Ya podemos irnos.
-
----Por si os perdéis mis chicos os acompañarán.
-
-Se sentó en la silla y se encendió un nuevo puro. Aoi y Kanon les acompañaron hasta el pasillo y luego salieron por la puerta rosa a la sala de juegos.
-
----Un momento ---Aoi agarró levemente a Taeku del brazo y le susurró algo al oído ---. Y ya sabéis, no volváis.
-
-Al decir lo último parecía molesto y alzó la voz, cerrando la puerta rosa con un portazo. Pero aquello parecía no importarle a las personas que estaban en la sala de juegos, ya que seguían concentrados en lo suyo. Aoi se quedó parado frente la puerta rosa de brazos cruzados y a su lado estaba Kanon también serio, con las manos enlazadas en la espalda.
+// Al decir lo último parecía molesto y alzó la voz, cerrando la puerta rosa con un portazo. Pero aquello parecía no importarle a las personas que estaban en la sala de juegos, ya que seguían concentrados en lo suyo. Aoi se quedó parado frente la puerta rosa de brazos cruzados y a su lado estaba Kanon también serio, con las manos enlazadas en la espalda.
 
 Uno era más alto que el otro y parecía más mayor de edad, tenía el pelo algo largo y por encima del hombro caían algunos mechones, otros caían por su rostro tapando su frente y por delante de sus orejas; parecía mucho más serio. El otro llevaba el mismo estilo de ropa, oscura y poco llamativa, querían pasar desapercibido. Su pelo era más corto y lo tenía engominado para dejar ver una leve cresta y los pelos alzados en puntas por detrás y los lados. Llevaba un pendiente de aro en el labio y sonreía de lado mientras veía como los tres invitados se marchaban hacia el coche.
 

@@ -88,7 +88,7 @@ En cuanto Tae se marchó, Séfora se acomodó en la mesa y se quedó mirando aqu
 
 Empezó a leerlo. Se aburrió al instante de tanto nombre y números de subordinados. Apenas un vistazo superficial le sirvió para conocer los puntos más importantes.
 
-Agradeció su memoria fotográfica para el aprendizaje, sin ella no hubiera podido desenvolverse tan fácil con el japonés.
+Agradeció su buena memoria para el aprendizaje, sin ella no hubiera podido desenvolverse tan fácil con el japonés.
 
 Solo leía nombres: Yamagu, Aoki, Inaka, Crows..., pero una en especial le llamó la atención. _Red Dragons_
 
