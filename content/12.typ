@@ -56,7 +56,7 @@ Comenzaron a andar hasta llegar al coche. Séfora se fijó que Taeku daba vuelta
 
 Séfora se lanzó hacia él haciendo como que le golpeaba, Ren no dejaba de reír mientras se cubría.
 
-Al principio le había costado confiar en el chico, pero la naturalidad con la que él la había tratado desde el principio había hecho que ella se sintiera más cómoda. Así que empezaba a ver algo de luz en ese mundo oscuro y hostil.
+Al principio le había costado confiar en el chico, pero la naturalidad con la que él la había tratado desde el inicio había hecho que ella se sintiera más cómoda. Así que empezaba a ver algo de luz en ese mundo oscuro y hostil.
 
 ---Ya está hecho ---Taeku se paró junto a ellos.
 
@@ -70,7 +70,7 @@ El cambio de ella fue radical. Se separó de Ren para fijarse en Taeku y ver en 
 
 Séfora entró en el lado del copiloto y se giró hacia Ren, volviendo la mirada a Taeku. Apoyada en el respaldo del asiento estaba pensando en la creciente tensión entre los diversos grupos. Había podido ganarse la confianza de muchos participando en pequeñas peleas internas, cosa que no le había gustado nada.
 
-Descubrió que los Yakuzas eran complicados de manejar si no ibas en persona y dabas varios puñetazos al más fuerte para hacerte ver no valías nada. Había sido difícil, muy difícil hacerse ver, y había recibido algunas palizas más fuertes de lo que hubiera imaginado.
+Descubrió que los Yakuzas eran complicados de manejar si no ibas en persona y dabas varios puñetazos al más fuerte. Había sido difícil, muy difícil hacerse ver, y había recibido algunas palizas más fuertes de lo que hubiera imaginado.
 
 Cuando había mal tiempo su hombro se resentía. En la última pelea, donde salió victoriosa, había caído en una mala postura, habiéndose dislocado el hombro. Aunque hubiese curado bien, en los días de lluvia le molestaba.
 
@@ -82,7 +82,7 @@ Entraron en la vivienda, subiendo en el ascensor directamente a la segunda plant
 
 ---Ya era hora ---tragó la comida ---. ¿Qué tal los disparos?
 
----Obviamente bien, soy mejor que tú ---Séfora asintió ---. Por cierto, Ren, puedes ir a ver a tu padre y decirle que organice la reunión del distrito _Oeste_. Todo está preparado.
+---Obviamente bien, soy mejor que tú ---Séfora asintió ---. Por cierto, Ren, ¿puedes ir a ver a tu padre y decirle que organice la reunión del distrito _Oeste_? Todo está preparado.
 
 El chico asintió con la cabeza y se marchó de allí. Séfora fue directa hasta Junnosuke y miró su bol de ramen. Después de dos años juntos había tomado bastante confianza con ellos. Le quitó los palillos y agarró una carga de fideos para llevársela a la boca.
 
@@ -126,7 +126,7 @@ Séfora salió del coche con la gorra puesta y una mascarilla.
 
 No podía dejar que otro tuviera acceso a ese rumor sin tener ella el control de lo que se decía. No le servía un informe sobre la mesa, necesitaba saberlo de primera mano.
 
-Había sido muy difícil convencer a Taeku para que fuera ella, junto con Junnosuke, hacia la zona por donde éste había empezado. Antes de salir de casa había organizado un despliegue de hombres por los edificios cercanos. Tres en cada uno. Todos conectados en una línea de comunicación segura con sus respectivos auriculares.
+Había sido muy difícil convencer a Taeku para que fuera ella, junto a Junnosuke, a la zona donde el rumor había empezado. Antes de salir de casa había organizado un despliegue de hombres por los edificios cercanos. Tres en cada uno. Todos conectados en una línea de comunicación segura con sus respectivos auriculares.
 
 ---No te lo quites en toda la noche ---le había dicho Taeku.
 
@@ -136,7 +136,7 @@ Cada cinco minutos escuchaba la voz de su compañero comprobando que todo estuvi
 
 ---Dime algo más de ellos, necesito tener las ideas claras.
 
----Esta facción se llama _Arashi-Kai_ y no es muy grande, son de los que están resistiendo que estés aquí.
+---Esta facción se llama _Arashi-Kai_ y no es muy grande, son de los que se están resistiendo a que estés aquí.
 
 ---Aún no me he encontrado en persona con ellos ---comentó Séfora mirando el anillo que llevaba puesto ---, eso puede ser una ventaja.
 
@@ -154,11 +154,11 @@ La única mujer que iba dando la cara y buscando pelea entre las facciones para 
 
 ---Entiendo a lo que te refieres ---Junnosuke asintió y se llevó el dedo a la oreja ---. Nos movemos, estad atentos.
 
-No era nada normal llevar una mascarilla en el centro de la ciudad, la contaminación del aire era bastante alta, así que le servía a Séfora para cubrirse el rostro. Junnosuke iba más coloquial y su andar era despreocupado, trataba de instarla a que fuera más relajada.
+No era nada normal llevar una mascarilla en el centro de la ciudad, la contaminación del aire era bastante alta, así que le servía a Séfora para cubrirse el rostro. Junnosuke iba más coloquial y su andar era despreocupado.
 
 ---Relájate ---murmuró ---, me vas a poner nervioso.
 
-Llegaron al grupo de gente que estaba reunida al rededor de una hoguera. El lugar era un descampado con varios coches alrededor, algunos nuevos y otros abandonados y vandalizados. Había uno que llevaba un bate metálico y estaba custodiando la entrada, el cual se alarmó cuando los vio llegar.
+Llegaron al grupo de gente que estaba reunida al rededor de una hoguera. El lugar era un descampado con varios coches alrededor, algunos nuevos y otros abandonados y vandalizados. Había un tipo que llevaba un bate metálico y estaba custodiando la entrada, el cual se alarmó cuando los vio llegar.
 
 Séfora y Junnosuke alzaron la mano dejando ver sus correspondientes anillos. Gracias a Mishima tenía acceso a todos los instintivos de las bandas.
 
@@ -168,7 +168,7 @@ El hombre se giró y ambos pasaron al descampado. En ese momento Junnosuke aprov
 
 Séfora asintió y se dejó llevar en esta ocasión. Habían muchas personas allí reunidas. Pudo contar con rapidez más de cincuenta tan solo en un lado del descampado, por lo que habrían más de ciento cincuenta personas. Trataba de estar tranquila, agradecía que el año de experiencia había ayudado a que las piernas dejaran de temblarle.
 
-Caminaron hasta un rincón donde un coche había sido transformado en un sofá de lo más incómodo, donde un grupo de hombres jugaban al _koi-koi_. Junnosuke se sentó a su lado y colocó a Séfora sentada sobre su pierna.
+Caminaron hasta un rincón donde un coche había sido transformado en un sofá de lo más incómodo, un grupo de hombres jugaban al _koi-koi_. Junnosuke se sentó a su lado y colocó a Séfora sentada sobre su pierna.
 
 ---Tengo cincuenta mil yenes que me queman en el bolsillo, ¿se aceptan apuestas?
 
@@ -238,9 +238,9 @@ Todos se echaron a reír con ganas mientras ella se cubría bien la cara, agrade
 
 El juego volvió a empezar y Junnosuke puso lo único de dinero que le quedaba sobre la mesa.
 
----Tengo entendido que hay otro heredero ---dijo moviendo sus cartas en las manos.
+---Tengo entendido que hay otro heredero ---dijo Junnosuke moviendo sus cartas en las manos.
 
----Es cierto, yo también lo he escuchado, os lo dije, no soy el único. Hay otro Watashime.
+---Es cierto, yo también lo he escuchado. Os lo dije, no soy el único. Hay otro Watashime.
 
 El que habló se puso en pie y sacó varias latas de cerveza de una nevera que tenía al lado, las repartió entre los hombres.
 
@@ -258,7 +258,7 @@ Se hizo el silencio y le miraron.
 
 ---Me gusta este chico ---uno de ellos le dio con la mano en la espalda.
 
-Siguieron el juego hasta que Junnosuke le dio la vuelta y ganó esa partida. Los hombres rieron animados al ver que había ganado, alegando que había sido por aquel beso de la suerte.
+Siguieron el juego hasta que Junnosuke le dio la vuelta y ganó esa partida. Los hombres rieron animados al ver el resultado, alegando que había sido por aquel beso de la suerte.
 
 ---Ya está bien ¿no?
 
@@ -266,4 +266,6 @@ Se escuchó por el auricular. Junnosuke en ese momento se miró el reloj y le di
 
 ---Creo que he recuperado lo invertido, así que esta noche le daré un homenaje a mi chica, se lo merece.
 
-Se pusieron de pie y los hombres asintieron alzando la cerveza, brindando en honor a Junnosuke. Salieron de allí con paso tranquilo mientras escuchaban murmurar a Taeku.
+---¡Claro que si! Que vaya bien la noche, muchacho.
+
+Ambos se pusieron de pie y los hombres alzaron la cerveza, brindando en honor a Junnosuke. Salieron de allí con paso tranquilo mientras escuchaban de fondo a Taeku preguntando de nuevo si había ido bien.
