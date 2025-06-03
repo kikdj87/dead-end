@@ -128,7 +128,7 @@ Séfora aguantó la respiración para no tragar el humo asqueroso. El hombre se 
 
 ---Pero es que yo no soy Ten Shio ---se llevó una mano al pecho.
 
----Me da igual ---abrió los brazos ---. Aoi y Kanon os acompañarán a la salida.
+---Me da igual ---abrió los brazos ---. Mis chicos os acompañarán a la salida.
 
 Señaló con la cabeza dos hombres que estaban apoyados en la pared con gesto aburrido, pero en cuanto escucharon su nombre se incorporaron y se acercaron a ellos.
 

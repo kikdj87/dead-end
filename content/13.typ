@@ -224,7 +224,7 @@ Dio una vuelta a la mesa donde ellos estaban sentados y escuchó sus conversacio
 
 ---Hay otra cosa más ---añadió Séfora ---, no concibo las reuniones secretas, ni las alianzas paralelas y mucho menos las traiciones.
 
-Alzó ligeramente la pistola y señaló a cada uno de los presentes. Sintió una ligera tensión en su rostro.
+Alzó ligeramente la pistola y señaló a cada uno de los presentes. Sintió una ligera tensión en sus rostros.
 
 ---Me ha costado sudor y lágrimas estar aquí y no dejaré que lo que ya he conseguido se vaya al traste. Jugaré sucio si es necesario.
 
@@ -232,7 +232,7 @@ Alzó ligeramente la pistola y señaló a cada uno de los presentes. Sintió una
 
 ---No he terminado ---apuntó al que le interrumpió con la pistola y la cargó ---. No me da miedo mancharme las manos de sangre. Sois prescindibles. No sabéis cuantos desean el puesto que tenéis vosotros. Me sois útiles, por eso trabajamos juntos. Vosotros felices y yo feliz.
 
-Descargó la pistola y se la guardó de nuevo en la cartuchera. Se giró hacia la ventana y los despidió a todos. Una vez se quedó sola Junnosuke se acercó a ella.
+Le puso el seguro al arma y se la guardó de nuevo en la cartuchera. Se giró hacia la ventana y los despidió a todos. Una vez se quedó sola Junnosuke se acercó a ella.
 
 ---Katsura, lo he visto nervioso.
 
