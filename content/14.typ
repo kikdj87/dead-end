@@ -1,3 +1,5 @@
+#import "util.typ": separador
+
 =
 
 ---Nosotros iremos por la puerta principal ---dijo Séfora ---. Que un grupo pequeño vaya por detrás. El resto pueden esperar aquí fuera.
@@ -110,6 +112,62 @@ En su estado no podía echarse a llorar, aún estaba asimilando que les habían 
 
 ---¡Si! ---consiguió decir ella.
 
----Ahora debéis iros de allí, Ren está en buenas manos. Escucha atentamente Séfora, esto es cosa tuya y no voy a intervenir. Planifica y resuelve.
+---Escucha atentamente Séfora, esto es cosa tuya y no voy a intervenir. Planifica y resuelve. Ahora debéis iros de allí, Ren está en buenas manos.
 
 La llamada se cortó y Séfora se miró las manos, aún manchadas de sangre. Endureció su mirada y alzó el rostro para mirar a sus compañeros que esperaban respuesta.
+
+---Vamos a casa, hay cosas que debemos hablar muy seriamente.
+
+Tras descargar los cuerpos sin vida de sus compañeros se marcharon de La Clínica. Sabían que allí estaban capacitados para ese trabajo sucio, por lo que podían estar tranquilos.
+
+Durante el trayecto Séfora miraba el teléfono, aún manchado de sangre, pensando en cerrar el círculo para atrapar a esa rata que se había colado entre sus filas. 
+
+#separador
+
+Tras salir de la ducha se miró al espejo, las cicatrices no habían aumentado, pero si eran notorias.
+
+Se vistió con ropa cómoda y subió las escaleras con paso decidido, Taeku y Junnosuke eran los únicos en los que podía confiar en ese momento. Entró al apartamento y se sentó directamente en el sofá. En ese momento solo estaba Taeku.
+
+---Ren es fuerte ---dijo, sentándose a su lado.
+
+---No me perdonaría su muerte ---susurró girando el rostro para mirarle ---. Tenías razón.
+
+---Ya no puedes lamentarte ---él posó la mano sobre su brazo en un gesto suave, ella alzó la mirada hacia su rostro.
+
+Sintió algo distinto en esa mirada que nunca antes había visto. Llevaba ya mucho tiempo a su lado y siempre había sido protector con ella, pero lo achacaba a su rol como protector. En ese momento vio algo distinto y sintió miedo.
+
+---Taeku...
+
+---Bueno, planifiquemos ---Junnosuke bajó las escaleras.
+
+Taeku quitó la mano de su brazo de una forma suave, casi disimulado. Apartó la mirada de él para centrarse en Junnosuke, que los miraba con gesto interrogativo.
+
+---No puedo confiar en todas las personas que sabían el plan de hoy, por lo que actuaréis vosotros dos ---dijo Séfora.
+
+---Haciendo qué ---imperó Taeku.
+
+---Siento que voy a jugar la carta más rastrera que tengo, pero no me ha dejado otra ---se tapó la boca con la mano ---. Iréis a su casa.
+
+Con decir aquello y ver las expresiones de sus compañeros supo que ellos lo sabían. Taeku agachó la cabeza escondiendo ésta, apoyando los brazos en sus rodillas. Junnosuke se había quedado de pie, apretando los puños frente a ellos.
+
+---Yo lo haré ---dijo Junnosuke ---, iré solo y lo haré.
+
+---No ---Taeku se puso en pie ---, no puedo dejar que te cargues con este peso.
+
+---No sería la primera vez que hago algo así.
+
+Aquella confesión rompió a Séfora y miró a Junnosuke de otra manera. Había muchas cosas de ellos que no sabía, a pesar del tiempo juntos ellos nunca hablaban de su pasado.
+
+---Ese de ahí es el ordenador de Katsura ---señaló Junnosuke sobre la mesa.
+
+---Buscaremos a alguien que sepa entrar en él. Descubriremos sus secretos ---dijo Séfora ---. No puedes dejar que pase más tiempo Junnosuke, hazlo ya.
+
+Él asintió y agarrando las llaves de su coche se marchó de allí sin añadir nada más.
+
+---Después de esto, las cosas van a ser completamente distintas, ¿lo sabes? ---Taeku la miró preocupado.
+
+---En el momento que él decidió traicionarme hizo que la cosa cambiara ---se puso en pie ---. Debe saber las consecuencias de traicionarme.
+
+Él la agarró de la mano y se puso en pie mirándola.
+
+---No estás sola en esto, Séfora. Estaré a tu lado.
