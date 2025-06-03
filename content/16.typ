@@ -56,3 +56,88 @@ Ella se apoyó en su hombro y soltó un profundo suspiro, pensando en el duro ca
 
 ---Quiero llevarte a un sitio ---Taeku pasó la mano por su hombro.
 
+En el coche fueron hasta llegar a un templo que estaba cerca de la torre de Tokio. Movió el coche por un pequeño camino hasta dejarlo en un aparcamiento que en ese momento estaba vacío.
+
+---Con la lluvia poco gente viene ---dijo Taeku agarrando su arma, colocando esta en el cinturón ---, pero toda precaución es poca. Vamos.
+
+Se bajaron del coche y Séfora no dudó en preparar su arma y colocarla en el cinturón también. Le siguió colocándose a su lado, cubriendo sus ojos de la lluvia.
+
+---¿No tienes un paraguas en el coche? ---murmuró ella molesta.
+
+---Sí, lo tengo ---abrió el maletero y sacó un paraguas alargado y negro, lo abrió y cubrió la cabeza de ella ---. Los días grises da un toque melancólico a este lugar.
+
+Comenzó a caminar hasta el centro, dejando el edificio más grande a la derecha, parándose para observarlo.
+
+---Este templo se llama _Zojoji_ ---señaló él.
+
+Siguió el camino dejando ese edificio a su espalda y se dirigió a una zona llena de árboles, caminó en silencio, a su izquierda vio una campana grande y se maravilló con aquel paisaje. Totalmente vacío y mojado por la lluvia ganaba mucho.
+
+Recordó la primera vez que llegó a Tokio y Junnosuke le habló de la ciudad con mucho cariño. No había podido ir a ningún lado emblemático así que se llenó los ojos con aquel entorno. De fondo se podía ver la torre de Tokio ligeramente iluminada.
+
+---Por aquí ---apremió Taeku entre risas por su gesto ---, pareces una turista.
+
+---¡Lo soy! ---se justificó ella ---. Es la primera vez que paseo con tranquilidad, yendo a sitios bonitos sin tener que reunirme con algún Yakuza de tres al cuartos.
+
+Taeku la guió hasta el lado contrario de la campana, donde había un lugar con incienso y al rededor algunas esculturas y monumentos pequeños.
+
+---No sé tus ideales religiosos, nunca los hemos hablado, pero creo que este es un buen sitio para limpiar tu alma, si es que quieres.
+
+Séfora miró a Taeku a los ojos. Al encontrarse con su mirada él sonrió y mantuvo con firmeza el paraguas para que no se mojara.
+
+---No sé cómo se hace.
+
+---No importa el cómo, sino que lo intentes ---señaló él.
+
+Se giró para quedar frente al lugar y respiró profundamente. Salió del amparo del paraguas y comenzó a sentir las finas gotas por su cuerpo. Apretó con fuerza los puños y luego dejó caer los brazos a ambos lados de su cuerpo. Rezó por las almas de esos niños. También por la suya propia.
+
+No contó el tiempo que estuvo allí de pie, pero se permitió pensar en ella misma y analizar su pasado. Si sus abuelos estuviesen vivos, ¿qué pensarían de ella? Se permitió el lujo de ir más allá, ¿qué pensaría su padre si viera lo que estaba haciendo? 
+
+Él mismo había huido de aquella vida porque sabía lo que tenía que hacer, porque había visto a su abuelo hacer esas cosas tan oscuras y no quería eso para su hija.
+
+Se limpió las gotas de lluvia de la cara y se tiró de rodillas al suelo.
+
+---Lo siento.
+
+Terminó por romper en llanto, tapándose la cara con ambas manos. Sentía vergüenza de sí misma. Se había manchado las manos de sangre. Peor aún, había obligado que otra persona hiciese un trabajo horrible en su nombre.
+
+La mirada fría de Junnosuke cuando se lo había dicho le había dejado claro que anteriormente ya había hecho algo de ese calibre, pero aún así, no estaba justificado.
+
+De pronto sintió un calor rodear su espalda. Taeku estaba de rodillas detrás de ella, abrazándola, así que se dejó hacer. Apoyó el rostro en su hombro mientras lloraba.
+
+Volvieron al coche y antes de montarse en el coche Séfora estornudó un par de veces.
+
+---Vamos rápido, no sería bueno que te resfriaras ---dijo Taeku.
+
+---Te haré hacer horas extras para cuidarme ---dijo Séfora riendo.
+
+Iban de camino a casa cuando el teléfono de Taeku comenzó a sonar. En la pantalla vieron el nombre de Junnosuke.
+
+---Dime ---Taeku puso el manos libres.
+
+---Estoy en La Clínica, tenéis que venir ya.
+
+---Estamos de camino ---respondió Séfora y la llamada terminó.
+
+Tenía el corazón encogido pensando en las miles de probabilidades que podrían estar ocurriendo en ese momento. Pero la que más le importaba era la posibilidad de que Ren hubiese sobrevivido y le viera despierto.
+
+Taeku conducía de forma brusca, acelerando el coche todo lo que podía. Dejó el coche mal aparcado y se bajaron del coche, yendo dentro de La Clínica. Junnosuke les esperaba en la entrada.
+
+---Estáis... ---los señaló pero después negó con la cabeza ---. Da igual, venid.
+
+Los tres fueron hasta la habitación donde habían dejado ingresado a Ren y vieron a su padre a los pies de la cama furioso. Séfora miró al hombre y luego a su amigo, el cual había fallecido.
+
+---Espero que tomes cartas en el asunto ---dijo el hombre.
+
+No podía hablar, verle desconectado de cada máquina y sin vida sobre la cama le había cortado la respiración.
+
+---¡Si tú no lo haces lo haré yo! ---gritó el hombre.
+
+Ese grito hizo que volviera en sí. Se echó el pelo empapado hacia atrás y su rostro se volvió serio, calculador. Caminó hasta el hombre y le dio un bofetón.
+
+---Que Ren haya muerto no te da derecho a alzarme la voz. Si quieres saber si he actuado o no, te recomiendo mirar las noticias.
+
+Miró el cuerpo sin vida de Ren e hizo una despedida silenciosa. Su amigo, quien daba un toque de normalidad a su vida había muerto por un error suyo. Pero no podía permitirse llorar más, tenía muertes a su espalda y se haría responsable de ellas.
+
+Salió de la habitación y pasó la mano por el brazo de Taeku, le miró y luego volcó la mirada en Junnosuke.
+
+---Vamos a ver a Sanghun.

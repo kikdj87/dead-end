@@ -100,7 +100,7 @@ El chico asintió con la cabeza y se marchó de allí. Séfora fue directa hasta
 
 Le miró seria. Esa hostilidad hacia Ren no le gustaba, lo ideal para ella sería que ambos trabajasen bien juntos. Y no sería porque Ren no lo intentaba. En el momento en el que iba a rechistar, Junnosuke habló.
 
----No es un dato cien por cien fiable, pero hay un rumor en los suburbios de fuera de Tokyo.
+---No es un dato cien por cien fiable, pero hay un rumor en los suburbios de fuera de Tokio.
 
 ---¿Un rumor? ---preguntó Séfora ---. ¿Por qué tendría que preocuparme un rumor?
 

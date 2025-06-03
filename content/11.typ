@@ -74,7 +74,7 @@ Dejaron las katanas bien colocadas en su lugar correspondiente y tras limpiar la
 
 Estaba con el pijama puesto y un refresco en la mano, tumbada en el sofá cuando apareció Taeku abriendo la puerta sin llamar, cargado con un montón de papeles. Los dejó sobre la mesa del salón. Resopló por el peso y se sacudió ambas manos sonriendo satisfecho.
 
----Esta información es importante que la tengas. Sanghun la ha mandado, es todo lo que tienes que saber de los distintos grupos de los barrios de Tokyo y lugares importantes. Las bandas más relevantes ---apoyó la mano sobre el montón de papeles ---, nombres, familia, los datos más necesarios. Es una forma de mantenerlos controlados.
+---Esta información es importante que la tengas. Sanghun la ha mandado, es todo lo que tienes que saber de los distintos grupos de los barrios de Tokio y lugares importantes. Las bandas más relevantes ---apoyó la mano sobre el montón de papeles ---, nombres, familia, los datos más necesarios. Es una forma de mantenerlos controlados.
 
 ---Entiendo ---se puso en pie y se acercó a los papeles ---. ¿Me los tengo que aprender?
 

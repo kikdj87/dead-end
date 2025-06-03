@@ -44,7 +44,7 @@ Cuando dijo lo último giró completamente el rostro para mirar a Séfora.
 
 Ambos se quedaron en silencio. Séfora no tenía valor de preguntarle nada más a cerca de su hermano, había visto lo incómodo que había sido para él poder decir todo aquello. Por lo que decidió cambiar de tema.
 
-El vuelo duraba más de quince horas, era directo de Barcelona hasta Tokyo. Daba tiempo a dormir, de ver alguna película y de hablar de cosas más triviales. Así que decidió divertirse con su compañero.
+El vuelo duraba más de quince horas, era directo de Barcelona hasta Tokio. Daba tiempo a dormir, de ver alguna película y de hablar de cosas más triviales. Así que decidió divertirse con su compañero.
 
 Cuando el avión llegó a tierra salieron. Entraron dentro de la terminal y recogieron las maletas. Séfora lo miraba todo impresionada. Olvidó el cansancio del avión y las horas encerradas en esa caja. Las vistas eran impresionantes.
 

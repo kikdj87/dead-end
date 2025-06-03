@@ -80,7 +80,7 @@ La encontraron limpiando la sangre del suelo.
 
 ---Tenemos un nombre ---dijo Taeku ---, Katsura Sato.
 
----Me suena ese nombre ---comentó Séfora ---, leí por encima sobre él, pertenece a una pequeña facción del sur de Tokyo.
+---Me suena ese nombre ---comentó Séfora ---, leí por encima sobre él, pertenece a una pequeña facción del sur de Tokio.
 
 ---¿Cómo...? ---Junnosuke se sorprendió. Negó con la cabeza comprendiendo la facilidad de aprender que ella tenía.
 
