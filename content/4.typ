@@ -1,117 +1,173 @@
+#import "util.typ": separador
+
 =
 
-Y había pasado un año.
+Séfora esperaba a que aquel desconocido apareciera por el ascensor en cualquier momento.
 
-El viaje a Japón ya estaba preparado para finales de ese mismo mes de julio. Todo estaba estrictamente dispuesto para que cuando llegara tuviera las reuniones pertinentes. Debía conocer a las personas importantes que su abuelo había dejado al cargo en cada país.
+---Ten Shio quiere asegurarse de que todo ha ido bien ---Taeku estaba un par de pasos detrás de ella mirándose el reloj ---. Que estás a salvo.
 
-Cuando se dio cuenta de que se marcharía para nunca volver, solo pensaba en que necesitaba despedirse del país que le había visto crecer. Por lo que suplicó y suplicó que la dejaran sola durante solo un día.
+---Ni yo misma sé si lo estoy aún ---dijo Séfora sobresaltada ---, hace básicamente nada supe de la existencia de mi abuelo Watashime. ¿No puedo dejarle las cosas a ese tal Ten no se qué?
 
-Pensó muy bien lo que tenía que hacer. Había subido a la azotea para asegurarse que el coche había salido del edificio, así que con mochila en mano ella también salió.
+---¡No! ---casi gritaron a la vez y ella se sobresaltó. Taeku habló a continuación ---. No. No le insinúes eso. Primero escúchale sin decir nada.
 
-Se había dibujado un mapa mental de todas las veces que había salido con ellos, así que más o menos sabía por donde tenía que ir. Contó en su cartera el dinero que tenía y esbozó una amplia sonrisa.
+---Pero es que... no sé nada ---Séfora se abrazó el cuerpo para protegerse.
 
----Bien, es mi momento.
+Ella solo quería quitarse de encima el peso que le había caído con la noticia, y ellos querían que ella cargara con todo el problema. ¿No querían protegerla?, se sentía confusa. Pero eran las únicas personas que en ese momento tenía de su lado e intentaba confiar en ellos.
 
-Comenzó a andar por la calle con calma. Era una chica más en esa ciudad tan llena de gente. Fue tienda por tienda, simplemente miraba y se deleitaba con las pequeñas cosas que habían.
+---Ya no tengo a nadie ---dijo en un hilo de voz pensando en sus abuelos de Madrid ---. ¿Mis abuelos... están muertos?
 
-Se compró un granizado para refrescar su mañana y se sintió completa. No habría manera de que la localizaran porque no llevaba teléfono, así que estaba segura.
+La puerta del ascensor se abrió de par en par y tres desconocidos entraron al piso. Los dos chavales que estaban tranquilos se tensaron y giraron el cuerpo hacia el recién llegado.
 
-Llegó hasta un parque y fue directa hacia un estanque de agua donde unos patos nadaban tranquilos cuando se sintió observada. Hacía unas cuantas calles que sentía que alguien la estaba siguiendo y se sintió algo frustrada por ello cuando una sombra apareció a su lado.
+El que estaba en medio era un señor bastante mayor, algo bajo y delgado con el pelo casi blanco. Su ropa estaba impecable. A ambos lados suyos habían dos personas, guardaespaldas, pensó Séfora.
 
----Junnosuke...
+---Oh, si es la viva imagen de su padre ---el hombre se acercó a Séfora pasando de los chicos y agarró la mano de ella entre las dos suyas. Estaban algo ásperas y frías. A Séfora no le gustó aquel gesto ---. Soy Ten Shio. Era muy cercano a tu abuelo. Mucho gusto Séfora, me alegra poder conocerte al fin.
 
-Se giró hacia la persona que había a su lado y se sorprendió cuando descubrió que no era su amigo quien ahí estaba. Reconoció una sombra de Junnosuke en ese desconocido.
+---Lo... mismo digo ---casi murmuró inclinada hacia atrás.
 
----Persona equivocada ---El chico se metió las manos en los bolsillos y se acercó a Séfora con paso lento, perezoso.
+Le apestaba el aliento a tabaco mezclado con menta y para ella era bastante desagradable. A pesar de que acababa de ser consciente de su existencia, no le gustaba, pero quería ser cordial.
 
----¿Quién eres? ---Se echó hacia atrás notando el peligro que emanaba de esa persona. Se le erizó el vello de la nuca.
+---Sé que hasta ayer no sabías nada de nosotros, ha sido todo repentino ---dijo Ten Shio. La llevó hasta el sofá e indicó que se sentara y él se sentó a su lado ---. Siento que te hayas tenido que enterar de todo esto en estas circunstancias. Lamento tu pérdida.
 
-La postura tranquila y la mirada fría de aquella persona hizo que Séfora se pusiese en guardia, subió los brazos para proteger el cuerpo cerrando los puños.
+---Gracias, supongo ---asintió con la cabeza agradecida.
 
-Sin embargo él no se movió al ver su reacción. Tenía las manos en los bolsillos del pantalón vaquero negro y ajustado, dejando ver lo delgado que estaba. Llevaba una camiseta negra dejando al aire sus brazos, los cuales estaban completamente tatuados. Del cuello colgaba una cadena de plata bastante pesada y tenía un colmillo como colgante. Tenía el pelo oscuro y largo, le cubría parte del rostro, las orejas y le caía por la parte de atrás del cuello.
+---¿Te han contado algo? ---habló como si solo estuviesen ellos dos. La miraba con una sonrisa que podría interpretarse como falsa o forzada.
 
----Hola ---dijo en un tono monótono.
+---Sí ---dijo aparentando firmeza. Miró de reojo a Taeku que asintió con la cabeza de forma disimulada. No sabía qué era todo, pero aún asi lo dijo.
 
-Parecía que no quería estar allí. Su timbre de voz era dulce y cautivador. Séfora volvió a dar un paso hacia atrás intimidada.
+---Bien, bien ---el hombre sonrió algo más relajado a su respuesta ---, son muy buenos chicos. Ryu sabia escoger muy bien a las personas, lástima que su hijo no supiera ---soltó un leve suspiro y negó con la cabeza ---. No importa, ahora tú estás aquí y eres la heredera. La única heredera.
 
----No tengas miedo ---él dio otro paso hacia ella encogiendo los hombros. Era mucho más alto que sus compañeros ---, no voy a hacerte daño.
+Séfora meditó en la forma en la que ese hombre habló de su padre y se sintió molesta. Empezó a cambiar la forma en la que lo veía, comenzaba a ser repulsivo.
 
----Repito ¿Quién eres? ---preguntó Séfora.
+---Confío en que ellos te van a preparar ---dijo con media sonrisa. Señaló a los chicos que estaban en posición recta detrás de Séfora ---. En un año volveremos a vernos. Todo lo que te pertenece está en buenas manos y te estará esperando.
 
----Mi nombre es Keiken ---sacó una mano del bolsillo y se la llevó al pecho con una ligera inclinación de cuerpo. Llevaba las uñas pintadas de negro y unos cuantos anillos grandes de plata ---. Y tú eres Séfora.
+Inclinó la cabeza hacia la chica en una muy ligera y poco respetuosa reverencia. Después se giró hacia las dos personas que les acompañaba y habló en japonés. Se despidió de los presentes del piso, marchándose por el ascensor y desapareciendo de la vista de los seis.
 
-Aquello ya no le sorprendió mucho. Había mucha gente que la conocía sin que ella fuera consciente de su existencia. Miró a todos lados buscando una salida rápida, sabía que no podía enfrentarse a él porque tenía las de perder.
+---¿Un año? ---Séfora los miró ojiplática.
 
-Keiken se percató de lo que ella quería hacer y se giró un poco para mirar a su alrededor. Negó con la cabeza mientras se encogía de hombros y se hizo a un lado para dejar ver que en realidad no quería hacerle daño. Había espacio entre Séfora y su salida.
+---Claro ---Junnosuke asintió desconcertado ---, es que no sabes japonés.
 
----No voy a tardar mucho ---se giró de nuevo hacia ella y esta vez dio largas zancadas hasta estar a menos de un metro de ella. Olía bastante bien a un perfume dulce mezclado con un ligero toque a alcohol y tabaco ---. Solo quería verte de cerca, es todo.
+Séfora se dió cuenta que para ellos era obvio que tenía que quedarse estudiando allí, pero para ella era estar encerrada. ¿Empezaba a ser este el precio que tenía que pagar?
 
----¿De dónde sales? ---ella dio un paso hacia atrás hasta chocar con la valla que la separaba del agua.
+// Para los chicos era bastante obvio que antes de ir o de hacer cualquier cosa, Séfora tenía que aprender japonés. Para ella era estar un año encerrada. Jongtae se sentó a su lado.
 
----De todos lados. De allí de aquí ---Keiken movió la mano en círculos ---. Me alegra escuchar que hablas y entiendes con fluidez el japonés, eso da puntos a tu favor ---bajó la mano de nuevo hacia su bolsillo y no la volvió a sacar ---. Puedes decirles a esos idiotas que nos hemos conocido. _Mataría_ por ver su reacción.
+---¿Me voy a quedar aquí un año aprendiendo japonés? ---Séfora movía las piernas nerviosa.
 
-Séfora se pudo fijar en una ladina y siniestra sonrisa que se asomó por sus labios cuando dijo aquello último. Rápidamente la disimuló lamiéndose el labio inferior.
+---No estás encerrada, podrás salir y entrar del edificio. Esto se convertirá en tu hogar. _Nuestro hogar_ más bien. Nosotros estamos contigo ---dijo Junnosuke con tono cansado.
 
----Nos volveremos a ver pronto. Espero que no sea aquí sino en casa ---hizo una leve inclinación de cabeza y se giró hacia uno de los paseos del parque.
+Séfora lo miró desolada. Estaría viviendo con unos desconocidos aprendiendo un idioma desconocido. Tendría que aprender sobre una empresa desconocida y, además, aprender sobre su liderazgo.
 
-Aquella aura amenazante dejó a la chica bloqueada, mirando como desaparecía. Las piernas le tardaron en responder por el miedo, pero echó a correr hacia donde se había ido Keiken. Y en un momento se había esfumado.
+---Oye Séfora, sé que esto no lo quieres escuchar ahora, pero necesitas saberlo ---Taeku llevaba el móvil en la mano y se lo enseñó ---. Ha salido una noticia de lo que pasó en Madrid.
 
-Con la mano en el pecho y el corazón latiendo con fuerza se marchó al piso. Había sido demasiado ingenua al salir ella sola a pasear, aún existían amenazas a su alrededor.
+---¿Qué? ---agarró el teléfono con ambas manos y leyó la noticia varias veces. Estaba impactada ---. Los han matado... por mi culpa.
 
-Esquivaba a la gente que aparecía de golpe delante de ella mientras paseaban ingenuos a su estado de alerta. Pero hubo una persona que no pudo esquivar y ella acabó en el suelo.
+---No ha sido culpa tuya ---Junnosuke colocó la mano sobre su hombro.
 
----Auch...
+La noticia hablaba de un allanamiento y robo, y los abuelos habían sido victimas de aquel brutal ataque. No se habló nada de una tercera persona. Parecía una noticia digna de salir en todos los medios de comunicación, pero apenas se había profundizado en lo ocurrido. Séfora admitió que el grupo de la familia Watashime tenía mucho poder en todo el mundo.
 
----¿Estás loca? ---se encontró con Taeku delante que agarró su brazo alzándola del suelo. Estaba jadeando y sudaba bastante ---. ¿Por qué has salido sola?
+---No quiero sonar muy duro con esto pero no podemos perder más tiempo ---dijo Taeku en cuclillas frente a la chica ---. Siento mucho lo de tus abuelos.
 
----Me haces daño ---jadeó cuando se incorporó tratando se soltar su agarre. Él apretó mucho más la mano alrededor de su brazo. Sacudió ligeramente su cuerpo provocando que ella le mirara.
+No lloraba, pero una quietud gélida la envolvía, como si el aire a su alrededor se hubiera solidificado. Cuando Taeku le preguntó si estaba bien, ella tardó un momento en responder.
 
----Él podría haberte hecho más daño ---comenzaron a caminar ---. No sé en qué estabas pensando, de verdad que no eres consciente de todo el peligro.
+---Es solo... que ya no queda nadie de... antes. Ni siquiera para discutir ---dijo en apenas un susurro.
 
----Taeku...
+Un recuerdo fugaz de su abuela sirviéndole el desayuno en silencio, un deber cumplido sin una pizca de calidez, le apretó el pecho.
 
----Has olvidado todo lo que te explicamos de los enemigos que tenemos. ¿Para esto querías estar sola? ¿Para que te mataran?
+---Me dieron un techo, pero nunca me enseñaron cómo se sentía un hogar ---dijo Séfora bajando la cabeza.
 
----Me duele...
+La culpa, fría y afilada, se retorció en su estómago. Y ahora, por su culpa, ni siquiera ese techo existía ahora.
 
----¡No me importa! ---Taeku se giró hacia ella con el ceño fruncido. Se relajó un poco al ver las lágrimas en su rostro y aflojó el agarre de su brazo ---. Perdón. Tenemos que volver ya a casa.
+---Entiendo ese sentimiento muy bien ---Taeku se puso en pie serio ---. Es muy duro. Pero créeme que vas a salir de esto. A partir de ahora nos tienes a nosotros. Seremos tu nueva familia.
 
-Entraron al piso y la empujó tras pasar el ascensor. Séfora estaba asustada al ver cómo estaba reaccionando, le parecía algo exagerado. Se llevó la mano al brazo.
+---Cierto ---Junnosuke sonrió ---, vamos a estar contigo en lo bueno y en lo malo.
 
----Séfora...
+Séfora asintió con la mirada perdida y se encogió un poco en el sofá. Había perdido muchas cosas de golpe y aún se sentía reacia a poder considerarles una familia, como ellos habían dicho.
 
-La voz de Taeku fue tan tranquila que ella sintió miedo. Había cambiado nada más entrar a la casa, pero ella tenía preguntas. La forma en la que él había reaccionado al principio parecía exagerada.
+#separador
 
----¿Quién es Keiken?
+Los tres primeros meses fueron de clases intensivas de japonés.
 
-Séfora los miró sin saber la bomba que acababa a soltar y el terremoto que había provocado. La cara de Junnosuke había cambiado por completo en el momento que ese nombre salió de su boca.
+Junnosuke fue el encargado de cada día estar ocho horas sin parar aprendiendo desde lo más básico hasta conversaciones complejas.
 
----¿Keiken? ---Junnosuke se tensó.
+// Yonghwa fue el primero que propuso enseñarle el idioma. El chico no tenía mucha paciencia cuando ella se equivocaba, así que Séfora descubrió una nueva faceta suya, cuando Yonghwa se frustraba acababa golpeando lo que tenía más a mano.
 
-Sintió el peligro en la pregunta que Junnosuke había hecho.
+---En realidad la escritura es lo de menos ahora mismo ---Junnosuke miraba los papeles y cambió a hablar en japonés ---. Lo más importante es que puedas entenderme.
 
----Digamos que Keiken es... ---Taeku se quedó pensando ---. Keiken hace...
+Ella abrió la boca para responder pero se quedó analizando la frase que él había dicho, buscando en sus apuntes las palabras claves.
 
-// ---¿Estás bien, te ha tocado, te ha hecho algo, te ha dicho algo? ---Yonghwa se acercó hacia la muchacha, mirando que no estuviese herida por ningún lado.
+---Creo que entiendo ---respondió ella en español.
 
-// ---Estoy bien ---dijo mientras intentaba soltarse del agarre de su compañero ---. Ha sido Hyungmin quien me hizo más daño.
+---No. No me hables en tu idioma, es fácil y no queremos que sea fácil. Hablemos en japonés.
 
-// ---Es sencillo... ---Jongtae se aclaró la garganta y miró a Hyungmin un momento ---. Vigila a Junnosuke.
+---Eso sí es fácil para ti ---se llevó los dedos a las sienes y respiró profundamente ---. Me llamo Séfora Watashime y tengo dieciocho años.
 
----Keiken es mi hermano mayor ---dijo de pronto Junnosuke temblando, no podía controlar el movimiento de sus manos ---. Es un hijo de la grandísima...
+Dijo en japonés, a lo que Junnosuke aplaudió.
 
----Séfora, no sé si has sido consciente del peligro que has pasado ---Taeku se giró hacia ella alzando la voz.
+---Bien, bien, sigamos.
 
----No ---ella se agarró el brazo dolorido ---. Pero me ha quedado claro.
+No fue fácil, pero agradeció su facilidad para el estudio que le había acompañado toda su vida para usar esas técnicas en ese momento. Junnosuke era un buen maestro en el idioma, así que podía tener conversaciones fáciles en japonés.
 
-// El hecho de que Keiken hubiese aparecido en ese momento fue bastante duro para todos. Es como si hubiese estado vigilando cada movimiento que hiciesen durante todo ese año esperando un momento de debilidad. Y aún daban gracias que simplemente se hubiese presentado.
+// Ella sintió un gran alivio al continuar de aquella manera su aprendizaje con el idioma. Desde entonces fue Junnosuke el que le enseñó el japonés. Los momentos que pasaban con el chico hicieron que los malos momentos con Yonghwa se olvidaran.
 
----Solo para que lo sepas ---Taeku se puso muy serio ---, creemos que él es el responsable de la muerte de tus abuelos en Madrid. Sospechamos que es ayudó de alguna manera en muerte de tu abuelo en Japón. No pienses que no es peligroso.
+Para la defensa personal practicaba con Taeku. A pesar de que ella contaba con guardaespaldas que no la iban a dejar sola, costase lo que costase, tenía que ser autosuficiente. Ellos lo habían aprendido desde pequeños y era algo básico en su vida.
 
----Me doy cuenta de la gravedad del asunto ---dijo ella inquieta por esa explicación. Comprendiendo entonces el por qué se habían alarmado.
+Una mañana soleada habían decidido practicar en la azotea del edificio, así que ambos se miraban frente a frente.
 
-Había llegado el 26 de Julio y la casa estaba llena de maletas. Iba a comenzar una nueva vida y aún no se sentía del todo mentalizada en dejar su tierra. Séfora se encerró en su habitación una última vez y encendió una vela frente a una foto de sus abuelos, los que ella había conocido.
+---Bien, ahora que sabes esquivar, tienes que aprender a atacar ---Taeku se colocó en posición de defensa asintiendo con la cabeza.
 
----Sé que no fui lo que vosotros esperabais de mi madre ---comenzó a decir en voz baja ---. Crecí siendo un constante recordatorio de lo que perdisteis y cómo ocurrió. Pero sé también que me quisisteis a vuestra manera, que me disteis de todo porque realmente no me faltó nada. Sí, podría haber sido más feliz, como los niños que iban al parque con sus abuelos cada tarde, pero me bastó para crecer bien. Así que allí donde estéis lo siento. Siento que por mi culpa vuestra vida haya sido... arrebatada de esta manera tan abrupta. Yo no creo en lo divino, pero sé que vosotros creíais, así que descansad en paz.
+Séfora dudó pero imitó la posición que había tomado su contrincante en aquella lucha. Se había fijado en los movimientos de pies que él hacía y también en como movía los brazos. Aunque a la hora de la verdad se sintió torpe.
 
-Se inclinó hacia delante y después de un momento de silencio apagó la vela de un soplido mirando la foto. Se puso en pie y la guardó de nuevo en su monedero, donde apenas tenía unos recuerdos de su vida pasada. Se lo echó en la mochila que llevaba en la espalda, salió de la habitación y lo miró todo a su alrededor: estaba lista para afrontar el día de la mejor manera posible.
+Se lanzó contra él soltando un grito. Fue con un puño directo a su rostro y él, con mucha facilidad, giró el cuerpo para esquivarla.
+
+---Gracias por el anuncio, Séfora.
+
+El tono burlón que usó no le gustó nada, así que se volvió a separar de él para atacarle ahogando un pequeño grito en la garganta. Los movimientos de Taeku eran tan rápidos que a ella le costaba poder siquiera rozarlo.
+
+Por más que ella golpeaba fue imposible darle. Taeku mantenía una calma divertida viendo la frustración de la chica.
+
+---No te concentras, no mantienes equilibrio ---Taeku relajó el cuerpo pero no bajó los brazos ---. Es como la defensa: prevés mis ataques y en consecuencia te cubres.
+
+---Y eso me llevó tres meses entenderlo ---echó la cabeza hacia atrás frustrada.
+
+---Ya sabes lo difícil. Otra vez.
+
+Taeku volvió a colocarse en posición y esbozó media sonrisa. Séfora miró atenta su cuerpo, la posición de sus brazos y las piernas. Se cubría parte del rostro con los antebrazos y la posición encorvada protegía su abdomen.
+
+Dio pequeños pasos alrededor de él. Taeku no perdía ojo en cada movimiento que ella hacía.
+
+Esta vez no soltó ningún sonido cuando algo agachada se lanzó a golpear su rostro pero en el último momento, cuando él alzó los brazos para cubrirse, ella aprovechó para golpear su costado con el otro brazo. Era un movimiento que había estado hablando anteriormente con él, era complejo pero servía para distraer.
+
+No funcionó. Taeku se cubrió en ambos golpes pero dio un paso hacia atrás soltando una carcajada.
+
+---¡Genial! ---dio una fuerte palmada ---. Para ser la primera vez has recordado lo que hablamos. Estoy orgulloso.
+
+Casi al mismo ritmo que iba aprendiendo el japonés, Séfora le había insistido a Taeku para que le enseñara algo de coreano, ya que tenía curiosidad.
+
+// Jongtae decidió que cuando aprendiera bien el japonés le enseñaría el coreano. No por decisión propia, sino porque cada día ella iba tras él insistiendo para que le enseñara.
+
+Cumplió con su palabra. Cuando había un momento de descanso, ella lo aprovechaba para aprender coreano. Descubrió que era mucho más fácil que el japonés o el chino, así que lo practicaba mucho más que cualquier otro.
+
+De vez en cuando hacían pequeñas salidas por la ciudad para tomar el aire. Paseos por parques, visitar museos, ir al cine o a jugar a los bolos.
+
+---¿De verdad nunca has salido con tus amigos? ---Junnosuke estaba sentado a su lado en una cafetería.
+
+---No he sido tan popular como para que me invitaran a salir ---Séfora mantenía su café entre las manos y se encogió de hombros ---, he tenido conocidos y hablaba con gente pero nada más allá.
+
+Séfora estaba cansada de la lástima que a veces despertaba en ellos cuando le preguntaban por su pasado. A pesar de vivir una vida de lo más normal, nunca había buscado hacer muchos amigos. Veía en ellos relaciones superficiales que sabía que no conservaría en su vida por mucho tiempo. Pero sí tenía que admitir que había echado de menos un confidente a su lado como otros compañeros tenían.
+
+Cuando al fin supo cómo leer un periódico en japonés, le dejaron explorar algunos documentos oficiales.
+
+Era una empresa complicada, pero poco a poco iba entendiendo que tenían a muchos grupos de personas bajo su poder.
+
+---Piénsalo como un árbol ---comentó Taeku mientras lo dibujaba en un papel para que fuera más gráfico ---. Las raíces son los antepasados de tu abuelo. El tronco es tu abuelo en sí. Las distintas ramas son todas las fracciones que se han ido creando con el paso del tiempo.
+
+---Pero cada una tiene su diferente líder ---Séfora miraba como iba escribiendo los nombres conforme lo iba dibujando.
+
+---Claro ---dibujó con detalle cuatro ramas que salían del tronco principal ---. Estos serían los que dan la cara ante el jefe. Luego están los distintos subordinados que responden con los de aquí.
+
+Señaló con el lápiz las cuatro ramas más grandes y la miró con una pequeña sonrisa.
+
+El esquema de poder era bastante complejo. En lo más alto estaría el abuelo Watashime solo. Bajo su mandato directo habían cuatro nombres, solo conocía el de Ten Shio. Cada uno de los cuatro tenían otros cuatro hombres --o grupos de hombres-- a su cargo. Y así hasta hacer un árbol inmenso.
+
+---Es un trabajo bastante sucio, pero ahora mismo no tendrás que mancharte las manos para nada ---Taeku concluyó con media sonrisa, preocupado por su gesto serio.
+
+---_Ahora mismo_... ---ella repitió con gesto de disgusto.

@@ -1,153 +1,115 @@
 =
 
-Subieron al avión.
+---Junnosuke, vamos a ir a entrenar. Descansa un rato.
 
-Taeku llevaba los billetes y los miraba serio. Séfora estaba detrás de él y se fijó en la separación del tercer asiento y decidió anticiparse.
+Se quedó mirando como salían del despacho que habían preparado y comenzó a recoger los papeles que habían sobre la mesa. La instrucción de Ten Shio había sido muy clara, ella no podía pisar _La Torre Kimpun_ hasta que no estuviese preparada. La ventaja es que aprendía rápido, así que no tardarían mucho en irse de ese país.
 
----Junnosuke, ¿te sentarías conmigo?
+Aprovechó aquellas horas que la chica iba a estar ocupada en entrenarse a sí mismo, así que con ropa de deporte salió del edificio donde vivían para ir a correr por la calle.
 
-El chico asintió y dejó que ella tuviera el lugar junto a la ventana. Era un viaje largo y además con algunas vistas bonitas y ella quería disfrutarlas.
+Una vez conoció a Séfora y dejó de ser una persona lejana empezó a entenderla. Aún se sentía reacia a querer confiar en ellos y no la culpaba. Habían entrado abruptamente en su vida y la estaban cambiando por completo.
 
-Mientras el avión despegó reinó el silencio entre ambos. Junnosuke se mantenía concentrado con los ojos cerrados y los brazos cruzados sobre el pecho. Por el contrario, Séfora estaba emocionada mirando por la ventana.
+Su móvil comenzó a sonar cortando la música que llevaba en sus auriculares. Llevó un dedo a una de sus orejas.
 
-La ciudad poco a poco se iba haciendo más pequeña y empezaba a perderse para ver tan solo mar y nubes.
+---Sanghun, estas llamadas te van a costar mucho dinero ---Junnosuke bromeó mientras seguía corriendo.
 
----Jun ---Séfora al final se giró hacia él y sacudió con suavidad su brazo ---. Despierta, quiero hablar contigo.
+---Qué más da el dinero. ¿Cómo la ves?
 
----Estoy despierto ---el chico la miró a los ojos y se relajó tan solo un poco.
+---Está progresando bien, mantiene conversaciones cada vez más largas. Es una chica bastante lista.
 
----¿Me hablas de tu hermano?
+---Eso es maravilloso. ¿Te ha llamado Ten Shio? Me están dando algunos problemas aquí.
 
-Él abrió mucho los ojos y la miró sorprendido. Tragó saliva y su marcada nuez se movió arriba y abajo hasta que soltó un profundo suspiro.
+Junnosuke se quedó pensando unos instantes. Ninguno estaba conforme con la forma de pensar de Ten Shio, era demasiado autoritario cuando en realidad no era nadie en esa empresa. Había caído en esa posición por pura suerte.
 
----Actualmente no sé nada de él ---bajó la voz y movió las manos hasta que se dedicó a quitarse un pellejo de uno de sus dedos.
+---Estamos aislados de toda información aquí, la verdad. A penas nos informan de lo que pasa en Ginza.
 
----De por qué es un peligro... lo que pasó... si puedes y quieres.
+---Deja de correr, no me gusta hablar contigo cuando estás haciendo ejercicio ---Sanghun sonó molesto mezclado con un toque divertido.
 
-A su alrededor no estaban ninguno de los otros cuatro. La primera vez que había mencionado el nombre de Keiken, los demás habían ido a cuidarlo ya que se había trastornado y su gesto había cambiado.
+Se detuvo poco a poco y respiró profundamente cargándose de paciencia. Era su jefe, debía de hacer caso.
 
-Ahora no era menos, pero creía que era una buena situación entre los dos solos poder hablar del tema.
+---Dime qué ha pasado, que me llames a mí es raro.
 
----Puedo, pero es difícil ---movió la cabeza ligeramente a un lado y torció la boca.
+---Taeku no me ha respondido la llamada.
 
-Séfora se fijaba en cada detalle de su rostro. No había visto durante mucho tiempo a Keiken, pero de primeras los había confundido a ambos.
+_Normal_. Pensó Junnosuke. Hablar con él era recibir más órdenes y bastante trabajo tenían ya.
 
----Crecimos juntos, muy bien entre nosotros ---comenzó a explicar Junnosuke aun con el movimiento de sus manos nervioso ---. Pero cuando una facción del grupo se sublevó contra el viejo Watashime... perdón, tu abuelo Watashime, mi padre se fue con ellos.
+---Se ha extendido a las facciones más pequeñas que una chica occidental va a ocupar el puesto del viejo Watashime. Están habiendo pequeñas revueltas.
 
-Ella escuchaba atenta la historia y pudo ver como él estaba concentrado en buscar las palabras exactas.
+---¿Y no lo pueden controlar? No sé, Mishima se supone que es el supervisor.
 
----Yo a penas tenía ocho años cuando aquello sucedió. Y no lo malinterpretes, no era un niño normal ---una ladina sonrisa se le vio reflejada en el rostro al decir aquello ---. Sabía luchar cuerpo a cuerpo, con armas de verdad... Pero no tenía la fiereza de Keiken.
+Junnosuke no podía estar quieto, así que aprovechó ese momento para hacer leves estiramientos en el banco de un parque.
 
-Cuando dijo lo último giró completamente el rostro para mirar a Séfora.
+---No quiero tener que decirles qué hacer. Habla con Taeku, Séfora tiene que ser consciente de la importancia que tiene su puesto para que haya un orden seguro.
 
----Cuando volví a ver a mi hermano había cambiado por completo. Lo primero que hizo fue intentar matarme ---su gesto se ensombreció y se encogió de hombros ---. Si no llega a ser por Taeku lo hubiera conseguido.
+---Yo se lo puedo decir, pero para ese tema está muy verde aún. Es una niña de dieciocho años.
 
-Ambos se quedaron en silencio. Séfora no tenía valor de preguntarle nada más a cerca de su hermano, había visto lo incómodo que había sido para él poder decir todo aquello. Por lo que decidió cambiar de tema.
+---Tú a su edad ya habías matado a alguien.
 
-El vuelo duraba más de quince horas, era directo de Barcelona hasta Tokyo. Daba tiempo a dormir, de ver alguna película y de hablar de cosas más triviales. Así que decidió divertirse con su compañero.
+---Han sido situaciones distintas.
 
-Cuando el avión llegó a tierra salieron. Entraron dentro de la terminal y recogieron las maletas. Séfora lo miraba todo impresionada. Olvidó el cansancio del avión y las horas encerradas en esa caja. Las vistas eran impresionantes.
+La conversación derivó a un tema más coloquial y terminaron despidiéndose cuando Junnosuke entró al edificio. Fue directo a donde su compañero estaba entrenando con Séfora y se quedó observando los movimientos de la chica.
 
----¿Qué te parece? ---Junnosuke estaba al lado de ella, esperaba con algo de ansia su respuesta.
+Había mejorado mucho desde la primera vez que la vio luchar con él. Tenía mejores reflejos y respondía más ágil a los golpes que Taeku le daba. Las instrucciones que le daban surtía efecto y veía como flexionaba las rodillas en los momentos justos que requería la situación.
 
----Precioso ---tan solo pudo utilizar esa palabra.
+Pero luchar cuerpo a cuerpo no la sacaría de situaciones complejas en las reuniones.
 
-Hacía meses que ya habían dejado de hablar entre ellos en español para que el cambio fuese más efectivo. A veces a ella le costaba encontrar palabras para expresarse, pero sus gestos la delataban.
+---Siento interrumpir ---Junnosuke dio un paso al frente ---. Hay que hablar de algo importante.
 
-Salieron del aeropuerto yendo directos a una furgoneta negra que les esperaba. Guardaron las maletas en el vehículo y tras montarse, pusieron rumbo al centro de la ciudad. Séfora iba mirando por la ventana con la boca abierta los edificios tan modernos mezclados con la arquitectura clásica de japón. 
+El primero en girar el rostro fue Taeku, lo que provocó que Séfora le diese un puñetazo en el mentón. Ambos se hicieron daño.
 
-Había muchísima gente andando por las calles, pero a la vez había orden cuando tenían que cruzar o incluso en sus respectivos caminos y paradas. Había vivido toda la vida en una ciudad céntrica y enorme, pero aquella ciudad era como siete veces Madrid.
+---¿No le has escuchado? ---Taeku se llevó la mano a la barbilla.
 
----Es impresionante ---dijo murmurando contra el cristal del coche.
+---¡Perdón! ---Séfora sacudía la mano dolorida y se disculpaba de miles de formas.
 
----Lo echaba de menos ---Junnosuke suspiró detrás de ella en su asiento y se inclinó hacia Séfora ---. Y verás cuando sea de noche, gana mucho más con las luces.
+Junnosuke se echó a reír y se fue directo al salón, sacando un ordenador portátil y encendiéndolo. Los otros dos no tardaron en ponerse a su lado.
 
-No tardaron mucho en llega a un barrio lleno de edificios altos y carteles luminosos. A pesar que era el medio día había una batalla silenciosa de ver qué cartel brillaba más y ganaba la atención de los transeuntes.
+---Sé que no soy el más indicado para decirlo ---Comenzó a hablar Junnosuke ---. Pero necesitáis una ducha.
 
----Bienvenida a Ginza ---Junnosuke respiró hondo.
+---Cállate y dinos lo importante ---Taeku golpeó su hombro.
 
-El coche paró frente a un edificio lujoso y se bajaron de este. Cuando Séfora iba a coger la maleta Taeku colocó la mano sobre su hombro.
+Abrió unos documentos que le habían enviado y señaló un diagrama de poderes. Ahí mostró varios nombres.
 
----No saques nada, no nos vamos a quedar aquí ---dijo él con calma.
+---Este grupo de personas se oponen a que tú estés en el poder ---comenzó a hablar Junnosuke ---. Están causando algo de revueltas en Tokio y a los jefes les preocupa.
 
-Entraron a un ascensor y Taeku picó el piso veintisiete. Los edificios en esa ciudad daban vértigo de los grandes y juntos que estaban. Estaba nerviosa. Notaba un nudo en el estómago cada vez que pensaba en que iba a conocer a personas importantes. Aunque estaba cansada y quería relajarse, los nervios la mantenían con los ojos bien abiertos.
+---Entonces nada más llegar va a encontrarse con un conflicto interno ---Taeku se inclinó hacia la pantalla ---. Es una buena manera de practicar.
 
-// Los seis fueron a un ascensor y Taeku marcó la última planta, el piso veintisiete. Esperaron agotados mientras subían, se les hizo eterno. Séfora sentía que tenía las piernas agarrotadas por culpa de estar tantas horas en el asiento del avión. Lo último que le apetecía era reunirse con gente y hablar de temas que no le interesaban en ese momento.
+---¿Practicar? ---Séfora soltó una carcajada irónica.
 
-// Solo pensaba en una ducha y una cama en la que poder descansar. Aunque no sabía donde iba a vivir, intuía que aquellas personas lo tenían todo planificado. Solo tenía que dejarse llevar aunque le daba un poco de miedo.
+---Si, esta disputa afecta directamente al liderazgo, el grupo que se opone a ti crece cada vez más porque no te ven preparada para esa posición.
 
-Las puertas del ascensor se abrieron y caminaron directos a un despacho que parecía ser el principal de aquella planta. Las puertas eran de cristal al igual que las paredes que lo separaban del resto de habitaciones. Al fondo de la sala había un ventanal que ocupaba toda la pared y dejaba ver un precioso atardecer entre los altos edificios.
+---No lo estoy, Tae.
 
-Ten Shio hablaba con dos hombres más, los tres parecían tener la misma edad. Uno era mucho más alto que los otros dos y el tercero era más grueso. Los tres estaban serios, mirando a la puerta de cristal cuando esta comenzó a abrirse y los tres entraron. Dejaron a Séfora en el centro y los chicos se colocaron detrás de ella.
+---Para eso estamos nosotros aquí ---Junnosuke sonrió con tranquilidad ---. Este es el momento en el que debes aprender. Si no tienes fuerza física, tienes que tener convicción.
 
----Tenéis una cara que da pena ---dijo Ten Shio pasando la mirada por cada uno de ellos.
+Se fijó en el gesto concentrado de Séfora y miró a Taeku esperando que añadiera algo más. En esos momentos él tenía las manos atadas, ya que su entrenamiento no había incluido tácticas de persuasión en ese tipo de reuniones. Él era más bien fuerza bruta.
 
----Normal, no nos has dejado ni descansar. Venimos directamente del aeropuerto ---Junnosuke murmuró derrotado.
+---Hagamos un ejemplo. Junnosuke y yo estamos enfrentados, él quiere que tú estés en el puesto pero yo me opongo. Me opongo a que tú estés aquí y además haré lo posible para convencer a Ten Shio para que se ponga de mi lado, ¿cómo reaccionarías?
 
----Va a ser rápido ---Ten Shio señaló a la chica ---, ella es Séfora ---asintió y señaló a sus dos acompañantes ---. Ellos son Takada Mishima y Kim Junho.
+---Pues...
 
-Ambos hombres la miraron con mucha curiosidad. Analizaban cada parte de la cara de la chica mientras ella se encogía, sintiéndose muy cohibida. No le gustaba ser analizada por desconocidos de aquella manera, pero por lo que veía, eso iba a encontrar por ahora.
+Junnosuke daba golpes con el dedo sobre la mesa mientras esperaba a que ella reaccionara o respondiera.
 
----¿Y bien, soy lo suficiente japonesa? ---dijo Séfora tratando de dar un toque sarcástico para romper el hielo. Necesitaba dejar de estar nerviosa.
+---Me enfrentaría a ellos ---ella comenzó a hablar ---, les diría que cuales son...
 
----Se parece tanto a Ryu ---dijo Takada Mishima, el hombre fornido, muy atento a su rostro ---, no podemos negar que es su hija.
+---No ---Taeku alzó la mano ---. Habla para nosotros.
 
----Admito que llegué a pensar que el viejo se lo había inventado ---dijo Junho, el más alto, asintiendo con la cabeza ---, pero es que no puedo negar lo evidente. Bienvenida a Japón, señorita Watashime.
+---¿Cuál es tu problema conmigo? ---Séfora estaba concentrada ---. ¿Por qué no quieres que yo sea la líder?
 
----Pero mi apellido no es…
+---Eres joven, no sabes nada de este mundo ---comenzó a argumentar Taeku ---, no te veo dispuesta a arriesgar tu vida por lo que está en juego.
 
----Eres una Watashime ---alzó la mano Ten Shio ---. Olvida quien has sido hasta ahora. ¿Le habéis explicado todo?
+---Taeku a penas sé nada ---dejó de actuar y Junnosuke se fijó en el miedo de sus ojos ---. No sé cuál sería la mejor manera de afrontarlo.
 
----Sí señor ---dijo Taeku muy serio. Ahí fue cuando Séfora se dio cuenta que sus compañeros habían permanecido de pie tras ella. No parecían los muchachos agradables con los que había estado ese año entero ---. Todo lo que nos habías pedido.
+---Por eso estamos practicando ---Junnosuke soltó un suspiro agotado ---. Empezamos de nuevo.
 
----Bien ---asintió el hombre y sonrió.
+---Tú ---ella señaló a Taeku con un dedo ---, si no me haces caso te mato.
 
-Los hombres comenzaron a hablar sobre el aprendizaje de Séfora, pero a penas podía concentrarse. Conocía a Ten Shio de antes, pero los otros dos hombres eran completos desconocidos. Solo conocía sus nombres de verlos en algunos informes o en el diagrama de poder que le hizo Taeku en su momento.
+Se hizo el silencio en la habitación. Junnosuke quiso reprimir una carcajada por lo que agachó la cabeza llevándose la mano hasta la frente. Si seguía mirándola rompería el momento.
 
-Ten Shio parecía la voz cantante del equipo. Se veía un hombre muy limpio y ordenado, su pelo bien cortado y con una raya en el lado. La corbata y la camisa bien puestas, además el traje de chaqueta gris oscuro bien abotonado. Dejaba ver cuando gesticulaba unos gemelos dorados. Su problema a su apariencia tan perfecta eran sus dientes, cada vez que sonreía se veían amarillentos y bastante estropeados por el tabaco y el alcohol.
+---Si vamos con amenazas yo también sé jugar a ese juego ---Taeku se irguió ---. No me da la gana que el equilibrio que Watashime construyó se vaya al traste por una jovencita que acaba de llegar. Deberían de haber elecciones internas, buscar a un mejor postor.
 
-A su derecha estaba Junho. Era el más elegante de los tres, rostro impecable, dientes perfectos y blancos, pelo muy bien cortado repeinado hacia atrás. Se le notaban las canas y eso le daba un toque interesante. Su traje era de rayas azul marino muy fino y se notaba que la tela era de calidad. Movía mucho dinero solo por los accesorios que no se molestaba en ocultar: un buen reloj y un gran anillo de oro.
+---Watashime ya decidió que fuera ella ---Junnosuke volvió a meterse en su papel ---. Tiene un equipo detrás que la está ayudando en su trabajo. Sanghun trabajará codo a codo con ella.
 
-Y a la izquierda estaba Takada Mishima. Era el más bajo y fornido de los tres. Llevaba la camisa abierta por el cuello y no llevaba corbata, dejando ver un tatuaje cuando se movía. Su traje era blanco y tenía la pinta que mostraban las películas americanas sobre los Yakuza. 
+---¿Cuándo voy a conocer a Sanghun? ---interrumpió Séfora.
 
-Y de la nada un nombre sacó a Séfora de sus pensamientos.
+---Cuando llegues a Japón ---respondió Taeku molesto ---. ¿Te das cuenta de que no te lo estás tomando en serio? No puedes amenazar a alguien de muerte y cambiar de tema. Tu estancia aquí se alargará conforme estés más o menos preparada.
 
----... y luego Keiken, que hace lo posible por llevar la contraria. Igual que su difunto padre ---dijo Junho moviendo la mano del anillo en círculos, haciendo que ella prestara más atención a la conversación.
-
----Si, pero Keiken ha sacado un supuesto as y es Mina. Dicen que ella es la sobrina de un hermano del primo de alguien ---dijo Ten Shio.
-
----Pues los que apoyen a Keiken la llevan clara teniendo a Séfora aquí con nosotros ---Takada la señaló abiertamente con un dedo regordete ---. No es la hija sobrina nieta del primo tercero del tío de alguien ---continuó hablando algo molesto ---. Es la nieta directa de Watashime.
-
----Por eso me preocupa ese asunto ---Ten Shio se pasó la mano por la barbilla ---, porque Keiken le estará metiendo cosas extrañas en la cabeza a la pobre muchacha.
-
-Séfora se movió un poco para hablar. Creía que era buen momento para comentar que ya había conocido a Keiken, pero una mano en su hombro hizo que reculara. Miró hacia atrás y vio a Taeku, que negó muy levemente con la cabeza. Ella entendió que no debía decir nada.
-
-Y mientras Séfora escuchaba todo aquello, meditó en algo que ya había pensado anteriormente, no tenía nada. Este mundo le había castigado bastante quitándole lo poco que había poseído en su vida. Le daba igual lo que ocurriera, su felicidad se había acabado el día que se marchó de Madrid.
-
-Allí estaba, de pie junto a cinco desconocidos que estaban empezando a manejar su vida sin que ella pudiera tener control alguno y se sentía frustrada. No le gustaba la sensación que estaba sintiendo, sentía que tenía que tomar las riendas, pero no sabía como.
-
-Se llegó a un acuerdo allí mismo en que ellos tres se quedarían como consejo y liderazgo como habían estado hasta ahora. Junto con el apoyo del abogado de la familia la prepararían para poder ocupar su lugar correspondiente. No opuso resistencia a ello ya que realmente era un bebé que acababa de nacer en ese mundo tan peligroso.
-
-Al fin la reunión había terminado. Ya casi había oscurecido y Séfora estaba dando lo mejor de sí misma para no quedarse dormida. Estaba mentalmente agotada por el tremendo viaje y toda la información que había tragado en esa tarde. Se despidieron de los tres hombres y se marcharon de nuevo por donde habían venido. Mientras caminaban la chica se tambaleó un poco y Junnosuke agarró su brazo.
-
----¿Estás bien?
-
----Me muero de sueño ---suspiró frotándose los ojos con las manos ---. Quiero dormir, quiero comer, quiero descansar...
-
----Ya vamos a hacer todo eso ---mantuvo su brazo agarrado con suavidad para estabilizar su caminar.
-
-Cuando estaban bajando en el ascensor ella aprovechó que estaba sujeta para cerrar los ojos un momento. Cuando estaba medio dormida la voz potente de Taeku la sobresaltó.
-
----Takada Mishima nos ha prestado su casa de lujo ---dijo con una amplia sonrisa ---. Tendremos una mansión solo para nosotros, qué maravilla. Ya verás la casa, es una pasada.
-
----Conozco la casa muy bien, vamos a vivir muy bien ---Junnosuke asintió.
-
-La casa por fuera se veía sencilla. Tenía una puerta de garaje, la puerta de entrada y estaba en la orilla de la carretera. Pero cuando ella se bajó del coche, se dió cuenta que ese barrio era residencial. La furgoneta aparcó dentro del espacioso garaje y todos se bajaron llenos de emoción. Subieron por una escalera de mármol hasta llegar a la primera planta, aunque la escalera seguía subiendo. Frente a ellos encontraron una puerta sencilla de madera oscura que estaba abierta, dejando ver un pequeño apartamento. Taeku se acercó a Séfora y le entregó una tarjeta con código.
-
----Esta es la casa del servicio, pero se ha habilitado para que tú vivas aquí. Es para que puedas tener tu propia intimidad. Las casas están conectadas con el ascensor y esta escalera, pero básicamente son independientes ---dijo mientras la miraba serio ---. Eso no quiere decir que vayamos a dejarte hacer lo que quieras.
-
----Me lo suponía ---tomó la tarjeta con la mano poniendo un gesto de molestia y suspiró cansada.
-
----Nosotros tendremos los otros dos pisos. Tiene dos dormitorios y será más cómodo para vigilar. Ve a descansar, a darte un baño o lo que necesites.
-
----No lo dudes ---sin despedirse entró a su piso.
+Séfora agachó la cabeza y Junnosuke se estiró en la silla. Taeku tenía razón, aún veía inmadurez en ella, por mucho que estuviera cargando en su espalda, aún era una niña.

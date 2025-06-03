@@ -2,176 +2,194 @@
 
 =
 
-En el coche hacia casa de Sanghun solo iban Séfora y Taeku.
+Pasó una semana hasta que se habituó por completo al horario y pudo descansar, recuperando fuerzas. Pronto Taeku apremió a que tenía que saber desenvolverse en las reuniones que tendría con los grupos de subordinados más pequeños.
 
-Hicieron el trayecto en silencio, a ella empezaba a pasarse el efecto de los calmantes y el lugar del disparo le empezaba a doler, pero quería disimular. Quería aparentar ser más fuerte y no una niña delicada como le había dicho anteriormente Keiken.
+---Séfora ---Taeku soltó un suspiro en el momento del descanso y se reclinó hacia atrás en la silla. La miró a los ojos ---, esto, donde te has metido obligada es muy serio. Es un mundo muy negro y peligroso ---ella le devolvió la mirada, casi pudo ver en él un gesto de preocupación que no había visto anteriormente.
 
-El camino no fue tan largo. La casa estaba camuflada casi en el centro de la ciudad. Unas altas murallas y mucha vegetación hacía imposible que se viera lo que había en el terreno. Un portón enorme se abrió cuando el coche se acercó y se vio un camino que llegaba hasta la entrada de una casa con arquitectura tradicional.
+Sin apartar la mirada de la chica sacó de la espalda una pistola negra mate y la dejó sobre la mesa, estaba descargada. Ella le mantenía aquella mirada, había dicho algo que era muy cierto: la habían obligado para estar allí.
 
-Paró el coche y una chica vestida con un bonito y sencillo kimono de colores crema salió a recibirles. Se inclinó ligeramente y esperó con paciencia a que los dos invitados salieran del coche. Cuando Taeku y Séfora se colocaron frente a ella los guió dentro de la casa hasta una puerta de roble oscuro, tocó con cuidado con la mano. Esa era la única puerta que no era tipo shoji en toda la casa. Y tenía motivos. Contaba con una cerradura para cuando Sanghun no estuviese dentro.
+---Esto es lo que somos ---murmuró Taeku con pesadez ---, estamos entrenados para matar si hace falta.
 
----Sanghun, los invitados ya están aquí.
+Se guardó de nuevo el arma en el pantalón y se acomodó en la silla 
 
----Bienvenidos ---un hombre que no aparentaba tener más de treinta y cinco años se giró en su asiento tras la mesa del despacho cuando la puerta se abrió. Taeku hizo una leve reverencia y él sonrió ---. No tengas tanta cortesía conmigo, amigo ---se puso en pie y ambos se abrazaron.
+---Ahora mismo vivimos para protegerte.
 
-Séfora estaba sorprendida mientras asimilaba la situación. Ambas personas que tenía delante eran más o menos de la misma edad, pero había algo en la mirada de los dos hombres que le hacía entender que habían vivido demasiadas cosas juntos.
+Séfora tenía en mente las palabras que acababa de decir. Taeku trataba de mantener su mirada, pero ella había desviado la cabeza hacia donde tan solo un momento había estado el arma.
 
-Sanghun llevaba la camisa algo abierta y sin corbata, el pantalón del traje era de color gris claro.
+---No voy a negar que tengo miedo ---dijo Séfora algo nerviosa y molesta por la situación, pero se había resignado a ese destino que le había tocado ---. Me asusta mucho lo que puede llegar a pasar.
 
----Disculpa la urgencia de esta reunión, Séfora ---se acercó a ella y estiró la mano hacia delante, esperando que ella se la estrechara. No tardó mucho en reaccionar y apretó su mano con firmeza ---. Las circunstancias han sido muy complicadas estas últimas semanas y sé que estás condolida.
+---Es normal ---Taeku asintió mirando los papeles que estaban sobre la mesa. En estos había información detallada que tenía que conocer como la jerarquía de poderes sobre los clanes subordinados.
 
-Se separó y de nuevo se sentó en su asiento señalando las sillas que tenía frente a la mesa, donde los invitados se sentaron sin demora. Agarró el bolígrafo con la mano izquierda y con la derecha empezó a leer unos papeles.
+---Es una asociación criminal ---dijo Séfora mientras pasaba las manos por los papeles ---, tengo que controlar tantas cosas y vigilar que todo lo que se haga está bajo mi aprobación ---tragó saliva para seguir hablando ---, amenazar con los que no cumplen y, si es necesario, mancharme las manos de sangre.
 
----Al menos el informe del hospital es bueno ---dejó eso a un lado y soltó un suspiro de alivio.
+Taeku asintió con la cabeza a sus palabras y volvieron a mirarse.
 
----Si, heridas superficiales---respondió Taeku inclinado hacia delante, apoyando los brazos sobre las rodillas ---. Se actuó bastante rápido y se pudo... bueno, ya lo sabes, te lo conté todo cuando sucedió.
+---Ten Shio y los otros dos hombres, Takada Mishima y Junho son el consejo de "sabios" ---Séfora notó como al nombrar al último Taeku se puso algo tenso.
 
----Lo sé, pero me preocupo ---jugó con el bolígrafo entre los dedos y volcó la mirada en ella ---. La verdad es que en persona te pareces más a tu padre, no le conocí mucho, estaba demasiado enfocado en terminar mis estudios y prepararme, pero sí, lo vi por la casa algunas veces, venía con el viejo.
+---No diría eso exactamente ---se movió incomodo sobre la silla y puso mala cara ---, cada uno representa un país. Los tres son los cabecillas de su facción. Recuerda el diagrama de poderes que ya vimos, ellos responden ante el jefe Watashime. El abogado tiene más detalles sobre ellos tres.
 
----Entiendo ---Séfora se quedó sin mucho más que decir ante su explicación. Quería saber más de su padre y ese hombre le había conocido.
+---¿Ese abogado manda sobre ellos? ---Séfora se quedó pensando mientras movía el lápiz que tenía entre los dedos.
 
----Irás conociendo más detalles en su momento ---respondió Sanghun a una pregunta inexistente ---, no es que no me fie de ti, no me malinterpretes, es que tienes que madurar un poco más. Necesitas tiempo.
+---No ---negó con la cabeza rápidamente ---. Es el abogado de la familia y por ende de la compañía. Ahora mismo está siendo todo un camino de rosas, pero se irá poniendo peor.
 
----Pues no estoy viviendo esta experiencia despacio, la verdad ---Séfora se cruzó de brazos y puso mala cara.
+---¿También fue difícil para ti?
 
----Lo sé, esto ha sido muy repentino ---dejó el bolígrafo sobre la mesa y entrelazó los dedos con calma ---. He ido viendo informes de todo lo que ha ido pasando en estos últimos ---Se quedó pensando ---, cuatro o cinco años, no recuerdo bien, pero vamos, estoy al tanto de todo.
+---Mi entrenamiento fue bastante duro con respecto a los demás por culpa de mi padre que... bueno, espera de mí algo que no puedo darle.
 
----Entonces sabrás bien que no me ha quedado otra opción que venir aquí ---dijo ella.
+Se puso muy tenso, apretó los puños sobre la mesa y frunció el ceño. Séfora quiso preguntarle más cosas sobre su padre, pero la cara de Taeku en ese momento era tan seria que no sabía si quería seguir hablando del tema.
 
-Inclinó el cuerpo hacia delante, desafiante. Sanghun se tomó su gesto divertido, vio como sus ojos sonreían.
+Al cabo de un momento se puso en pie y se despidió de Séfora alegando que ya era hora de descansar. Ella no opuso resistencia y vio como el chico se marchaba por la puerta.
 
----Sí, claro que lo sé ---Sanghun miró a Taeku ---. Espera fuera, por favor, no tardaremos mucho.
+Cuando estuvo sola, respiró profundamente y sacó una carpeta de cartón marrón donde estaba la información de las familias más importantes: los tres hombres que había visto nada más llegar.
 
-Taeku se puso en pie y se marchó. A veces parecía que Taeku tenía un rango muy superior que cualquiera que se encontrara por como actuaba. Sin embargo obedeció las órdenes de Sanghun como si fuera su sirviente y el otro fuera el dueño supremo del mundo entero; cuando tan solo era el abogado que tenía su abuelo contratado. O eso es lo que ella tenía entendido.
+Ten Shio era original de Taiwan, pero a base de luchas y guerras en el territorio de China y Filipinas, había conseguido tener el poder de esa zona. Controlaba el mercado negro, el tráfico de cosas ilegales y nocivas para el cuerpo que pasaba por esas tierras. No parecía estar casado, pero se suponía que tenía varios hijos no reconocidos por varias ciudades.
 
----Bueno, Séfora ---esbozó una tranquila sonrisa ---, me agrada ver que hablas con fluidez el japonés y además el coreano ---mezcló ambos idiomas en esa frase, ella asintió con la cabeza mientras él seguía hablando ---, así que no te va a resultar difícil lo que tienes que estudiar.
+Takada Mishima era japonés. Poseía el control de más de la mitad de las bandas yakuzas en las ciudades más importantes. Se había postulado para las elecciones a presidente un par de veces y no había ganado por poco. Estaba casado y tenía dos hijos adolescentes, a quienes mantenía alejados de toda esa porquería.
 
-Sacó de un cajón del escritorio una carpeta negra y la abrió, leyendo por encima los papeles que había en su interior hasta sacar tres de ellos. Los dejó en el escritorio y guardó de nuevo la carpeta.
+Y después estaba Kim Junho. Ese hombre controlaba la península de Corea al completo. Norte y sur, o al menos eso ponía en los papeles. El norte era un lugar demasiado complejo para poder manejarlo gracias a la dictadura, pero tenía a hombres trabajando para él por allí. Era viudo, hacía tiempo que su esposa había muerto de una enfermedad y tenía dos hijos en paradero desconocido.
 
----Yo era el abogado principal de tu abuelo, así que ahora seré el tuyo. Cualquier cosa... bueno, todo lo tienes que hablar conmigo. Hasta la cosa más absurda ---sonrió con tranquilidad ---. Y para que lo sepas desde ya, estás al frente no porque yo quiera esconderme.
+Conforme iba pasando las páginas se topó con un número de teléfono y el nombre de Sanghun subrayado en amarillo. Eso le llamó la atención. Por fin tenía el contacto del abogado a mano.
 
-Sanghun estaba muy relajado. La expresión de Séfora cambió abriendo los ojos todo lo que pudo. Él continuó hablando.
+Un ruido en el dormitorio la sacó de sus pensamientos y la lectura. Se puso en pie y se extrañó ya que la única entrada al apartamento estaba delante de ella. Caminó despacio hacia la habitación y, creyendo que sorprendería al intruso, fue despacio.
 
----Este trabajo no se puede hacer solo. Tu abuelo me entrenó para que fuese su sombra. Sé como moverme en este mundo y tú traes un rostro nuevo. Además ahora me convertiré en tu sombra, ya que mi trabajo requiere discreción y respeto mutuo.
+---Eres escandalosa ---una voz aburrida y seria se escuchó al otro lado de la puerta. Alarmada la abrió con rapidez y vio a Keiken sentado sobre la cama. Él alzó una mano en forma de saludo y siguió hablando ---. Esperaba que me escucharas entrar, pero no ha sido así. No hay mucho tiempo que perder y quería que te dieras cuenta de que estaba aquí.
 
----Está bien ---dijo mientras meditaba las palabras que acababa de escuchar, manteniendo la mirada fija en él---. Si esto va a funcionar, necesito saber que no soy una marioneta en tu teatro privado ---se cruzó de brazos, más por contener el temblor en las manos que por desafiarlo ---. Me estás diciendo que confías en mí, que vamos a trabajar juntos. Pues entonces empecemos por ahí: quiero entender todo lo que mi abuelo dejó y por qué fui escogida. No pienso ser una figura decorativa. Si voy a estar al frente, quiero saber exactamente qué cargo sobre los hombros.
+Con un gesto de decepción ladeó la cabeza mientras mantenía la mirada puesta en los ojos de la chica. Ella seguía con pose defensiva pero él ni se inmutó. Llevaba una pistola en la mano, la cual estaba apoyada sobre la cama, ella fue consciente del arma.
 
----De acuerdo ---esbozó una sincera sonrisa y señaló los papeles ---. Aquí tengo el testamento te tu abuelo, no es muy largo. También tengo un contrato de confidencialidad en el que ambos firmaremos una vez sepas lo que hay en el testamento. Aunque no será oficializado hasta que cumplas los veintiuno.
+---Cómo has entrado ---dijo alzando los puños frente a su rostro con el ceño fruncido y los labios apretados ---, todo está bien vigilado.
 
----¿Por qué los veintiuno? ---Séfora movía la pierna a toda velocidad por los nervios ---. Soy mayor de edad, ya tengo los diecinueve.
+---La seguridad está llena de puntos ciegos ---palmeó la cama a su lado con la mano libre y esbozó su sonrisa aburrida ---. Ven, siéntate.
 
----Legalmente aquí no eres mayor de edad.
+Séfora negó con la cabeza aún quieta en la puerta. Keiken se encogió de hombros.
 
-Empujó con suavidad los papeles hacia ella y se quedó esperando. Colocó un bolígrafo a su lado y se echó hacia atrás en la silla, le dejó su tiempo y espacio para que leyera con calma lo que ahí ponía.
+---Bueno, como quieras ---se acomodó cruzando una pierna sobre la otra mirándola serio ---. Vengo a darte un consejo: vete de aquí.
 
-Comenzó a leer el testamento lo primero, pero se detuvo y bajó los papeles hasta dejarlos sobre la mesa.
+---¿Qué?
 
----Antes de seguir tengo una pregunta ---dijo Séfora ---. ¿Por qué tanta lealtad a la familia Watashime? Junnosuke no quiso responderme.
+---Si. Te he estado observando un tiempo y veo que no has sido criada para este mundo ---movió una mano señalando su alrededor ---, eres como una princesa en un castillo lleno de espinas ---la miró de arriba abajo y eso causó que se sintiera aún más incómoda.
 
----Y lo entiendo ---dijo Sanghun ---. Su familia ha sido la más perjudicada con ese tema. Bueno, esto va a sonar como una clase de historia, ¿conoces la _Restauración de Meiji_?
+---No me gusta esto. Que puedas ser tan escurridizo y que te puedas colar en mi casa para...
 
----Lo cierto es que no.
+---Espera ---alzó la mano con un gesto mucho más duro sin su sonrisa ---. Solo decirte que antes de ser tú casa esto fue mío ---señaló al suelo ---. Si, sorpresa. Ese hombre no es mi padre, por Dios no. No podría criar a dos hijos tan estupendos con ese cerebro de mono que tiene ---Keiken esbozó una pequeña sonrisa alzando un solo lado de su boca ---. Hay personas mejores capacitadas que tú para estar en este puesto.
 
----Todo se remonta en esa época. Hubo una guerra interna en la que se derrocó al Shogunato, quedando una oligarquía, donde se restauraron los privilegios para las familias. Fue un gran cambio para el país al fin y al cabo, gracias a ellos tenemos lo que tenemos aquí.
+---¿Cómo tú? ---preguntó con una sonrisa irónica al escucharle.
 
----Me hago una idea.
+---No, gracias, no quiero esta porquería ---se puso en pie, guardó el arma en el pantalón y se acercó a ella, que retrocedió varios pasos ---. Voy a ir por las buenas, _princesita_, vete a casa. Olvida este mundo, ve con... no sé, un hombre que trabaje en algo sencillo y vivid felices. Haz lo que hagan las mujeres españolas en casa y vete de aquí.
 
----El primer Watashime fue un hombre que ayudó a restaurar la ciudad de Tokio, por lo que fue acogiendo a pequeñas familias sin apellidos, dándoles trabajo y una vida estable con un apellido honorífico. Poco a poco hubieron más familias en Japón que empezaban a serle fieles y se iban a vivir junto a él.
+Conforme él iba diciendo todo aquello Séfora sentía que le clavaban un puñal en el pecho. La persona que tenía delante era el posible causante de que ya no le quedara nada en este mundo. Apretó los puños con fuerza y bajó los brazos a ambos lados de su cuerpo.
 
----¿Y eso a dónde nos lleva ahora? ---interrumpió ella ---. Hay familias de Corea del sur, de Taiwan y de otros países.
+---No te creas que esto es porque eres una mujer ---la señaló al ver su reacción ---. Pero parece que llevas tacones de cristal y eso aquí no pega.
 
----Cierto ---la miró con paciencia ---, porque cuando el dominio fue creciendo y expandiéndose, más familias se unificaron. Es un poder que pasó de padre a hijo, por lo que fue respetado. Hasta ahora.
+---No sabes nada de mi ---por primera vez dio un paso hacia él y pudo notar como en el rostro de Keiken había algo parecido a diversión ---. No me conoces, no sabes mi pasado y lo que llevo a la espalda.
 
----No me respetan porque... ¿soy mujer?
+---Sé más de lo que te piensas. Solo te estoy avisando, _princesita_. No te enfades conmigo si luego esto no es como te lo han pintado y es mucho peor.
 
----No. No te respetan porque no has crecido en esa familia. Tu abuelo heredó las ideas familiares y se extendió en todo el mundo. Con su herencia creó _La Torre Kimpun_ y la empresa de entretenimiento. No se conformó con Japón, en manejar la delincuencia y los suburbios, quiso más.
+---Vete de aquí. Esta es mi casa ahora mismo ---se encaró hacia él y a pesar de la diferencia de altura no tuvo miedo ---. Pronto tendré el poder de patearte y largarte de mi vida.
 
-Hizo una pausa un tanto dramática, pero a Séfora le sirvió para analizarlo.
+---Ah, que divertido ---por primera vez desde que se conocieron vio una sonrisa sincera en su rostro ---. Entonces me lo voy a pasar muy bien contigo.
 
----Tráfico de drogas.
+Se inclinó en una despedida y fue a la ventana, saltando por ella antes de que Séfora pudiera decir o hacer algo. Ella corrió hacia la ventana y la cerró buscando al hombre con la mirada. No había rastro de él, como si hubiese sido un fantasma desapareció nada más saltar.
 
----Correcto. Anfetaminas, fentanilo, cocaína. Todo lo que entra al país pasa por nuestras manos y debemos protegerlo. Y con eso pasamos al siguiente punto que quiero comentarte.
+Y fue en ese momento que se escuchó un fuerte golpe de una puerta abriéndose y Taeku, con pistola en mano, se colocó a su lado.
 
-Buscó el testamento y apretó ligeramente los labios, concentrado mientras estaba leyendo.
+---¿Estás bien, te ha hecho algo?
 
----Hay algo que dejó escrito que jamás me gustó y ocasionó alguna discusión entre nosotros ---Sanghun se aclaró la garganta ---. _Si ella muere, todo se perderá._
+---Estoy bien.
 
----¿Todo se perderá?
+---Taeku, hay un guardia muerto ---Junnosuke entró detrás y ambos lo miraron ---. Había mandado a vigilar los puntos ciegos de la casa, pero ha entrado por la fuerza. ¿Qué quería?
 
----Me llevó años descubrir a qué se refería eso. Como su abogado ayudé a redactar el testamento, pero eso nunca lo entendí. ¿Qué se perdería? ---hizo una pausa para soltar una risa irónica ---. El viejo los tenía bien puestos. Como él ya estaría muerto, le daba igual a cuanta gente se llevara por delante con esa decisión. El caso, hay otro abogado que tiene en su poder documentación clasificada de la empresa. Es un hombre austero y no hay por qué amenazarle en nada, ya he mantenido charlas con él. Está preparado para que, llegado el momento, publique esos documentos y acabar con todo.
+---Me ha dicho que me vaya de aquí ---murmuró Séfora.
 
-Aquello le dejó en shock. ¿Por qué llegar a ese extremo? Estiró la mano hacia el testamento y leyó atentamente lo que estaba escrito.
+---Es raro que las dos veces que ha aparecido solo haya hablado contigo ---Taeku descargó el arma y se la guardó en el pantalón.
 
----Todo me lo deja a mi siendo tú el albacea y Ten Shio con los otros dos como directivos provisionales de la empresa ---dejó el papel en la mesa---. ¿Por qué ese afán de tenerme controlada?
+---Keiken juega así ---Junnosuke estaba serio ---. Es como un gato cuando está de caza. Juega con la presa antes de matarla.
 
----Para que el apellido Watashime no se pierda, es obvio. Sin su hijo y siendo tú la única heredera, el apellido que ha estado por siglos vigente iba a desaparecer sin pena ni gloria.
+---Entonces me toca convertirme en el depredador del gato.
 
----Así que no puedo negarme a nada, genial ---dijo con ironía ---. ¿Cómo voy a manejar la organización criminal?
-
----Las cosas feas puedes dejármelas a mi. A tu abuelo no le gustaba discutir con los diferentes cárteles, así que desde que pude he ido yo a esas reuniones. Lo que a él le gustaba era ser la cara visible, que la gente le respetara. Allá donde iba se ganaba el respeto.
-
----¿Cómo me puedo ganar el respeto?
-
----Luchando. Te ha tocado estar ahí por nacimiento pero en realidad _nadie_ te respeta. Los que te apoyan lo hacen por tradición. ¿Me explico?
-
-Asintió con la cabeza sin poder decir nada. Tenía razón, hasta ahora solo era un nombre y una cara. Terminaría su entrenamiento y se enfrentaría a quienes no la querían allí para ganarse el respeto de todos.
-
----Entonces tú y yo compartimos el peso ---dijo con calma.
-
----Exacto ---asintió con calma ---. Digamos que compartimos el peso de la organización entre los dos. Cada uno es una cara de la misma moneda.
-
-Sanghun dudó un momento y luego tomó aire.
-
----Ten Shio, Takada Mishima o Kim Junho están a otro nivel, un nivel muy inferior a nosotros dos. Y cuando estés lista volverán a su debido lugar.
-
-Ella mareó el bolígrafo de una mano a otra mientras sopesaba todo lo que había escuchado y la situación en la que todo se estaban poniendo. Hacía tiempo que no tenía marcha atrás, así que no le quedó otra que seguir adelante.
-
----Quiero darte un consejo, como un futuro amigo tuyo, cuando tengas la oportunidad y el poder ---la miró muy serio a los ojos ---, vigila muy de cerca a Ten Shio.
-
----¿Por qué le odiáis? ---preguntó con curiosidad, los otros chicos habían mostrado desprecio anteriormente por él.
-
----Es un cretino que hará lo posible por manipularte. Tu abuelo me dejó claro la importancia de un aliado con potencial, y creo y espero no haberme equivocado contigo --asintió más relajado en su asiento ---. Quiero de verdad que seamos amigos. Amigos cercanos.
-
-Se miraron durante unos segundos a los ojos. La forma que tenía de expresarse, los gestos al hablar y el modo en el que la estaba tratando hizo que confiara en él. Que confiara en todo lo que le esperaba desde ese momento en adelante. Sin dudarlo mucho más terminó por firmar ese contrato.
-
-El trayecto de vuelta fue tranquilo. Séfora miraba por la ventana como las calles se movían con velocidad, sentía de nuevo dolor en la pierna, ya no tenía los efectos del calmante. No hablaron de lo que se había dicho en privado, tampoco sabía si podía contárselo todo a los chicos. Y de pronto sintió un profundo vacío dentro de su pecho.
-
-No había encontrado a una persona con la suficiente confianza con la que poder desahogarse, a quien poder contarle sus miedos y preocupaciones. Se empezó a sentir más sola que nunca. Anteriormente ya había tenido ese sentimiento, pero ahora el espacio que había entre ella y el resto del mundo se había agrandado.
-
-Sabía que había dejado de ser una chica normal. No experimentaría lo que era ir a la universidad, enamorarse y que le rompieran el corazón, llorar por no ser correspondida, o siquiera experimentaría el tener citas tranquilas. Por otro lado, había experimentado el que le hubiesen disparado y que la quisieran muerta, una persecución típica de una película y el estar encerrada en una casa con cinco desconocidos que no estaba segura en ese mismo instante que pudiera llamarles familia.
-
-Soltó un largo suspiro una vez el coche se detuvo en la puerta de la casa que compartían todos.
-
----Oye, Séfora ---Taeku la sacó de sus pensamientos ---, lo siento.
-
----¿Por qué? ---aquello le pilló desprevenida y giró el rostro para mirarle.
-
----Todo ---esperó a que la puerta del garaje se terminara de abrir y metió el coche en este.
-
----En realidad no ---ninguno salió del coche ---. Os debo la vida, así que no te disculpes.
-
----Aún así, me haré más fuerte para protegerte ---asintió y giró el cuerpo hacia la chica para poder mirarle ---. Cuenta conmigo para todo. Lo que haga falta.
-
-Después de decir aquello Taeku se bajó del coche, ella tardó a penas unos segundos después en salir y se apoyó en el coche mientras veía como él iba directo al ascensor. Parecía que había leído sus pensamientos, aquello le había pillado desprevenida, pero le hizo tomar confianza en sí misma para con los chicos. Ellos serían su refugio en momentos de tormenta.
-
-Habían arriesgado su vida para cuidarla, para protegerla de todo lo malo. Y es verdad que todo había empezado siendo un mandato de alguien con mayor rango, pero al final se habían acostumbrado los unos a los otros, y después de lo que dijo Taeku, empezó a sentir que ella era parte de esa pequeña familia.
-
-Subió hasta su piso y se relajó al fin en su cama.
+Séfora dijo aquello convencida. Hasta ahora no había sentido el miedo en esos encuentros de Keiken, pero la alarma que Junnosuke y Taeku les mostraba hacía que comenzara a preocuparse.
 
 #separador
 
-Vió llegar a Taeku con gesto cansado, así que se puso en pie y se acercó a él con paso firme.
+Junnosuke estaba revisando los rincones de la casa.
 
----¿Cómo ha ido? ---preguntó Junnosuke.
+Después de haber visto en las cámaras de seguridad como Keiken se colaba por la casa había ido directamente hacia el hueco que había dejado libre, encontrando el cuerpo de un guardia. Sin mucha demora apartaron el cuerpo para esconderlo, deshacerse de él sin llamar mucho la atención.
 
----Bueno ---Taeku se sirvió una copa de vino ---, no ha ido mal, supongo que Sanghun habrá respondido a todas sus preguntas y le habrá enseñado el testamento.
+Conocía a la perfección cada rincón de esa casa. Cuando era un niño había entrado a vivir allí poco antes de que su padre se marchara con Keiken. Así que, en sus travesuras, se dedicaba a escaparse de casa instado por su hermano mayor para poder ir a jugar al parque
 
----Era la mejor persona para ello. Aunque haya tardado un año en obtener esas respuestas. ¿Estuviste presente?
+---Taeku, todo está despejado.
 
----No, me pidió que saliera de la sala ---Taeku apuró la copa y la dejó en el fregador --- No sé nada de lo que hablaron solos.
+Habló a la nada, llevando el dedo hasta su oreja mientras asentía a una afirmación de su compañero.
 
----Supongo que volvemos a lo mismo que con el viejo -- Junnosuke frunció el ceño ---, reuniones entre ellos dos.
+---Hay que meter dos hombres en este hueco. Creo que es el más fácil de burlar si vienes escondido y los sorprendes.
 
----Somos unos simples guardaespaldas, Jun, no somos nadie más.
+---Ya están informados ---Taeku habló seco.
 
-Pasó su mano sobre el hombro de su compañero y cada uno se marchó a su lado. Ambos deseaban terminar aquel día de infierno y esa semana del demonio.
+Cuando vió llegar a los dos hombres que había solicitado se marchó de allí subiendo las escaleras despacio. Giró el rostro para mirar la puerta donde estaba Séfora y siguió subiendo hasta su apartamento.
+
+Cuando entró se quitó un pequeño auricular de la oreja dejando este sobre la mesa, cogió una cerveza de la nevera y soltó un suspiro.
+
+---No sé qué hubiera hecho si lo hubiese tenido delante, Taeku.
+
+Su compañero estaba sentado en el sofá mirando un ordenador portátil que tenía sobre el regazo.
+
+---Pues este no es el lugar para matarlo, la verdad. Ya están todos colocados en sus sitios. No podemos relajarnos Junnosuke, Keiken es mucho más listo y lo acaba de demostrar.
+
+Junnosuke se sintió insultado con ese comentario, pero prefirió no decir nada al respecto.
+
+---Si ella quiere convertirse en el cazador de _ese_ gato ---soltó una risa irónica ---, aún le queda mucho camino y sufrimiento.
+
+#separador
+
+Séfora tenía la cabeza embotada.
+
+Acababa de salir de una reunión con Ten Shio y otro hombre más, de una familia pequeña llamada Aoki. Había sido fácil porque esa familia estaba dispuesta a apoyar la decisión de Watashime con la misma condición que todos. Ella tenía que estar preparada.
+
+Aún tenía en la cabeza el gesto de satisfacción de Keiken cuando ella le había dicho que le iba a patear. ¿De qué forma tenía pensado jugar con ella? No quería averiguarlo, debía ser más lista que él. Para ello debía de entrenar física y mentalmente.
+
+---¿Qué te parece _La Torre Kimpun_?
+
+Séfora giró el rostro hacia la persona que le acababa de hablar y lo miró detenidamente. Había estado en la reunión de la que acababa de salir pero no le había escuchado hablar. Ten Shio lo presentó como el hijo menor de la familia Aoki.
+
+---Es un lugar interesante ---respondió con calma ---. No he ido más allá de ese despacho.
+
+Señaló a su espalda y miró como el lugar ahora estaba vacío. Junnosuke estaba a una distancia prudencial de ella sin apartar los ojos de donde estaba.
+
+---Mi nombre es Aoki Ren. Pero me puedes decir Ren ---se inclinó de forma exagerada ---. Es un placer poder conocerte.
+
+---Igualmente ---Séfora le miró sorprendida ante el respeto que ese chico estaba mostrando ---. No hace falta que muestres tanta formalidad conmigo.
+
+---Es un alivio que lo digas, porque me cuesta trabajo verte como un superior ---soltó una risa y se tapó la boca con la mano, inclinándose de nuevo ---. Perdón, no debería de haber dicho esto. Mi padre me matará.
+
+---Tranquilo, no pasa nada ---se echó a reír algo aliviada por la naturalidad del chico.
+
+Ren miró detrás de Séfora y ella giró el rostro, Junnosuke negaba con la cabeza con gesto resignado. Ella volvió la vista al frente y esbozó una sonrisa.
+
+---Séfora, debemos irnos ya ---Junnosuke se acercó a ellos un par de pasos.
+
+---Trabajo como asistente de mi padre ---dijo con rapidez Ren ---. En la próxima reunión puedo enseñarte el edificio si quieres.
+
+---Gracias, Ren.
+
+Séfora se despidió de él y se marchó con Junnosuke al ascensor. Taeku les esperaba en el coche ya.
+
+---¿Es seguro que esa familia apuesta por mi?
+
+---Sí, por ahora solo estás conociendo gente que está a tu favor. No sería prudente meter la mano en la boca del lobo tan pronto.
+
+Al llegar al sótano del _La Torre Kimpun_ vieron un grupo de hombres al rededor de un coche.
+
+---¿Esto es necesario? ---preguntó Séfora.
+
+---Toda seguridad es poca.
+
+Se sentía cohibida. A pesar que llevaba un año estudiando los protocolos de seguridad aún se abrumaba cada vez que salía de casa con la escolta. Sobre todo después de la amenaza de Keiken.
+
+Había ido a conocer varias familias que apoyaban la decisión de Watashime. Pero aún no comprendía bien el por qué ese hombre la había escogido a ella. Cada vez que lo preguntaba le daban largas, diciendo que era el abogado el encargado de tal explicación. Pero aún no lo había conocido.
+
+Le frustraba conocer la verdad a medias. La mafia. Sí, eso lo había entendido muy bien. Una organización criminal que era dueña de las calles, se encargaban de que todo estuviese en orden y evitaban los supuestos grandes disturbios.
+
+El problema es que entre las más pequeñas existían pequeños disturbios, y eso se le escapaba de sus manos. Ya le había dicho Taeku al principio que no debía preocuparse por esos grupos pequeños, la jerarquía existía para mantener un equilibrio.
+
+Hasta ahora le había quedado claro que lo que ella dirigiría en un futuro era más grande que la rivalidad que podría haber entre distintos barrios.
+
+La puerta del coche estaba abierta, lista para que ella entrara cuando se escuchó el ruido estridente del derrape de un coche. Giró el rostro hacia donde venía el ruido y un coche negro iba a gran velocidad hacia ellos. No pudo reaccionar mucho, se escucharon un par de tiros y ella sintió un fuerte golpe en el cuerpo que la golpeó contra la puerta abierta, se dio en la cabeza y perdió el conocimiento.

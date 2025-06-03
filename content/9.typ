@@ -1,171 +1,167 @@
-#import "util.typ": separador
-
 =
 
-Tras un día agotador de entrenamiento con los shinai, Taeku decidió que ya estaba preparada para practicar con katanas, así que tomó un par de ellas y estiró el brazo para entregarle el arma. Ella lo cogió con miedo.
+Junnosuke sacó el arma y comenzó a disparar contra el coche que se estaba marchando. Maldijo mil veces entre dientes cuando dejó de darle al coche. Tres de los guardias que estaban con ellos habían salido corriendo, así que se permitió el lujo de agacharse hasta Séfora.
 
----Bien, ha llegado tu momento ---esbozó una sonrisa de lado y dando bastante miedo. Se puso en posición de ataque ---, a practicar todo lo que te enseñado.
+La incorporó del suelo, estaba inconsciente así que palpó su cuerpo hasta que dió con la herida de bala. En su muslo, a un palmo de la rodilla. Parecía más superficial que otra cosa, así que suspiró aliviado.
 
----Ni de coña ---la katana pesaba entre sus manos mucho más que el shinai que había estado usando ---, vamos a acabar muy mal.
+Alzó la cabeza para ver como Taeku le estaba cubriendo y resopló alzando Séfora en sus brazos.
 
----Esa es la idea ---se encogió de hombros y asestó el primer golpe.
+---Le han dado, no ha sido nada serio pero necesita que la vea un médico ---Junnosuke la metió en la parte trasera del coche.
 
-El rápido movimiento de Taeku y la lenta reacción de Séfora provocó que le hiciera un pequeño corte en la manga de la camiseta ancha que ella llevaba puesta. Abrió mucho los ojos mirándole sorprendida, no esperaba que fuera a atacar de aquella manera. En respuesta Taeku sonrió de lado y movió las cejas en gesto divertido.
+---La llevaremos a La Clínica ---Taeku guardó el arma y fue al lado del conductor ---. ¿Te han dado?
 
-Séfora agarró la katana con ambas manos, se mentalizó y atacó de la misma forma que él lo había hecho, pero a pesar de tantas semanas de prácticas con aquella arma letal en sus manos le costaba moverse, y se notaba que Taeku tenía mucha más experiencia ya que sus movimientos eran más limpios y ágiles para esquivar los torpes golpes de ella.
+---A mi no, ¿y tú?
 
-Estaban en el dojo que Mishima poseía unas calles más abajo de su residencia, así que unas horas por la mañana temprano lo tenían reservado tan solo para ellos, para que Séfora pudiera centrarse, sin otras personas que pudieran distraer o juzgar.
+Taeku negó con la cabeza y arrancó el coche. Junnosuke se sentó al lado de la dormida Séfora y se fijó que salía sangre de su ceja. Mucha sangre además. Se quitó la chaqueta que llevaba y se la pasó por la herida de la cabeza para limpiarle la sangre.
 
-Taeku, con voz firme pero tranquila daba pasos lentos al rededor de Séfora.
+---Taeku, ¿tienes contactos en la policía?
 
----Levanta la guardia. Anticipas mucho con el hombro derecho y te vuelves a delatar.
+---Sí. Les llamaré para que investiguen la matrícula ---agarró el móvil y miró algo en la pantalla ---. La han anotado. Aunque puede que sea falsa.
 
-Séfora ajustó su postura, sus nudillos estaban blancos sobre la empuñadura de la katana. Sus ojos no se apartan de los de Taeku.
+Taeku condujo de forma temeraria. Podría tener muchas cosas buenas, pero el conducir no era su punto fuerte. Junnosuke se estaba arrepintiendo de haberse quedado en el asiento trasero, pues se estaba mareando. Y sabía que no podía decirle nada, tenían prisa en llegar a La Clínica.
 
----Equilibrio... observar... ---murmuró.
+Aquel lugar, La Clínica, como le llamaban todos, era un pequeño hospital privado que trabajaba para la familia Watashime. Cuando los vieron llegar fueron atendidos con rapidez. No solo iban ellos dos, sino que un coche con varios guardias iba tras ellos, creando un protocolo de seguridad.
 
-Taeku lanzó un ataque rápido y bajo, una finta. Séfora reaccionó instintivamente, bloqueando donde esperaba el golpe, dejando una apertura alta. Taeku no la aprovechó del todo, pero deslizó su katana para golpear ligeramente el costado.
+Los médicos fueron rápidos en curarles las heridas, así que cuando estuvo lista la dejaron en una habitación privada. Taeku y Junnosuke no se separaron de su lado todo el rato.
 
----Muerta. No sigas la finta, sigue mis ojos, mi centro. ¿Dónde está mi peso?
+---Puede que este haya sido el primer movimiento de Keiken ---dijo Taeku cruzando los brazos y con rostro serio.
 
-Séfora retrocedió un paso, frustrada. Aunque no golpeó fuerte, notó el filo de la katana contra su piel y se erizó.
+---Ha sido muy rápido para ser él ---Junnosuke apretó los puños ---, pero no debemos descartar nada.
 
----Es fácil decirlo. Tus movimientos son... fluidos.
+---Hay varios que la quieren ver muerta y ahora que está aquí lo tienen más fácil para buscarla.
 
-Taeku esbozó una pequeña sonrisa y ladeó la cabeza.
+---¿Tenéis claro que ha sido Keiken? ---escucharon la voz de Séfora ---. Os escuché comentarlo.
 
----Años de práctica y motivación. Otra vez, ataca tú.
+Ambos se giraron para mirarla, se había incorporado y se estaba sentando en la cama. Junnosuke fue a su lado y la ayudó, tenía suerte que la bala impactara solo en el músculo. El dolor que ocasionaba un disparo te podía dejar inútil de dolor durante mucho tiempo.
 
-Séfora respiró hondo. En su cabeza recordó los miles de movimientos de Taeku y decidió ponerlos en práctica. Una chispa de furia controlada tensó sus músculos. Se lanzó hacia adelante, no con la técnica más depurada, pero sí con velocidad y una agresividad que sorprendió ligeramente a Taeku. Lanzó una serie de cortes: alto, medio, un barrido bajo.
+---Lo estamos investigando, Ten Shio está indagando sobre sus idas y venidas ---dijo Taeku más relajado.
 
-Taeku los desvió con una economía de movimientos casi insultante. No retrocedía, simplemente giraba y usaba su propia katana para redirigir la fuerza de ella. Los hierros cantaban con cada bloqueo.
+Junnosuke se sentó a su lado mientras veía como Taeku se mandaba mensajes con alguien. Y sabía perfectamente con quien lo hacía. La reunión con Sanghun había sido aplazada por un viaje importante que el abogado había tenido días atrás, pero según sabía, ya había vuelto a Japón.
 
----¡Bien! ¡Esa es la intención! Pero te abres demasiado en el tercer corte. ¿Ves?
+---¿Cómo estás? ---Junnosuke se inclinó hacia ella.
 
-En el momento en que ella se extendió de más, él giró sobre sus talones, su katana pasó rozando la de ella y apuntó directamente a su garganta, deteniéndose a un centímetro. El aire quedó suspendido. Los ojos de Séfora se clavaron en la punta de la katana.
+---Aturdida ---ella se llevó la mano a la cabeza ---. Siento que debería dolerme todo, pero no me duele.
 
----Lo he visto demasiado tarde ---dijo ella bastante tensa, tragando saliva.
+---Eso es por los calmantes, hacen muy buen efecto, en cuanto se pasen... ---alzó la cabeza y vio la dura mirada de Taeku, así que carraspeó un poco ---. Tranquila, es superficial y nada serio.
 
----En la calle, "demasiado tarde" no existe ---Taeku bajó la katana y negó con la cabeza---. Solo existe el resultado, nadie te dará esta pausa, tampoco te darán la oportunidad de corregir. No te atacarán para enseñarte una lección.
+---Mañana mismo podrás salir de aquí ---dijo Taeku ---. Ahora eres consciente de la verdadera peligrosidad, ¿no?
 
----Lo sé.
+---Sí ---ella giró el rostro.
 
-Taeku dio un paso hacia atrás y optó por una pose más relajada, sonriendo con calma.
+Cada día que pasaba veía más cambios en Séfora. No era la misma chica que vigilaba la ventana desde el edificio de en frente. Progresivamente, durante ese último año había experimentado grandes cambios que hacían que su mirada estuviese vacía.
 
----Entonces no luches solo con el cuerpo. Lucha con esto ---se tocó la sien---. Observa. Adapta. Sobrevive. Olvida la rabia por un segundo, ésta solo te ciega. Úsala, pero no dejes que te controle. ¿Entendido?
+A veces se sorprendía a sí mismo pensando en que no era justo que ella hubiese sido la elegida para estar allí cuando no había sido entrenada.
 
-Séfora asintió, su respiración aún estaba agitada, pero sus ojos tenían una nueva determinación.
+Se le vino a la mente el nombre de Mina. Siquiera esa chica estaba preparada para los grandes acontecimientos que allí estaban sucediendo. Y eso que había crecido en las mismas circunstancias que él. Nadie estaba preparado para ese peso.
 
----Entendido, otra vez.
+---Séfora ---Junnosuke bajó la voz, inclinado hacia ella ---. No estás sola. Ya te lo dijimos, vamos a cuidar de ti.
 
----Bien, desde la defensa. Prepárate ---él sonrió con aprobación.
+---Lo sé ---ella sonrió ---. Pero quiero saber defenderme sola. No sé en qué situaciones me veré envuelta en un futuro.
 
-Él volvió a moverse, y el sonido de los metales chocando llenó de nuevo el silencio del dojo. Esta vez, Séfora no solo reaccionaba, sino que intentaba anticipar, recordando el peso, los ojos, el centro de su oponente y amigo. La lucha era dura, pero por primera vez, sintió que no solo está aprendiendo a pelear, sino que estaba aprendiendo a sobrevivir en el mundo al que empezaba a pertenecer.
+---Para eso estamos nosotros aquí ---Taeku estaba apoyado a los pies de la cama ---. Ya sabes luchar cuerpo a cuerpo, ahora toca aprender a usar armas de verdad. Iremos a un dojo y a un campo de tiro para que puedas entrenar.
 
-Tras una hora de entrenamiento Séfora alzó la mano agachando la cabeza, completamente agotada. Respiró de forma entrecortada mientras trataba de calmar su corazón y echó la cabeza hacia atrás soltando un leve grito.
+Séfora asintió y Junnosuke aprovechó ese momento que se había quedado para sacar su arma. La descargó, dejando el cargador en el bolsillo.
 
----No puedo más ---murmuró tomando aliento ---, vamos a descansar.
+---Esta arma es una CZ P-09.
 
----Lo has hecho muy bien ---dejó la katana con cuidado sobre el suelo y sonrió dándole una suave palmada en el hombro.
+---No es el mejor lugar para sacar _eso_, Junnosuke ---apremió Taeku.
 
----Pesan tanto ---alzó la katana que tenía entre las manos y la envainó con cuidado.
+---Da igual, estamos solos ---se encogió de hombros ---. Lo que me he guardado es el cargador, donde van las balas. Es una pistola semiautomática. ¿Sabes lo que eso significa?
 
-Dejaron las katanas bien colocadas en su lugar correspondiente y tras limpiar las gotas de sudor, volvieron a casa.
+---Nunca antes habría tenido por qué saberlo ---dijo ella con tono irónico.
 
-Estaba con el pijama puesto y un refresco en la mano, tumbada en el sofá cuando apareció Taeku abriendo la puerta sin llamar, cargado con un montón de papeles. Los dejó sobre la mesa del salón. Resopló por el peso y se sacudió ambas manos sonriendo satisfecho.
+---Cierto. Semiautomática quiere decir que utiliza la energía del cartucho disparado para extraer el casquillo de la recámara y alimentarla de nuevo con otro cartucho. Sé que esto te suena raro ahora, pero es útil saberlo cuando la vas a disparar.
 
----Esta información es importante que la tengas. Sanghun la ha mandado, es todo lo que tienes que saber de los distintos grupos de los barrios de Tokyo y lugares importantes. Las bandas más relevantes ---apoyó la mano sobre el montón de papeles ---, nombres, familia, los datos más necesarios. Es una forma de mantenerlos controlados.
+Apretó el gatillo varias veces y se escuchó un leve _click_. Séfora no apartaba la vista de sus manos y pudo ver su rostro serio, concentrado. Después de un rato viendo las características de la pistola, Taeku se sentó en una silla junto a Junnosuke.
 
----Entiendo ---se puso en pie y se acercó a los papeles ---. ¿Me los tengo que aprender?
+---En cuanto salgas de aquí irás a conocer a Sanghun ---dijo mientras miraba el móvil.
 
----A ver, sería lo ideal. Primero los conoces sobre el papel y después en persona. Es un camino largo pero seguro.
+Se hizo el silencio en la habitación. Junnosuke alzó la cabeza y golpeó en el brazo a Taeku, Ten Shio acababa de abrir la puerta y se dejó ver seguido de sus dos inseparables guardaespaldas. Se puso en pie y Taeku hizo lo mismo.
 
----¿Los lees conmigo?
+---Veo que estas despierta, cuanto me alegro ---Ten Shio entró ---. Menudo susto.
 
----Por sorprendente que parezca, no tengo el poder para poder leer ni una sola palabra.
+---Por suerte estoy bien ---asintió Séfora ---. ¿Se sabe quién ha sido?
 
-En cuanto Tae se marchó, Séfora se acomodó en la mesa y se quedó mirando aquella cantidad de papeles --al menos superaba los veinte centímetros de altura-- que contenía una valiosa información.
+---No ---negó con calma ---, estoy indagando en posibles candidatos, el círculo se cierra y estoy cerca.
 
-Empezó a leerlo. Se aburrió al instante de tanto nombre y números de subordinados. Apenas un vistazo superficial le sirvió para conocer los puntos más importantes.
+---Quiero saberlo ---dijo alzando el rostro con cierto aire de orgullo ---. Quiero saber quién ha sido para poder castigarlo.
 
-Agradeció su buena memoria para el aprendizaje, sin ella no hubiera podido desenvolverse tan fácil con el japonés.
+---Tranquila todoterreno ---Ten Shio alzó una mano y sonrió amplio ---, todo a su debido tiempo. Primero sal de aquí, termina tu entrenamiento, firma los papeles pertinentes y podremos hablar de venganza. Taeku, ya hablaremos de lo que ha pasado más tarde. ---señaló al nombrado que estaba al lado de Séfora.
 
-Solo leía nombres: Yamagu, Aoki, Inaka, Crows..., pero una en especial le llamó la atención. _Red Dragons_
+---Si señor ---se volvió a inclinar cuando Ten Shio se marchó. Una vez se quedaron solos Taeku se sentó en la silla ---Es un maldito... _cabrón_. Sí, eso es.
 
-Era una banda con solo tres miembros. Hasta ahora la más pequeña tenía unos 500 hombres, más unos cuantos cientos afiliados. Pero que una banda se considerara como tal con solo tres hombres en sus filas le sorprendió.
+---Y tanto que lo es ---asintió Junnosuke contento por que su amigo usara esa expresión.
 
-La única información de contacto que ese grupo tenía era el teléfono y el nombre de Sanghun. Tenía tanta curiosidad sobre ellos que hizo una videollamada con Taeku.
+---¿Por qué? ---Séfora se sorprendió y él la miró de golpe.
 
----¿Qué pasa? ---llevaba un dorayaki en la mano y la boca la tenía algo llena.
+---Ah, bueno... ---Taeku se movió incómodo ---creía que lo había dicho en coreano, no te preocupes ahora mismo de eso.
 
----¿Conoces a los Red Dragons? ---preguntó directamente colocando el móvil sobre la mesa para tener las manos libres y poder ver los papeles ---. Woohyuk, así se llama el líder.
+---No. Ahora me lo dices. Y sí, lo dijiste en coreano --se puso seria hablando en coreano.
 
----Si, los conozco, a los tres ---asintió y se limpió la boca sentándose en el sofá, mirándola serio desde la pantalla.
+---Porque ahora mismo me cargará con el peso de lo que ha pasado ---se cruzó de brazos y respiró profundamente ---. Como si yo lo supiera todo y pudiera ver el futuro.
 
----No hay nada de ellos ---negó mientras los seguía mirando ---, solo los nombres y luego que su único contacto es Sanghun.
+---No es tu culpa ---Junnosuke frunció el ceño ---, ninguno sabíamos nada de esto.
 
----Ellos son una grupo especial ---se quedó pensando mientras se pasaba la mano por la frente ---, como explicarlo...
+---Eso ya lo sé ---se acomodó en el asiento y miró el móvil, le había llegado un mensaje ---. Y no es el único que está molesto.
 
----Como nosotros contigo, pero para Sanghun ---Junnosuke asomó la cabeza en la pantalla ---, su escuadrón especial.
+Una enfermera entró en la habitación y le entregó la cena a Séfora. Taeku aprovechó ese momento para ir a comprar algo para ellos, dejando a Junnosuke al cuidado.
 
----No les llames así, ¿que tienes cinco años? ---Taeku negó con la cabeza.
+Con la entrada repentina de Ten Shio no había tenido la oportunidad de dejar el arma bien preparada por si pasaba algo, como le habían enseñado. Colocó el cargador en su sitio y se fijó en la mirada de ella.
 
----Ellos no suponen una amenaza ---continuó, ignorando el comentario de Taeku ---, no tienes que preocuparte de nada.
+---En el campo de tiro dejaré que la uses ---sonrió de lado.
 
----Pero me llama la atención que estén puestos en equivalencia con las otras bandas ---dijo mientras enseñaba todos los papeles, de pronto Taeku empezó a hacer gestos de que no enfocara a la mesa. Le hizo caso ---. ¿Son peligrosos para mí?
+---Me da miedo, la verdad ---ella murmuró.
 
----Si no le haces daño a Sanghun no ---dijo Taeku tranquilo ---. No te preocupes de más por ellos, ahora mismo no son nada importantes.
+---Es normal, no solemos estar preparados para disparar contra alguien ---se encogió de hombros y guardó el arma en la funda que llevaba en la cadera ---. Solo he visto a una persona sentirse cómoda disparando.
 
-La forma tranquila de hablar de Taeku hacía que Séfora se relajara y perdiera toda preocupación sobre aquellos tres integrantes de los _Red Dragons_. Aún así le intimidaba que respondiera únicamente con el abogado.
+Aquello último lo dijo más como un susurro pero supo que ella le había escuchado.
 
-Colgó la llamada y se acomodó en la silla en la que estaba, pero una sombra a su espalda hizo que se le pusiera el vello de punta por lo que se giró con rapidez y fue a la cocina. Agarró una pala de cocinar de madera con fuerza en la mano y sigilosa fue al dormitorio donde había visto aquella sombra.
+---¿Keiken? ---preguntó. Él asintió ---. ¿Por qué intentó matarte?
 
-Asomó ligeramente la cabeza dentro del dormitorio en guardia, preparada para atacar en cuanto pillara al intruso, pero una voz masculina la sorprendió al otro lado de donde estaba asomada.
+---Porque según él, estaba en el bando equivocado.
 
----No eres nada silenciosa, _princesita_ ---Keiken estaba apoyado en la pared. Ella se giró para amenazarle con lo que llevaba en la mano, pero él la ignoró y se sentó directamente en la cama ---. Es tan cómoda como la recordaba. Un momento, ¿piensas atacarme con un palo? 
+Aún le dolía recordar aquella pelea. Le había dejado una cicatriz que no olvidaría y no era visible. Instintivamente se llevó la mano a su costado derecho y se quedó pensativo. Esa marca a veces le dolía.
 
----Sí. Deja de entrar aquí de esta manera, ¿cómo lo haces? ---frunció el ceño mirando su mano y alzó el palo. Él se echó a reír.
+---Oye, Jun ---ella interrumpió sus pensamientos ---, ¿por qué esta lealtad a la familia Watashime?
 
----Si te lo dijera no sería una sorpresa ---se incorporó y se puso en pie. Llevaba la ropa oscura como siempre, se le veían todos los tatuajes, pero el pelo lo tenía algo húmedo y sobre la cara ---. Necesito algo que tienes y me lo vas a dar por las buenas.
+La miró ligeramente sorprendido. Hacía un par de décadas que no se hacía esa pregunta. La respuesta le picó en la cara como el bofetón que recibió el día que hizo una pregunta como esa. Se inclinó hacia delante.
 
----Si claro, y si quieres en una bandeja de plata ---resopló negando y se puso bloqueando la puerta que daba directa al salón suponiendo a lo que se refería.
+---Hace mucho tiempo que vivimos bajo su mando ---comenzó a decir ---, mi padre y anteriormente mi abuelo ya servían a esa familia. Para mí es tradición.
 
----No te voy a decir que no si me insistes tanto ---su sonrisa fue amenazadora y ella sintió el peligro.
+---Pero si tu padre se marchó del clan...
 
----Ni de broma, fuera de mi casa ---señaló la ventana abierta por donde imaginaba que habría entrado. Aunque lo que le extrañó fuese que entrase con facilidad teniendo seguridad en cada rincón. Imaginó que estaba abierta para disimular su entrada ---. No voy a darte nada.
+---No exactamente fue así ---se rascó la nuca.
 
----Bueno ---sacó del bolsillo una pequeña navaja y comenzó a jugar con ella entre los dedos con una agilidad sorprendente. Tenía cicatrices pero dudaba que fuera por jugar de esa manera ---. Iré por las malas.
+No sabía como explicarle aquello sin hablar de su pasado personal. No era algo agradable de recordar.
 
----No voy a ponértelo fácil ---se puso en la misma postura que había tomado esa misma mañana con la katana, solo que ahora tenía una pala de cocina en la mano.
+---¿Entonces?
 
-Se podía sentir como el ambiente estaba cambiando. Se miraban serios e iban tomando posición. Séfora colocó el cuerpo de la misma postura que ese mismo día había hecho con Taeku.
+---No soy el más indicado para responderte. Yo sigo aquí por tradición y lealtad. Sanghun tendrá mejores respuestas.
 
-Por el contrario Keiken mantenía el cuerpo algo relajado, la navaja se movía en su mano de manera automática.
+Se puso en pie y se acercó a la puerta, Taeku estaba tardando mucho. Lo vio llegar con un par de bentos y le entregó uno.
 
-Él fue el primero en dar el paso.
+---Voy a tomar el aire, ahora vengo.
 
-Su movimiento a penas fue perceptible pero ella no apartó los ojos de él tal y como le habían enseñado. Miró su centro y supo que su golpe iba a venir bajo, por lo que defendió aquel punto de su cuerpo. Se dió cuenta que él no quería ser letal con sus ataques, solo quería desestabilizar.
+Salió a la calle dejando extrañado a Taeku, pero no le dijo nada. Del bolsillo del pantalón se sacó un paquete de tabaco y lo miró. La primera vez que había fumado fue a escondidas con su hermano días antes de que se marchara, le dio tal asco que vomitó. Después lo hizo por costumbre, y ahora lo estaba dejando.
 
-Para la sorpresa de él, Séfora le golpeó con la pala en el brazo y golpeó su antebrazo cuando él regresó a su posición. Se le escapó una leve risa viendo como ella se lo estaba tomando en serio.
+Tiró el paquete a la basura y abrió el bento que Taeku le había dado y se comió un gyoza.
 
-De nuevo fue Keiken quien movió el cuerpo haciendo una finta superior, reculando para agacharse y pasar por el hueco que ella había dejado libre. No contó con que ella comprendiera el movimiento que acababa de hacer. Séfora agarró su camiseta y tiró de él hacia el dormitorio para que no pasara su bloqueo.
+Las preguntas de Séfora a veces le hacían sentir incómodo, pero entendía su curiosidad. Acababa de llegar y no entendía cómo se movía la familia y sus tradiciones.
 
-Aprovechó el impulso del empuje para saltar hacia atrás y volver a ponerse en guardia.
+Una vez se sintió mejor volvió a la habitación, cerrando la puerta a su espalda. Séfora estaba dormida.
 
-Keiken frunció el ceño soltando un gruñido. Enseñó los dientes y agarró la navaja del revés girando el cuerpo en medio círculo para golpear las costillas de la chica.
+---Le han dado un calmante fuerte, le había empezado a doler ---le explicó Taeku ---. ¿Estás bien?
 
-Le había pillado desprevenida y se le escapó el aire de golpe del pecho. Sintió un dolor agudo y se tambaleó contra la pared. Por un segundo perdió el equilibrio pero se recuperó soltando un grito al recuperar el aire.
+---Cansado ---se sentó a su lado.
 
-De nuevo giró la navaja en su mano y apuntó hacia ella la afilada hoja que brilló por la luz. Séfora fue viendo como el rostro de su contrincante tenía una sonrisa siniestra, disfrutaba haciéndole daño.
+---Hemos tenido suerte ---dijo Taeku de brazos cruzados ---, podría haber sido letal.
 
-Keiken giró sobre sus pies y se agachó delante de ella. Se impulsó con los pies y asestó un golpe con la hoja afilada contra ella.
+---No podemos descuidarnos más, Taeku, ya vemos que no sólo van con amenazas. No sabemos si ha sido Keiken o algún otro, debe entender que esto no es un juego.
 
-Séfora vio su intención, pero él fue mucho más rápido, tan solo pudo cubrirse el rostro con los brazos. Sintió un dolor agudo pasar por su brazo y un líquido caliente comenzó a caer por su piel, goteando en el suelo.
+---Lo sé. Sanghun me ha dicho que quiere conocerla ya ---ambos chicos se miraron ---, quiere decirle las cosas tal como son de verdad. Mañana al salir iremos para allá. Además, no podemos permitirnos que Ten Shio se crea el jefe, debemos estar pendientes de que no esté solo con ella.
 
-No le importó el dolor que sentía tanto en las costillas como en el brazo. Había bloqueado con éxito el paso del dormitorio al salón. Keiken estaba enfurecido, apretó con fuerza los puños y tensó la mandíbula para asestar un golpe letal a la chica.
+---No han tenido tiempo aún. No la puede controlar con facilidad si alguno de nosotros está con ella.
 
-Se detuvo de golpe al escuchar ruidos provenientes del piso superior.
+---No me fio de que meta a alguien de los suyos para que nos controle a todos. Ella es la que está al cargo y tenemos que dejarlo bien claro. Ten Shio es un pequeño peón en este tablero.
 
----Los cotillas ---volvió la mirada hacia Séfora y guardó el cuchillo caminando hacia atrás sin apartar la mirada de sus ojos ---. Has mejorado mucho, tienes buenos reflejos. Taeku es buen entrenador ---se acercó al dormitorio y se llevó el índice y el dedo corazón a la frente para despedirse de ella ---. Nos volveremos a ver.
-
-Se perdió de su vista tras saltar por la ventana y ella soltó un fuerte gemido de dolor, llevándose la mano al costado.
+No tardaron en relajarse, haciendo turnos paran vigilar que no pasara nada aquella noche. Por suerte todo estaba tranquilo, como el mar después de una fuerte tormenta. Pero aquella tranquilidad no era de fiar y Junnosuke lo sabía bien, lo que iba a venir a continuación iba a ser un fuerte tsunami.

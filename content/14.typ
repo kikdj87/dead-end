@@ -2,172 +2,238 @@
 
 =
 
----Nosotros iremos por la puerta principal ---dijo Séfora ---. Que un grupo pequeño vaya por detrás. El resto pueden esperar aquí fuera.
+Una vez en el coche Junnosuke se quitó el auricular. Giró el rostro hacia Séfora y la analizó. Habían muchas cosas que quería saber, pero sobre todo una le preocupaba. Se fijó en que ella se había quitado la gorra y la mascarilla.
 
----¿Es seguro que él haya venido? ---Taeku señaló a Ren.
+---Taeku vamos a casa, allí hablamos ---Séfora respondió a una pregunta que solo ella había escuchado ---. Cuando no está presente se vuelve insoportable.
 
----Ren se quedará con el grupo de aquí fuera ---señaló Séfora.
+---Oye, Séfora ---comenzó a decir él ---, lo de...
 
----Tampoco estoy indefenso, sé defenderme, me he entrenado igual que mis hermanos ---Ren bufó ofendido.
+---Sí, eso, lo del beso ---ella le cortó y le pilló de sorpresa, mirándola con los ojos abiertos ---. Mira a la carretera. Te has pasado.
 
----El comunicador todo el tiempo operativo, cualquier cosa se avisa ---Séfora seguía calculando ---. No quiero fallos, necesito que todo quede claro. Lo repetiré, entramos, directos a por Katsura, tenemos que hacernos con su ordenador.
+---¿En serio? ---se echó el pelo hacia atrás ---, ha sido algo sin importancia, había que crear normalidad.
 
----Eso me lo puedes dejar a mi ---Junnosuke asintió.
+---No me ha gustado.
 
----Perfecto. No hay que matar a Katsura, lo quiero vivo para sacar información ---Séfora cargó su arma con balas, cogiendo más cargadores.
+---Ya ---Junnosuke resopló.
 
----¿Y si se niega? ---Taeku hizo lo mismo.
+No le había dado importancia a aquel beso, lo había usado como pretexto para ganar la confianza de aquellos hombres. Además, quería comprobar si reconocerían la cara de ella, pero se dio cuenta que ni prestaron atención.
 
----No tendrá más remedio que aceptar. ¿Equipo listo?
+El plan de Séfora había surtido efecto y eso debía de reconocerlo. Había dejado de ser un rumor cuando alguien ya había afirmado ser conocedor de la noticia. Sacudió la cabeza volviendo al tema de su conversación inicial.
 
----Estamos en posición ---se escuchó por el auricular.
+---Lo que yo quería decirte ---insistió de pronto Junnosuke ---, era que no le des importancia a que te llamen de esa manera.
 
----Vamos a demostrar quién manda aquí.
+No quiso repetirlo, pero notó como ella se tensó de nuevo.
 
-Séfora salió del coche seguida de Taeku y Junnosuke. Ren se había quedado con un par de hombres más y, en la parte trasera había un equipo de cinco personas más, estaban listos para lo que hiciera falta.
+---El día que me enteré de lo que significaba me rompí tres dedos ---ella alzó la mano derecha y la miró ---, pero ese tipo se quedó con la nariz rota.
 
-El local no le era ajeno a Séfora, la gente era prácticamente la misma que la primera vez que estuvo allí. Había agradecido no tener que volver a pisar ese lugar, pero allí estaba, atravesando la puerta rosa seguida de sus guardaespaldas.
+---Desde luego supiste defenderte sola.
 
----Deberíamos de haber esperado la instrucción de Sanghun ---murmuró Taeku.
+Aparcó el coche en la puerta de casa y lo metió en el garaje, esperaron a que las puertas se cerraran y salieron. 
 
----Ya es demasiado tarde ---dijo con firmeza Séfora.
+---Esos tipos se comerán sus palabras cuando consigas tu objetivo.
 
-Golpeó la puerta con el puño y ésta se abrió. Dentro estaba Katsura sorprendentemente muy bien acompañado. No solo estaban los dos guardias que le acompañaban, sino que repartidos por la habitación habían al menos diez hombres más.
+---No lo dudes ---ella alzó los pulgares yendo al ascensor ---. ¿No subes?
 
-Ella analizó cada persona que había allí. Armas y disposición en la sala. La habitación era bastante grande y se dió cuenta que tenía dos salidas, por donde ellos habían entrado y una puerta escondida al lado de la enorme pecera.
+---Ve tirando, voy enseguida. Habla con Taeku, estará nervioso.
 
----¡Séfora! Qué agradable sorpresa que vengas a verme ---dijo Katsura de pie, extendiendo los brazos ---¿A qué se debe tu visita?
+---Gracias por lo que me toca.
 
----Vengo a cumplir una promesa Katsura.
+Séfora subió en el ascensor y desapareció de su visión. Se apoyó en el coche y se quitó el anillo que llevaba puesto, jugando con éste entre los dedos. No tenía ganas de enfrentarse a Taeku.
 
-Durante un momento dudó. Habían más hombres de lo que había pensado y ella había entrado muy expuesta. Respiró hondo y justo cuando dio un paso escuchó una voz en su auricular.
+Hacía unos meses que había notado raro a su compañero y poco a poco fue atando cabos. Todo comenzó cuando Ren se unió al equipo y se acercó a Séfora. Era entendible, ambos eran de la misma edad. Él mismo le sacaba seis años a Séfora, por lo que Taeku le sacaba un par mas. No solo era la distancia en la edad, sino también en la jerarquía. Ellos no eran más que los guardaespaldas. Lo tenía bien claro en su mente, sus habilidades le habían llevado a estar donde estaba y no pasaría de allí.
 
----... trampa... huid.
+Su móvil vibró en el pantalón. Era un número desconocido.
 
----¿Qué?
+---Todo ha ido bien. No me vuelvas a llamar, maldita sea.
 
-Solo pudo vislumbrar la sonrisa de Katsura y el tiempo se detuvo. Escuchó tiros que provenían de fuera y se escondió con rapidez tras una silla, tenía el arma lista y cargada, comenzó a disparar.
+Colgó la llamada y apretó el teléfono hasta que los nudillos se le pusieron blancos, un músculo temblaba en su mandíbula. _No ahora_, se dijo forzándose a respirar hondo. Había un camino trazado, una lealtad que mantener. El legado Watashime dependía de que no flaqueara. Desbloqueó la pantalla y mandó un par de mensajes antes de salir del garaje y subir sin prisa alguna por las escaleras.
 
-Katsura había dado un paso atrás, escondido, yendo directo a la puerta trasera.
+Al llegar la puerta estaba abierta y se fijó en que Taeku y Séfora estaban hablando. Escuchó antes de anunciar su llegada.
 
-Taeku y Junnosuke estaban disparando mientras se resguardaban en la puerta negra que daba al pasillo. Cinco de los hombres de Katsura habían caído desde la postura en la que ellos se encontraban, cubriendo a Séfora. Agachada comenzó a disparar para abrirse paso hacia la puerta trasera.
+---... pero eso no era necesario ---Taeku tenía la voz tensa.
 
-Maldijo al quedarse sin balas y, cubierta con el escritorio y al lado de un cuerpo, cargó de nuevo el arma.
+---Ha sido solo un juego divertido, me ha gustado ver a Junnosuke tan relajado jugando a las cartas.
 
----Qué pena que me hayas descubierto ---escuchó la voz de Katsura tras la puerta ---, estaba siendo divertido. ¿No crees que tendrías que vigilar tu círculo más cercano?
+---Desde luego se ha relajado, luego le daré un tirón de orejas. ¿Te ha gustado la experiencia?
 
----Será...
+Junnosuke estaba muy confuso escuchando la conversación así que decidió aparecer por la puerta.
 
-Se puso en pie y empezó a disparar a la puerta, pero la habitación había quedado vacía.
+---¿Qué experiencia? ---preguntó mirando a Taeku.
 
----Maldición ---Se asomó a la puerta y vio a sus cinco hombres en el suelo ---Ren, responde ¿estás ahí?
+La mirada que le echó aclaró todas sus dudas y se sintió mucho más divertido. Taeku siempre había ido con la integridad por delante, el trabajo era lo primero y debían de olvidarse de las cosas más pasionales. Y ahí estaba, celoso de un estúpido beso.
 
-Solo hubo silencio por la radio. Junnosuke y Taeku salieron al callejón trasero con las pistolas alzadas, el coche de Katsura se alejaba. No lo pensó, echó a correr hacia donde estaba el coche y se detuvo en seco. Las tres personas que ahí estaban habían caído.
+---La de salir de incógnito ---respondió Séfora ajena a lo que ocurría entre ambos ---. Y sí, me ha encantado, he sentido la emoción de la calle.
 
----¡Ren!
+---Eso es bueno, tienes que tener más experiencias así, la verdad es que harían que te conocieran mejor.
 
-Corrió hasta el coche y agarró al chico en sus brazos maldiciendo, comprobó si tenía pulso y miró con súplica a Taeku.
+---Pero no hay que meterla en una banda que quiere su muerte, Jun, ha sido muy arriesgado ---Taeku apretó los puños ---. Vale, me relajo, ha salido bien y no es necesario que me ponga así.
 
----Aún está vivo.
+---Nadie te ha dicho nada ---Séfora alzó las manos.
 
----Es el único superviviente ---dijo Junnosuke.
+---Lo he visto en vuestras caras ---dijo Taeku ---. Por cierto, desde donde yo estaba me fijé en todo el lugar, hubo un grupo que no os quitó la mirada en todo el rato.
 
----¡Ve a La Clínica, ya! ---gritó Séfora.
+---Está muy bien todo esto pero, ¿habéis visto qué hora es? ---dijo Junnosuke mirándose el reloj ---. Son más de las dos, vamos a dormir.
 
-Se montaron en el coche y se marcharon hacia La Clínica. Por el camino no pensaba nada más que en el chico que tenía en sus brazos.
+---Tae, escribe un informe de lo que viste y Jun, tú de lo que pasó. Hay que informar a Sanghun de lo que ha pasado hoy ---Séfora se estiró y se acercó a la puerta ---. Hasta mañana chicos.
 
----Nos han tendido una trampa ---murmuraba ella ---. Sabía que íbamos a ir. ¿Quién...?
+Ambos miraron como Séfora desaparecía por la puerta y cuando se quedaron solos Junnosuke recibió un golpe en el brazo por parte de Taeku.
 
-Un teléfono comenzó a sonar, era el de Séfora, en la pantalla vió el nombre de Sanghun. Debía admitir que lo último que quería era enfrentarse a él con esta derrota en su espalda. 
+---Auch, ¿y eso a qué viene ahora?
 
----¿No le vas a responder? ---preguntó Junnosuke.
+---No lo sé, me apetecía ---se encogió de hombros ---. Buenas noches.
 
----Ahora no.
-
-Taeku aparcó mal el coche en la entrada de La Clínica y entre los tres llevaron al chico hasta la puerta, donde lo atendieron con rapidez y lo llevaron dentro, donde ya no podían pasar.
-
-Tenía las manos manchadas de sangre y el teléfono en la mano, miraba como una y otra vez Sanghun la llamaba, pero no podía hablar. No sabía qué le podría decir.
-
----¿Quieres que hable yo con él? ---dijo Taeku.
-
----No ---dudó un momento, mirando a sus compañeros.
-
-Se había quedado helada en el sitio. Hasta ahora las pequeñas incursiones habían salido bien y, que aquella fracasara le había dejado en shock. No se perdonaría sin Ren fallecía por su culpa. Su cabeza era un completo caos, no dejaba de analizar la situación, todo lo que había salido mal.
-
-Sanghun conocía la operación, se lo había dicho cuando la planeó. También él le había dicho que debía esperar hasta tener más claro el plan, para poder atacar con mayor sorpresa. Ren sabía el plan y por ende la familia Aoki también lo conocía. Taeku y Junnosuke le habían ayudado a organizarlo, ellos habían seleccionado a los hombres que iban a ayudarles a conseguir el propósito.
-
-¿Quién era ese círculo más cercano? No habían muchas opciones y tenía que cerrar más ese cerco.
-
----¿Quieres reaccionar? ---Taeku agarró su brazo y ella le miró sorprendida ---. Responde a la llamada.
-
-Séfora miró el teléfono, era la novena llamada que tenía de Sanghun. Con el dedo tembloroso respondió la llamada y se colocó el móvil en la oreja.
-
----Bien, ya era hora ---dijo la voz seria de Sanghun.
-
----Lo siento ---consiguió decir ella.
-
-En su estado no podía echarse a llorar, aún estaba asimilando que les habían tendido una emboscada y que Ren podría no salir con vida.
-
----No es momento de disculpas, Séfora, piensa de forma fría. No has hecho caso de mi consejo y ahora debes asumir las consecuencias, ¿de acuerdo? ---Sanghun se quedó en silencio ---. ¿De acuerdo, Séfora?
-
----¡Si! ---consiguió decir ella.
-
----Escucha atentamente Séfora, esto es cosa tuya y no voy a intervenir. Planifica y resuelve. Ahora debéis iros de allí, Ren está en buenas manos.
-
-La llamada se cortó y Séfora se miró las manos, aún manchadas de sangre. Endureció su mirada y alzó el rostro para mirar a sus compañeros que esperaban respuesta.
-
----Vamos a casa, hay cosas que debemos hablar muy seriamente.
-
-Tras descargar los cuerpos sin vida de sus compañeros se marcharon de La Clínica. Sabían que allí estaban capacitados para ese trabajo sucio, por lo que podían estar tranquilos.
-
-Durante el trayecto Séfora miraba el teléfono, aún manchado de sangre, pensando en cerrar el círculo para atrapar a esa rata que se había colado entre sus filas. 
+Miró como su compañero subía las escaleras y se perdía en la oscuridad del segundo piso. Se echó a reír y fue a la nevera para coger una botella de agua. Fue hasta el sofá, se sentó y respiró profundamente. Dio varios tragos de agua y abrió el portátil, se sentía más seguro revisando las cámaras de seguridad antes de terminar por completo el día.
 
 #separador
 
-Tras salir de la ducha se miró al espejo, las cicatrices no habían aumentado, pero si eran notorias.
+Era raro para Séfora quedar con Sanghun fuera de su casa.
 
-Se vistió con ropa cómoda y subió las escaleras con paso decidido, Taeku y Junnosuke eran los únicos en los que podía confiar en ese momento. Entró al apartamento y se sentó directamente en el sofá. En ese momento solo estaba Taeku.
+Ambos estaban en un restaurante occidental, sentados al rededor de una mesa mientras el camarero llenaba una de las copas de vino tinto.
 
----Ren es fuerte ---dijo, sentándose a su lado.
+---Así que dicen que el viejo Watashime tuvo una aventura ---dijo Sanghun moviendo la copa de vino ---, eso sí que es interesante.
 
----No me perdonaría su muerte ---susurró girando el rostro para mirarle ---. Tenías razón.
+---¿Habías escuchado algo sobre eso? 
 
----Ya no puedes lamentarte ---él posó la mano sobre su brazo en un gesto suave, ella alzó la mirada hacia su rostro.
+---No, primera noticia ---cató el vino y satisfecho dejó la copa sobre la mesa ---. No sabes cuánto siento que aún no tengas la edad para beber, esto es una delicia.
 
-Sintió algo distinto en esa mirada que nunca antes había visto. Llevaba ya mucho tiempo a su lado y siempre había sido protector con ella, pero lo achacaba a su rol como protector. En ese momento vio algo distinto y sintió miedo.
+---Nunca me ha gustado el sabor del vino ---Séfora se encogió de hombros y vió la sorpresa en el rostro del abogado ---, por ser española no tiene por qué gustarme los toros, las sevillanas y el vino.
 
----Taeku...
+---Cierto. El informe de Taeku ha sido algo escueto y el de Junnosuke... ---soltó un leve suspiro negando ---. Quiero escuchar tu versión.
 
----Bueno, planifiquemos ---Junnosuke bajó las escaleras.
+Séfora se quedó pensando, había leído el informe de Taeku y aquello rellenaba los agujeros que ellos no habían podido rellenar. Aunque no hubieran escuchado sus conversaciones, la forma de moverse y mirar a su alrededor hablaba de más.
 
-Taeku quitó la mano de su brazo de una forma suave, casi disimulado. Apartó la mirada de él para centrarse en Junnosuke, que los miraba con gesto interrogativo.
+---Fue emocionante ---se le ensanchó la sonrisa ---. Entrar de esa manera frente a un grupo de gente que te odia es algo...
 
----No puedo confiar en todas las personas que sabían el plan de hoy, por lo que actuaréis vosotros dos ---dijo Séfora.
+---Imprudente ---interrumpió Sanghun serio.
 
----Haciendo qué ---imperó Taeku.
+Séfora tragó saliva, esperaba que en cualquier momento él le fuera a reñir por la decisión que había tomado. Pero no se arrepentía.
 
----Siento que voy a jugar la carta más rastrera que tengo, pero no me ha dejado otra ---se tapó la boca con la mano ---. Iréis a su casa.
+---Hemos recabado información importante.
 
-Con decir aquello y ver las expresiones de sus compañeros supo que ellos lo sabían. Taeku agachó la cabeza escondiendo ésta, apoyando los brazos en sus rodillas. Junnosuke se había quedado de pie, apretando los puños frente a ellos.
+---Información que acabará en la basura. Conocía al viejo Watashime, no tenía amantes en la calle ---se mantuvo serio.
 
----Yo lo haré ---dijo Junnosuke ---, iré solo y lo haré.
+---No estabas con él en cada momento ---se inclinó hacia delante ---, no sabes qué hacía a solas.
 
----No ---Taeku se puso en pie ---, no puedo dejar que te cargues con este peso.
+---No me hagas discutir de este tema, nunca le has conocido. No sabes nada de tu abuelo.
 
----No sería la primera vez que hago algo así.
+Se hizo el silencio cuando trajeron los platos principales. Sanghun tenía razón, no lo había conocido y no podía poner la mano en el fuego por las cosas que hacía o no hacía en su tiempo libre. Pero los hombres al fin y al cabo son débiles, podría haber caído en la tentación. Sanghun no apostaba por ese rumor, pero ella investigaría hasta donde pudiera.
 
-Aquella confesión rompió a Séfora y miró a Junnosuke de otra manera. Había muchas cosas de ellos que no sabía, a pesar del tiempo juntos ellos nunca hablaban de su pasado.
+---Por cierto, hay algo que tengo que decirte. Puede que no te guste, pero no sé si tendrás otra opción.
 
----Ese de ahí es el ordenador de Katsura ---señaló Junnosuke sobre la mesa.
+---Suéltalo, no andes con rodeos ---comenzó a comer.
 
----Buscaremos a alguien que sepa entrar en él. Descubriremos sus secretos ---dijo Séfora ---. No puedes dejar que pase más tiempo Junnosuke, hazlo ya.
+---Deberías de casarte con un heredero influyente.
 
-Él asintió y agarrando las llaves de su coche se marchó de allí sin añadir nada más.
+Séfora se atragantó y bebió agua para poder tragar mejor la comida que se le había ido por otro lado. Le miró con los ojos muy abiertos y gesto de incredulidad. ¿Lo estaba diciendo en serio? Se limpió la boca con la servilleta.
 
----Después de esto, las cosas van a ser completamente distintas, ¿lo sabes? ---Taeku la miró preocupado.
+---Ni de coña ---señaló con el dedo ---. No pienso atar mi crecimiento al matrimonio.
 
----En el momento que él decidió traicionarme hizo que la cosa cambiara ---se puso en pie ---. Debe saber las consecuencias de traicionarme.
+---Piensa que es una ventaja, las alianzas por matrimonio son más frecuentes de lo que te crees en este mundo.
 
-Él la agarró de la mano y se puso en pie mirándola.
+---No ---sentenció ---. No voy a discutir este tema conmigo, no eres mi padre. Gracias por la invitación pero se me ha ido el hambre.
 
----No estás sola en esto, Séfora. Estaré a tu lado.
+---No hemos hablado de lo importante...
+
+No quiso escuchar nada más, se marchó del reservado privado del restaurante y se reunió con Taeku que estaba en la puerta. Sin decir nada más salió de allí y se montó en el coche.
+
+¿Casarse? Sanghun había perdido la cabeza. Ya perdió una vez su libertad, y ahora que estaba empezando a recuperarla no iba a volver a perderla.
+
+Sabía que Taeku trataba de hablar con ella, pero lo ignoraba. Mantenía los brazos cruzados pensando en qué hacer para ser ella la que subiera más y más por su cuenta. No necesitaba una boda o un hombre a su lado, ya tenía suficiente con tener a Sanghun codo a codo.
+
+El coche se paró de golpe y ella alzó la cabeza mirando al frente. Un coche negro había bloqueado el camino de su propio coche. Escuchó el sonido de un arma y ella se preparó para desenfundar la propia.
+
+---No te muevas ---dijo Taeku desde el asiento del copiloto.
+
+La puerta trasera del coche se abrió y Keiken se bajó. Séfora se fijó que Taeku estaba aún mas tenso, no bajó el arma.
+
+---¿No bajáis a saludar? ---Keiken alzó la voz desde la distancia.
+
+---No vayas, puede ser una trampa ---Taeku apretó los dientes.
+
+---Cúbreme la espalda, confío en ti.
+
+Séfora bajó del coche y se aseguró que tuviera la pistola en su correspondiente lugar, no estaba oculta, pero tampoco la agarró. Se colocó delante del propio coche y escuchó como Taeku salía a la vez de su lado, sin dejar de apuntar a Keiken con el arma.
+
+---¿A qué se debe esto, Keiken? ---Séfora caminó hacia él ---. Hace tiempo que no nos vemos.
+
+---Necesitaba verte, llámalo apego emocional ---se burló ---. Me lo has puesto tan complicado para verte durante este tiempo que he tenido que forzar la situación. Hola Taeku, ¿no está Junnosuke contigo? Qué pena, quería verle.
+
+---Que te den ---dijo Taeku.
+
+---¿Has venido a disculparte? ---Séfora alzó un brazo ---, me ha quedado una cicatriz muy fea por tu culpa.
+
+---Una persona es más interesante cuantas más cicatrices lleve por la batalla. De nada ---se inclinó de forma burlona.
+
+---Dime ya lo que quieres, no tengo tiempo ni paciencia para perderlo contigo.
+
+Keiken dio largas zancadas hasta quedar pegado al cuerpo de Séfora, había sido un movimiento ágil, no se lo esperó. 
+
+---No me vengas con prisas ---dijo en tono amenazante, tenía la mirada clavada en ella.
+
+Séfora alzó la cabeza, manteniendo su mirada con gesto desafiante. Le daba igual lo que él representaba, no le tenía miedo, lo había estado investigando.
+
+---Has estado escondida un año y veo que te ha ido muy bien.
+
+---He estado luchando delante de tus narices por lo que es mío.
+
+---He visto que te has ganado a algún que otro grupo ---dijo y dio un paso hacia atrás ---. ¿Estás segura de sus lealtades? El viento sopla en muchas direcciones.
+
+Entró en el coche y se marchó de allí. Séfora se giró hacia Taeku, que esperó un poco hasta guardar el arma. Alzó la mano hasta apoyarla en su brazo y susurró.
+
+---Necesito reunirme con los líderes.
+
+Fueron al coche y se marcharon directos a _La Torre Kimpun_, allí los reunirían a todos y comprobaría lo que Keiken le acababa de decir.
+
+Le mandó un mensaje a Junnosuke para que estuviese preparado con Ren en el despacho principal. Más tarde iría a reunirse con Ten Shio para asegurarse que todo estaba bien atado en los demás países. Junho también debía de estar presente en esa reunión.
+
+Antes de llegar había recibido un mensaje que no le había gustado nada. Se lo guardó para ella, tenía que saber bien cuando usar las cartas.
+
+Una vez en el despacho se encontró con Ren y Junnosuke.
+
+---¿Qué ha pasado? ---dijo el segundo.
+
+---Reunión rutinaria de aliados ---respondió Séfora ---. ¿Has avisado a tu padre, Ren?
+
+---Está de camino.
+
+Séfora caminó en círculos en el despacho, mantenía el teléfono apretado contra el pecho. A su lado Taeku le contaba lo que había pasado hacía escasos momentos a Junnosuke.
+
+Se quedó mirando por la ventana, repasando en su cabeza las palabras que les diría a aquellos hombres. Poco a poco iba escuchando como llegaban, pero no se giró para saludar. ¿Debía amenazarles? Sintió el peso de la pistola sobre su cadera y cuando Ren anunció la última persona ella se giró.
+
+Se llevó la mano a la cadera y sacó el arma, no la cargó, pero la sostuvo en la mano. Los hombres se mantenían serios sin apartar los ojos de ella. Los contó, en total eran doce personas. Y solo de Japón.
+
+---Gracias por venir de forma tan apresurada. Prometo que seré breve.
+
+Se sabía el nombre de cada hombre que estaba ahí sentado. Conocía sus debilidades y sus fortalezas. Sabía hasta sus más oscuros secretos. Y no estaban allí porque los hubiese amenazado con exponerlos.
+
+Había sido difícil porque había peleado con uñas y dientes ganarse su respeto, --con algunos de forma literal mas que figurada-- pero habían acudido a su llamada.
+
+---El caso en el distrito _Este_ está siendo investigado por la policía ---dijo Séfora ---. Tengo a alguien dentro para disuadir la investigación, así que pido prudencia en aquella zona. No podemos dejar que los diferentes clubes tengan peleas internas, al final nos harán cerrarlos y no es lo que queremos.
+
+Apretó firmemente la pistola en su mano, no sabía cuándo había empezado a sentirse más segura con ella en la mano.
+
+---Necesito que estéis pendientes de los rumores que se puedan correr por los pequeños grupos.
+
+---Hay uno que me tiene inquieto ---Katsura alzó la mano. De todos aquel era el que más odiaba --- ¿Es verdad lo del otro Watashime?
+
+---Eso vamos a averiguar ---caminó hacia él ---, vais a escuchar cualquier pequeña cosa que se diga de esa persona. Necesito saber por dónde se mueve. Si está formando un grupo o solo busca armar gresca.
+
+Miró la cara de todos, habían comenzado a susurrar entre ellos lo que suponía lo de aquel Watashime. Muchos parecían sorprendidos y otros molestos por lo que eso significaba.
+
+Dio una vuelta a la mesa donde ellos estaban sentados y escuchó sus conversaciones. Sus reacciones, todo era crucial para averiguar si Keiken estaba en lo cierto.
+
+---Hay otra cosa más ---añadió Séfora ---, no concibo las reuniones secretas, ni las alianzas paralelas y mucho menos las traiciones.
+
+Alzó ligeramente la pistola y señaló a cada uno de los presentes. Sintió una ligera tensión en sus rostros.
+
+---Me ha costado sudor y lágrimas estar aquí y no dejaré que lo que ya he conseguido se vaya al traste. Jugaré sucio si es necesario.
+
+---Nadie ha hecho...
+
+---No he terminado ---apuntó al que le interrumpió con la pistola y la cargó ---. No me da miedo mancharme las manos de sangre. Sois prescindibles. No sabéis cuantos desean el puesto que tenéis vosotros. Me sois útiles, por eso trabajamos juntos. Vosotros felices y yo feliz.
+
+Le puso el seguro al arma y se la guardó de nuevo en la cartuchera. Se giró hacia la ventana y los despidió a todos. Una vez se quedó sola Junnosuke se acercó a ella.
+
+---Katsura, lo he visto nervioso.
+
+---Esta vez vamos a jugar con él. No va a truncar mi camino con facilidad.

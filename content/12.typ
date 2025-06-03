@@ -2,270 +2,166 @@
 
 =
 
-El invierno dio paso a la primavera, y con cada estación que pasaba, Séfora se endurecía.
+Junnosuke fue directo hacia Séfora a la vez que Taeku había echado a correr hacia la ventana que estaba abierta de par en par, no había rastro de Keiken por ningún lado y por ello estaba maldiciendo entre dientes. Lo cerró todo.
 
-Un año después de su llegada a Japón era capaz de montar y desmontar un arma semiautomática sin la ayuda de nadie. Estaba en el campo de tiro y acababa de descargar el arma contra su objetivo de papel. Taeku aplaudió.
+---¡Para ya, Taeku! ---gritó Junnosuke.
 
----Hace nada eras incapaz de acertar al objetivo y ahora no hay quien te pare.
+Mantenía un trapo contra el brazo de Séfora para cortar la hemorragia.
 
----Aprendí del mejor.
+---Estoy bien, solo es un corte superficial.
 
-Volvió a cargar las balas en el cargador y dejó la pistola descargada sobre la mesa que tenía delante. Hacía un par de meses que había decidido practicar sin el protector para las orejas. Sentía satisfacción al sentir como había progresado.
+---¿Qué es lo que quería? ---Junnosuke miraba atento la herida.
 
-Ya era capaz de enfrentarse verbalmente a los líderes de facción más pequeños y se había ganado su confianza con la fuerza.
+---Está claro, los papeles ---Taeku interrumpió ---. Hay que guardarlos. ¿Cómo demonios sabía que lo teníamos?
 
----Séfora, perdón la interrupción ---Ren Aoki acababa de llegar.
+Taeku volvió a la mesa y Junnosuke se centró en su brazo. La llevó hasta el fregador y mojó el trapo que tenía en la mano para humedecer la zona y ver también el alcance de la herida.
 
-Ambos lo miraron mientras el chico iba con el móvil en mano. Meses atrás Ten Shio había insistido que ella debía tener un asistente personal y, dada la cercanía en edad y experiencia, el hijo menor de la familia Aoki era el más indicado.
+---Es cierto, no es profundo, pero dejará cicatriz.
 
----Tienes una llamada de parte de Takada Mishima.
+Fue a por el botiquín que estaba guardado en el baño y le vendó el brazo con firmeza para que no se abriera la herida y volviera a empezar a sangrar.
 
-Giró el cuerpo hacia él y agarró el teléfono. Llevaba semanas esperando esa llamada. Le había encargado que acabara con la lucha interna de dos de las bandas por recomendación de Sanghun. Debía de empezar a derogar la responsabilidad de las cosas más pequeñas a las correspondientes personas.
+---Taeku, si Sanghun ha mandado los papeles a través de alguien, le habrá estado vigilando ---comentó Junnosuke.
 
----Dime que tienes buenas noticias.
+---Espera Jun ---Taeku se llevó los dedos a la oreja y asintió varias veces ---. Keiken ha entrado por el mismo sitio, ha matado a los dos guardias y se ha colado. Hay que bloquear esa entrada.
 
----Me encantaría, pero lo siento ---respondió Mishima al otro lado de la línea ---. Mis hombres han tenido que intervenir y las bajas han sido demasiadas. La policía terminó por meterse en medio.
+---Maldito montaplatos, debería de haberlo destrozado en su momento.
 
----Eso es un problema. Gracias Mishima, lo tendré en cuenta.
+Junnosuke fue hacia el dormitorio de Séfora y abrió una puerta sin salida. Daba a un pequeño cubículo donde parecería imposible que cupiese una persona, y lo abrió, mirando de arriba abajo, viendo el cuerpo sin vida de unos guardias.
 
-Colgó la llamada y apoyó el borde del teléfono sobre sus labios mientras pensaba.
+---Vamos a hacer obras ---Taeku estaba a su lado mirando el montaplatos.
 
----Taeku, usa tus contactos en la policía ---señaló ella ---, investiga quién está en el distrito del _Este._ Necesitamos que no metan las narices.
+Ambos asintieron y Junnosuke mandó un mensaje a Sanghun, debía saber lo que había pasado.
 
----Ahora mismo.
+---Cuando sepa que todo está bien te los volveré a dar, mientras los guardaremos nosotros. Si los necesitas subes a nuestro piso y los lees allí ---Taeku estaba bien enfadado.
 
-Taeku con teléfono en mano se marchó de allí empezando a hacer llamadas.
+Sabía que cuando Taeku se enfadaba solía perder los papeles, pero en ese momento estaba llevando la situación mejor que en otras ocasiones. Normalmente habría golpeado cualquier cosa o peor aún, a alguien. Pero no, simplemente había agarrado los papeles y había subido al piso directamente.
 
-Ren y Séfora se miraron durante unos segundos y ella terminó por suspirar pesadamente. Él esbozó una pequeña risa.
+---No sabía que el montaplatos conectaba con el garaje ---dijo Séfora con la mano en el brazo.
 
----¿Qué te parece divertido? ---ella alzó una ceja y recogió el arma sobre la mesa.
+---Hay muchos secretos de la casa que no sabes, pero eso da igual ---Asintió Junnosuke ---. Vamos a taparlos todos. Tres veces no se cuela, ya te lo digo yo.
 
----Nada ---él alzó las manos ---. Estoy viendo dos Séfora ahora mismo.
+El teléfono de Junnosuke comenzó a sonar y vio el nombre de Sanghun en la pantalla.
 
----¿A qué te refieres?
+---Dame un momento Sef, voy a aclarar esto ---Salió del piso y cerró en su espalda ---. Esto no es nuestra culpa, Sanghun. Mata a cada tipo con el que se cruza.
 
-Comenzaron a andar hasta llegar al coche. Séfora se fijó que Taeku daba vueltas al lado del coche mientras mantenía una acalorada conversación con alguien.
+---Lo sé y la cosa va muy lenta ---comentó Sanghun ---, el tiroteo no fue cosa de Keiken.
 
----En cuanto te quedas sola, sin Junnosuke o Taeku, tu cara se relaja ---señaló Ren ---. Me resulta curiosa tu forma de adaptación.
+---¿Y entonces?
 
----Bueno, supongo que instinto de supervivencia ---Séfora golpeó el brazo del chico.
+---Junnosuke, ya he... ¿hablas con Sanghun? ---Taeku bajaba por las escaleras.
 
----Ya ---él se quejó acariciándose donde le había golpeado ---. Voy a usar esto como maltrato laboral.
+---Sí. Acaba de llegar Taeku, por si quieres hablarlo con él ---dijo Junnosuke tenso.
 
----¿Volvemos con esas?
+Comenzó a subir las escaleras hacia su piso, seguido de Taeku y activó el manos libres para que ambos pudieran participar de la conversación.
 
-Séfora se lanzó hacia él haciendo como que le golpeaba, Ren no dejaba de reír mientras se cubría.
+---Me da igual uno que otro ---sentenció Sanghun ---. Tenéis que hacer una prueba, decidle a Séfora quien es el posible atacante y veis como reacciona. Si está más preparada ella sola reaccionará.
 
-Al principio le había costado confiar en el chico, pero la naturalidad con la que él la había tratado desde el inicio había hecho que ella se sintiera más cómoda. Así que empezaba a ver algo de luz en ese mundo oscuro y hostil.
+---¿Y quien ha sido? ---preguntó Taeku.
 
----Ya está hecho ---Taeku se paró junto a ellos.
+---Katsura ---casi escupió Sanghun ---. Es un imbécil que cree que tiene el poder de hacer algo importante.
 
-El cambio de ella fue radical. Se separó de Ren para fijarse en Taeku y ver en su rostro un gesto más serio de lo normal. A veces pensaba que Taeku odiaba a Ren por un motivo que ella desconocía.
+---El caso es que ha conseguido llamar la atención ---murmuró Junnosuke.
 
----Perfecto ---Séfora se echó el pelo hacia atrás ---. Volvamos a casa, ¿hay que recoger a Junnosuke?
+---Y ese es el problema. Ha incitado a que los que se oponen empiecen a hacer ruido. Hay peleas en la calle. Ten Shio ha tenido que viajar a Taiwan para solucionar un pequeño incidente.
 
----¿Dónde está él? ---preguntó Ren montándose en el coche.
+---¿Qué hago con los papeles, Sanghun? ---preguntó Taeku.
 
----En un asunto personal ---respondió Taeku cortante ---. No hace falta, ha ido en su coche.
+---Hay una caja fuerte en el tercer piso. La guardáis allí. Salid de la casa hoy que vamos a hacer las obras pertinentes ya mismo.
 
-Séfora entró en el lado del copiloto y se giró hacia Ren, volviendo la mirada a Taeku. Apoyada en el respaldo del asiento estaba pensando en la creciente tensión entre los diversos grupos. Había podido ganarse la confianza de muchos participando en pequeñas peleas internas, cosa que no le había gustado nada.
+La llamada se cortó y Junnosuke se guardó el teléfono en el bolsillo. Alzó el rostro hacia Taeku.
 
-Descubrió que los Yakuzas eran complicados de manejar si no ibas en persona y dabas varios puñetazos al más fuerte. Había sido difícil, muy difícil hacerse ver, y había recibido algunas palizas más fuertes de lo que hubiera imaginado.
+---Hay que hablar con ella, ¿estará preparada?
 
-Cuando había mal tiempo su hombro se resentía. En la última pelea, donde salió victoriosa, había caído en una mala postura, habiéndose dislocado el hombro. Aunque hubiese curado bien, en los días de lluvia le molestaba.
+---Y si no da igual. No hay tiempo que perder.
 
----Ahí está el coche de Junnosuke ---señaló Taeku a nadie en particular. Su voz la sacó de sus pensamientos.
+Taeku era firme en sus decisiones y eso era algo que él admiraba. Desde hacía tiempo había deseado que él hubiese sido su hermano mayor. Volvieron a bajar las escaleras y entraron en el piso de Séfora.
 
-Aparcó el coche fuera y los tres se bajaron. El protocolo de seguridad que llevaba se había intensificado y de forma discreta habían dos coches más aparcados en la cera de enfrente, vigilando cada movimiento de la casa.
+La encontraron limpiando la sangre del suelo.
 
-Entraron en la vivienda, subiendo en el ascensor directamente a la segunda planta. Al salir la puerta del piso estaba abierta y vieron a Junnosuke comer de un bol de ramen.
+---Tenemos un nombre ---dijo Taeku ---, Katsura Sato.
 
----Ya era hora ---tragó la comida ---. ¿Qué tal los disparos?
+---Me suena ese nombre ---comentó Séfora ---, leí por encima sobre él, pertenece a una pequeña facción del sur de Tokyo.
 
----Obviamente bien, soy mejor que tú ---Séfora asintió ---. Por cierto, Ren, ¿puedes ir a ver a tu padre y decirle que organice la reunión del distrito _Oeste_? Todo está preparado.
+---¿Cómo...? ---Junnosuke se sorprendió. Negó con la cabeza comprendiendo la facilidad de aprender que ella tenía.
 
-El chico asintió con la cabeza y se marchó de allí. Séfora fue directa hasta Junnosuke y miró su bol de ramen. Después de dos años juntos había tomado bastante confianza con ellos. Le quitó los palillos y agarró una carga de fideos para llevársela a la boca.
+---Ha causado un gran revuelo ---continuó Taeku ---, cree que puede contra ti.
 
----En Corea hay problemas ---dijo con la boca llena ---, no sé si el cargamento que dijo Sanghun llegará a tiempo.
+---Pues la lleva clara ---Séfora se llevó la mano a su brazo herido ---. Me gustaría ponerle cara a Katsura Sato.
 
----Debes de despreocuparte por eso ---Junnosuke recuperó sus palillos y la miró serio ---. Céntrate en lo que te atañe.
+Junnosuke y Taeku se miraron con complicidad, sonriendo por la decisión que ella había tomado. Antes de hacer nada, Junnosuke se fijó que Taeku estaba mirando el móvil y copiando en un papel algo que había escrito, se acercó a ver.
 
----Esto también me atañe ---se cruzó de brazos mirándolos a ambos  ---, es parte de la organización.
+---¿Instrucciones?
 
----Ya, pero el trabajo está repartido ---Taeku bebió agua de una botella ---. Deja de darle vueltas al asunto.
-
----Qué más hay en la agenda hoy ---Séfora se llevó la mano a la frente con gesto molesto.
-
----No lo sé, la has mandado con su padre ---resopló Taeku.
-
-Le miró seria. Esa hostilidad hacia Ren no le gustaba, lo ideal para ella sería que ambos trabajasen bien juntos. Y no sería porque Ren no lo intentaba. En el momento en el que iba a rechistar, Junnosuke habló.
-
----No es un dato cien por cien fiable, pero hay un rumor en los suburbios de fuera de Tokyo.
-
----¿Un rumor? ---preguntó Séfora ---. ¿Por qué tendría que preocuparme un rumor?
-
----No cuesta nada ir, mirar, infiltrarse y saber sobre ese rumor ---Junnosuke se encogió de hombros.
-
----Es cierto ---Taeku se llevó la mano a la barbilla ---. Ren, ese chico, nadie le conoce.
-
----Estás de coña, ¿verdad? ---Séfora soltó una carcajada ---, sé que te cae mal, pero de ahí a meterle allí.
-
----¡No he dicho que vaya a ir él solo!, no me dejas terminar, de verdad qué ansias. Nadie conoce a Ren, por lo que _Junnosuke_ puede ir con él ---enfatizó el nombre del otro.
-
----Es cierto, esta noche puedo ir ---asintió encogiendo los hombros.
-
-Se cruzó de brazos y meditó la propuesta. Era buena idea, Ren podía pasar desapercibido, dos hombres preguntando por lo que fuera el rumor no sería llamativo.
-
----¿Qué es el rumor exactamente?
-
----Hay otro Watashime ---sentenció Junnosuke.
+---Más o menos.
 
 #separador
 
-Séfora salió del coche con la gorra puesta y una mascarilla.
+Los tres iban en el coche hasta un local de juegos de azar que había en los suburbios de Tokio. Parecía una zona sucia y llena de delincuencia. Se bajaron del coche y entraron, el sitio estaba lleno de gente frente a unas máquinas, otros jugaban a cartas, pero lo que tenían todos en común era el apostar dinero.
 
-No podía dejar que otro tuviera acceso a ese rumor sin tener ella el control de lo que se decía. No le servía un informe sobre la mesa, necesitaba saberlo de primera mano.
+Se notaba que esas personas estaban enganchadas al juego y que lo necesitaban para sobrevivir cada día. Pero era un círculo vicioso, cuando ganaban apostaban más hasta perder todo, entonces pedían préstamos y volvían a empezar. Y así vivían este tipo de mafias: prestando dinero y cobrando enormes comisiones.
 
-Había sido muy difícil convencer a Taeku para que fuera ella, junto a Junnosuke, a la zona donde el rumor había empezado. Antes de salir de casa había organizado un despliegue de hombres por los edificios cercanos. Tres en cada uno. Todos conectados en una línea de comunicación segura con sus respectivos auriculares.
+Caminaron por aquella sala iluminada en exceso por escandalosas luces leds de colores y paredes de espejo hasta llegar a una puerta de color rosa pastel escondida al fondo de la sala. Taeku llamó a la puerta tres veces y una chica con exceso de maquillaje abrió la puerta dejando que entraran. No los miró a la cara en ningún momento y los acompañó hasta el otro extremo del pasillo, donde había otra puerta de color negro. Se había dado cuenta que a partir de la puerta rosa los colores y luces se habían acabado ipso facto.
 
----No te lo quites en toda la noche ---le había dicho Taeku.
+La chica llamó tres veces a la puerta y con las mismas se marchó desapareciendo, parecía tener miedo de lo que había al otro lado.
 
-Cada cinco minutos escuchaba la voz de su compañero comprobando que todo estuviese bien. Debía de tener paciencia, ella había elegido salir a la calle y tenía que soportar estar vigilada y controlada para que nada pasara. Y sabía que teniendo a Junnosuke a su lado nada malo iba a pasar, pero aún así Taeku los vigilaba desde uno de los edificios.
+Se abrió la puerta y se dejó ver un despacho hortera. En la pared del fondo había una pecera llena de peces tropicales nadando entre corales, y un hombre estaba sentado en una silla admirando como nadaban y jugaban.
 
----Si te pones nerviosa lo notarán ---dijo Junnosuke tranquilo, con una sonrisa ---. Tenemos el sello de esta banda, son muchos y dos caras desconocidas no les saltarán las alarmas.
+---¿A qué se debe esta visita? ---preguntó girando la silla, dejando ver a un hombre entrado en años, muy delgado y algo desastre para llevar la ropa, la camisa la tenia abierta por el cuello y los faldones mal metidos por los pantalones.
 
----Dime algo más de ellos, necesito tener las ideas claras.
+Su pelo era canoso y estaba recortado por el cuello y las orejas. Fumaba un puro y tenía una copa de un líquido ambarino sobre la mesa.
 
----Esta facción se llama _Arashi-Kai_ y no es muy grande, son de los que se están resistiendo a que estés aquí.
+---¿Y tú eres...? ---señaló a Séfora con una mano llena de anillos.
 
----Aún no me he encontrado en persona con ellos ---comentó Séfora mirando el anillo que llevaba puesto ---, eso puede ser una ventaja.
+Había llegado su momento. Debía de valerse por sí misma sin dejar que sus acompañantes hablaran por ella. Se había estado entrenando para momentos como este.
 
----Úsalo con cuidado, una vez descubran tu cara no será fácil volver a la calle. El rumor en concreto que me ha llegado es que hay alguien que alardea de ser hijo del viejo Watashime, va buscando pelea y por ahora dicen que va ganando.
+---Alguien que puede arruinarte la vida ---dijo Séfora. El hombre se echó a reír.
 
-Séfora asentía concentrada a todo lo que estaba diciendo Junnosuke. En su cabeza empezaban a formarse ideas de lo que podría hacer nada más llegar allí. El problema era ella en sí.
+---Pero qué dramática ---dio una profunda calada echando el humo hacia donde ella se encontraba.
 
-La única mujer que iba dando la cara y buscando pelea entre las facciones para ganarse el respeto era ella como la líder Watashime. Entrar en aquel grupo y buscar por sí misma tal vez levantaría sospechas.
+Séfora aguantó la respiración para no tragar el humo asqueroso. El hombre se puso en pie y se ajustó los tirantes que tenía colgando del pantalón para subirlos sobre sus hombros. 
 
----Junnosuke, necesito alentar dentro de ese grupo el rumor, que la gente se lo crea, llamar la atención de los que lo van esparciendo. De esa manera podremos dar con él.
+---Bueno, entonces eres la chica de la que todo el mundo habla ---la señaló con desdén.
 
----¿Cómo va todo por ahí? No veo que os mováis.
+---Me llamo Séfora ---dijo con rostro serio, algo molesta por el tono que había tomado al referirse a ella.
 
----Todo va bien, Taeku ---dijo Séfora por decimoquinta vez.
+---Chica, no me voy a molestar en aprender como se dice tu nombre ---apagó el puro en el cenicero y cogió la copa para dar un trago ---. He hecho un trato ya con Keiken, así que habéis llegado tarde. Ten Shio aquí no pinta nada ya.
 
----Entiendo a lo que te refieres ---Junnosuke asintió y se llevó el dedo a la oreja ---. Nos movemos, estad atentos.
+---Pero es que yo no soy Ten Shio ---se llevó una mano al pecho.
 
-No era nada normal llevar una mascarilla en el centro de la ciudad, la contaminación del aire era bastante alta, así que le servía a Séfora para cubrirse el rostro. Junnosuke iba más coloquial y su andar era despreocupado.
+---Me da igual ---abrió los brazos ---. Mis chicos os acompañarán a la salida.
 
----Relájate ---murmuró ---, me vas a poner nervioso.
+Señaló con la cabeza dos hombres que estaban apoyados en la pared con gesto aburrido, pero en cuanto escucharon su nombre se incorporaron y se acercaron a ellos.
 
-Llegaron al grupo de gente que estaba reunida al rededor de una hoguera. El lugar era un descampado con varios coches alrededor, algunos nuevos y otros abandonados y vandalizados. Había un tipo que llevaba un bate metálico y estaba custodiando la entrada, el cual se alarmó cuando los vio llegar.
+---No nos vamos a ir a ningún lado, Katsura ---dijo Taeku dando un paso hacia él con media sonrisa ---, te traigo una carta. Disfrútala un rato mientras esperamos ---le entregó un papel y el hombre lo cogió con mala gana.
 
-Séfora y Junnosuke alzaron la mano dejando ver sus correspondientes anillos. Gracias a Mishima tenía acceso a todos los instintivos de las bandas.
+Abrió el papel y lo leyó detenidamente. Su rostro cambió de estar con el ceño fruncido a soltar una sonora carcajada. Séfora miró de reojo a Taeku, no sabía nada de ninguna carta.
 
-El hombre se giró y ambos pasaron al descampado. En ese momento Junnosuke aprovechó para pasar el brazo al rededor de los hombros de Séfora, agachándose ya que había bastante diferencia de altura.
+---Un ultimátum dice ---rompió el papel y lo tiró al suelo con sorna ---. Gracias por el servicio prestado, pero mi lealtad ya está puesta en otra persona así que podéis marcharos.
 
----Sígueme el juego ---susurró.
+Séfora hizo memoria sobre el informe que había leído. Katsura debía muchísimo dinero a su familia, se había refugiado en el seno de los Watashime cuando quebró su empresa. Esbozó una media sonrisa y negó con la cabeza caminando hasta apoyar la mano sobre el escritorio.
 
-Séfora asintió y se dejó llevar en esta ocasión. Habían muchas personas allí reunidas. Pudo contar con rapidez más de cincuenta tan solo en un lado del descampado, por lo que habrían más de ciento cincuenta personas. Trataba de estar tranquila, agradecía que el año de experiencia había ayudado a que las piernas dejaran de temblarle.
+---No nos iremos de aquí ---dijo Séfora con desafío en el tono de voz ---. ¿Recuerdas gracias a quién estás en este lugar?
 
-Caminaron hasta un rincón donde un coche había sido transformado en un sofá de lo más incómodo, un grupo de hombres jugaban al _koi-koi_. Junnosuke se sentó a su lado y colocó a Séfora sentada sobre su pierna.
+Katsura se puso en pie muy serio. A penas era algo más bajo que Séfora y se irguió tratando de adoptar una pose desafiante.
 
----Tengo cincuenta mil yenes que me queman en el bolsillo, ¿se aceptan apuestas?
+---No es gracias a tí ---escupió.
 
-Los cinco hombres que allí habían alzaron la cabeza para mirarle. Séfora se tensó un poco, pero cerrando un segundo los ojos quiso relajarse. Escuchaba de fondo algunos murmullos de Taeku, así que quiso ignorarlos. Se inclinó sobre Junnosuke y los miró.
+---Pero ahora soy yo la que está aquí. Habrás hecho un trato con Keiken, pero eso no vale absolutamente nada ---Séfora sentía el sabor del metal en la boca y un cosquilleo en la lengua mientras hablaba ---. Te estoy dando la oportunidad de enmendar tu error, Katsura Sato.
 
-La mesa estaba con dos barajas de _koi-koi_ y llena de billetes arrugados. Estaba claro que jugaban con dinero, pero según tenía entendido era un juego de dos.
+---Que me vas a hacer tú, niñata ---la señaló con un dedo ---, no eres más que una mocosa que no sabe nada de esto, de lo que dejó tu abuelo. Si el estúpido hijo que tuvo...
 
----Vaya chico ---dijo entre risas uno de ellos ---, qué atrevido llegando así. Además bien acompañado. La apuesta se empieza por veinticinco, ¿crees que podrás?
+No se lo pensó. Giró el cuerpo hacia Junnosuke y le quitó el arma que llevaba en la funda, la cargó y apuntó a la cara de ese hombre. No había conocido a su padre, pero no podía soportar que alguien como ese gusano lo insultara. 
 
----No dudo de mis capacidades.
+---Vuelve a decir algo malo de mi padre y te puedo asegurar que te vas a reunir con ellos ---dijo en un tono amenazante y pudo ver en su rostro que le había creído.
 
-El grupo se echó a reír y comenzaron a repartir las cartas entre uno de ellos y Junnosuke, quien no dejó que Séfora se bajara a un lado del asiento.
+Aquello les pilló de sorpresa. Séfora vió de reojo como los dos guardaespaldas de Katsura habían sacado el arma y ahora la apuntaban a ella.
 
----¿Eres un nuevo traslado?
+---No vengas a mi casa a amenazarme con una pistola nunca más. Vete de aquí ---señaló la puerta.
 
----Sí, Akira me mandó a esta zona para aprender.
+Las piernas le estaban temblando, era la primera vez que tenía un arma entre las manos y tenía miedo de apretar el gatillo sin querer. Pero la necesidad de hacerse valer era mayor y se mantuvo firme.
 
-Si no recordaba mal, Akira era el segundo al mando de la facción en la que estaban.
+---Me llamo Séfora Watashime. Espero que no se te olvide.
 
----Sabe lo que hace, te ha mandado al mejor lugar que hay.
+Bajó el arma y rápidamente Junnosuke la agarró y la descargó.
 
-Todos rieron. Se veían tan amigables desde esa perspectiva que le dio aún más rabia que no la aceptaran. Ella podría formar parte de eso y la verdad, le estaba empezando a gustar el ambiente.
-
-Las cartas se iban lanzando sobre la mesa mientras ella lanzaba algún comentario de ánimo para su acompañante. Taeku por el altavoz estaba nervioso.
-
----¿Sabéis algo ya? ¿Vais a estar jugando toda la noche al dichoso juego ese?
-
-Disimuladamente Séfora llevó la mano a su espalda y sacó el dedo corazón. Sabía que Taeku les estaba observando, pero no desde donde.
-
----Muy maduro por tu parte, Séfora.
-
-Junnosuke soltó una carcajada. No sabía si era por el comentario de Taeku o por algo que aquellos hombres habían dicho.
-
----Estoy cansado de esta lucha interna ---dijo uno de los hombres.
-
-Aquello le pilló por sorpresa, así que agudizó el oído.
-
----Que si aceptación o no, que si luchas verbales o yo que sé ---continuó hablando el mismo ---. Tendría que venir aquí y sabría lo que es bueno.
-
-Le corearon varias carcajadas.
-
----¿Estamos hablando de la líder Watashime? ---preguntó Junnosuke.
-
----Sí ---otro hombre escupió en el suelo ---. Pero aquí la llamamos _gaijin onna_, no lo olvides para la próxima vez.
-
----Claro ---Junnosuke asintió.
-
-Conocía perfectamente aquel calificativo. No era la primera vez que lo escuchaba, ya se lo habían escupido a la cara en anteriores ocasiones, así que no le pilló por sorpresa.
-
-Los hombres rieron con fuerza cuando Junnosuke perdió esa partida y se llevaron su dinero.
-
----Es mi noche de suerte ---dijo el que había ganado.
-
----Dame un beso de buena suerte.
-
-Junnosuke la miró y ella se sorprendió, aquello provocaría tener que bajarse la mascarilla y le dió algo de miedo. ¿Y si la reconocían?
-
----No seas tímida, si sigue así vamos a desplumar a tu chico y no podrá comprarte cosas bonitas.
-
-Todos rieron. Se bajó ligeramente la mascarilla y se inclinó hacia su compañero, iba a besar su mejilla, pero en el último momento él giró el rostro y el beso cayó sobre sus labios.
-
----¡Muy bien!
-
-Todos se echaron a reír con ganas mientras ella se cubría bien la cara, agradecida por ello, pues había sentido como los colores se le subían. Taeku se quedó en silencio durante mucho tiempo.
-
----Suerte ---fue lo que dijo Séfora.
-
-El juego volvió a empezar y Junnosuke puso lo único de dinero que le quedaba sobre la mesa.
-
----Tengo entendido que hay otro heredero ---dijo Junnosuke moviendo sus cartas en las manos.
-
----Es cierto, yo también lo he escuchado. Os lo dije, no soy el único. Hay otro Watashime.
-
-El que habló se puso en pie y sacó varias latas de cerveza de una nevera que tenía al lado, las repartió entre los hombres.
-
----¿Le conoces? ---Junnosuke le miró directamente a los ojos.
-
----No en persona ---abrió la lata y dió un trago largo ---, pero sí que me han comentado que va buscando pelea.
-
----¿Por qué iría buscando pelea por los pequeños grupos? Lo ideal sería que se enfrentara directamente a esa _gaijin onna_, no a nosotros. Nos vendría ideal que la sacara de un plumazo de aquí.
-
-Todos corearon aquella afirmación con una carcajada y un brindis de las latas. Junnosuke se unió al coro.
-
----Pues si ese hombre es un hijo del... anterior Watashime, yo lo apoyaría ---Junnosuke soltó una carta sobre la mesa.
-
-Se hizo el silencio y le miraron.
-
----Me gusta este chico ---uno de ellos le dio con la mano en la espalda.
-
-Siguieron el juego hasta que Junnosuke le dio la vuelta y ganó esa partida. Los hombres rieron animados al ver el resultado, alegando que había sido por aquel beso de la suerte.
-
----Ya está bien ¿no?
-
-Se escuchó por el auricular. Junnosuke en ese momento se miró el reloj y le dió un golpe a Séfora en la pierna.
-
----Creo que he recuperado lo invertido, así que esta noche le daré un homenaje a mi chica, se lo merece.
-
----¡Claro que si! Que vaya bien la noche, muchacho.
-
-Ambos se pusieron de pie y los hombres alzaron la cerveza, brindando en honor a Junnosuke. Salieron de allí con paso tranquilo mientras escuchaban de fondo a Taeku preguntando de nuevo si había ido bien.
+Dio media vuelta y se marchó de allí abriendo cada puerta con brusquedad, necesitaba respirar aire puro.
