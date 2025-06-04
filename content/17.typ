@@ -78,7 +78,7 @@ Hubo un momento de absoluto silencio. Séfora pudo ver el dolor en el rostro de 
 
 ---Lo siento ---dijo incómoda por la revelación.
 
----¿Soy el único capaz de heredar el puesto de mi padre? Si, pero no lo quiero. He logrado estar aquí por mis propios méritos, no con su ayuda. Por eso no te lo dije.
+---¿Soy el único capaz de heredar el puesto de mi padre? Sí, pero no lo quiero. He logrado estar aquí por mis propios méritos, no con su ayuda. Por eso no te lo dije.
 
 ---Era algo bastante importante que debería de haber sabido desde el principio ---Séfora dio vueltas por la habitación.
 
@@ -122,7 +122,7 @@ Todo en ella había cambiado de forma radical, sus ropas y sus gestos eran difer
 
 Alzó la mano del teléfono y llamó a Takada Mishima, tenía que atar cabos sueltos.
 
----¿Como va el tema de los disturbios? ---dijo ella nada respondió el hombre.
+---¿Como va el tema de los disturbios? ---dijo ella nada más responder el hombre.
 
 ---La policía ya no está investigando las peleas en los locales, ha sido bastante rápido y efectivo ---respondió el hombre ---. Pero tengo buenas noticias.
 
@@ -148,7 +148,7 @@ Junnosuke estaba al teléfono cuando la vio aparecer y se despidió con un seco 
 
 Séfora le miró y apretó los labios notando un latido en el pecho que no era normal. _Basta, no lo mires así_, se dijo a sí misma y luego se fijó en un tatuaje que tenía sobre su pecho.
 
-Lo peor es que se fijó de más en la forma de su cuerpo y se sintió bastante incómoda analizando la musculatura bien formada y que su tono de piel era más moreno de lo normal.
+Lo peor es que se fijó de más en la forma de su cuerpo. Se sintió bastante incómoda analizando la musculatura bien formada y que su tono de piel era más moreno de lo normal.
 
 ---No sabía que llevaras un tatuaje ---señaló ella.
 
@@ -170,9 +170,9 @@ Ella se quedó pensando y asintió levemente con la cabeza. En la reunión que h
 
 ---Vamos al dojo ---Taeku señaló con la cabeza.
 
----Por favor ---ella se quedó pensando.
+---Por favor.
 
-Miró a Junnosuke por un momento y estiró la mano hacia él, apoyando esta sobre su hombro. Relajó el semblante y apretó los labios en una fina línea.
+Miró a Junnosuke por un momento y estiró la mano hacia él apoyando esta sobre su hombro. Relajó el semblante y apretó los labios en una fina línea.
 
 ---Sé que a veces las situaciones nos llevan a hacer cosas horribles, pero todo tiene un propósito ---comenzó a decir ella ---. No tengo ninguna duda que todos acabaremos haciendo cosas que no nos gusta, pero como bien me dijisteis los dos, _no estamos solos_. 
 

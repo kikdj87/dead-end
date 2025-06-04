@@ -104,7 +104,7 @@ La mirada fría de Junnosuke cuando se lo había dicho le había dejado claro qu
 
 De pronto sintió un calor rodear su espalda. Taeku estaba de rodillas detrás de ella, abrazándola, así que se dejó hacer. Apoyó el rostro en su hombro mientras lloraba.
 
-Volvieron al coche y antes de montarse en el coche Séfora estornudó un par de veces.
+Volvieron al coche y antes de montarse en éste, Séfora estornudó un par de veces.
 
 ---Vamos rápido, no sería bueno que te resfriaras ---dijo Taeku.
 
@@ -120,7 +120,7 @@ Iban de camino a casa cuando el teléfono de Taeku comenzó a sonar. En la panta
 
 Tenía el corazón encogido pensando en las miles de probabilidades que podrían estar ocurriendo en ese momento. Pero la que más le importaba era la posibilidad de que Ren hubiese sobrevivido y le viera despierto.
 
-Taeku conducía de forma brusca, acelerando el coche todo lo que podía. Dejó el coche mal aparcado y se bajaron del coche, yendo dentro de La Clínica. Junnosuke les esperaba en la entrada.
+Taeku conducía de forma brusca, acelerando el coche todo lo que podía. Lo dejó mal aparcado y se bajaron yendo dentro de La Clínica. Junnosuke les esperaba en la entrada.
 
 ---Estáis... ---los señaló pero después negó con la cabeza ---. Da igual, venid.
 
