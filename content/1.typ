@@ -70,7 +70,7 @@ Tras llegar a su barrio fue directa al edificio, subió el ascensor que la dejó
 
 Se preparó algo ligero para cenar mientras veía la televisión, o más bien la escuchaba. Tras limpiar lo que había ensuciado volvió a su dormitorio y miró la bolsa, donde una esquina del papel que le había dado la chica esa día asomaba. Sacó el papel, encendió el portátil y se metió en la página web.
 
-Había mucha información que era bastante interesante para ella. La cuota de la matrícula y el gasto del seguro a penas subían los cien euros así que podía permitírselo sin necesidad de pedir dinero a sus abuelos. Desde que pudo hacerse cargo de sí misma se dedicó a ayudar a sus vecinas. Cuidaba de sus hijos o les ayudaba a hacer deberes para sacar algo de dinero para sus gastos.
+Había mucha información que era bastante interesante para ella. La cuota de la matrícula y el gasto del seguro apenas subían los cien euros así que podía permitírselo sin necesidad de pedir dinero a sus abuelos. Desde que pudo hacerse cargo de sí misma se dedicó a ayudar a sus vecinas. Cuidaba de sus hijos o les ayudaba a hacer deberes para sacar algo de dinero para sus gastos.
 
 Había comenzado a construirse un futuro imaginario con la idea de estudiar aquello que le proponía la escuela. Los gastos eran más bajos que cualquier universidad y lo mejor que tenía era la tasa de un noventa por ciento de contrataciones. Tan solo eran dos años y medio de estudio y trabajo práctico, y después podría independizarse de sus abuelos.
 
@@ -122,6 +122,6 @@ Estuvo releyendo la carta una y otra vez. Había algo que no le estaba encajando
 
 Sabía que por algún lugar de la casa tendría que haber una caja llena de cartas de su padre. Conociendo a sus abuelos, sabía que eran capaces de no dárselas nunca, pero ella insistiría en tenerlas. Al día siguiente las buscaría por cada rincón.
 
-A penas pegó ojo en toda la noche. Pensaba en que habían fotos de su madre por la casa, por lo que no habían borrado todo lo concerniente a ellos de sus vidas, por mucho que no les gustara el padre de Séfora.
+Apenas pegó ojo en toda la noche. Pensaba en que habían fotos de su madre por la casa, por lo que no habían borrado todo lo concerniente a ellos de sus vidas, por mucho que no les gustara el padre de Séfora.
 
 Se quedó dormida, agotada y con un torbellino de preguntas en la mente, ajena a que las respuestas estaban a punto de irrumpir en su vida.

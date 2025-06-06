@@ -44,7 +44,7 @@ A veces le gustaba recordar esos viejos tiempos en los que él se dedicaba a ens
 
 ---Así no se agarra la katana, Jun ---gritó un joven Sanghun ---tienes que colocar las manos más firmes.
 
----A penas tiene cinco años ---Keiken se quejó colocando un brazo delante de su hermano pequeño ---, no puede hacerlo bien.
+---apenas tiene cinco años ---Keiken se quejó colocando un brazo delante de su hermano pequeño ---, no puede hacerlo bien.
 
 ---Tiene que aprender si quiere llegar a ser como vosotros ---Sanghun sujetaba una katana con una mano y la movía con agilidad de un lado a otro. Finalmente la sostuvo con ambas manos e hizo un corte contra un trozo de bambú. Limpiamente éste cayó en dos partes.
 
@@ -88,7 +88,7 @@ Se inclinó ligeramente y abrió la puerta. Jongtae esperaba al otro lado.
 
 #separador
 
-Desde que Séfora vivía con él a penas había tenido tiempo de descansar, lo único que hacía era entrenar para fortalecer el cuerpo y mantenerse ágil. Taeku se presentaba cada mañana como un reloj para poder practicar con ella.
+Desde que Séfora vivía con él apenas había tenido tiempo de descansar, lo único que hacía era entrenar para fortalecer el cuerpo y mantenerse ágil. Taeku se presentaba cada mañana como un reloj para poder practicar con ella.
 
 
 

@@ -20,7 +20,7 @@ Su móvil comenzó a sonar cortando la música que llevaba en sus auriculares. L
 
 Junnosuke se quedó pensando unos instantes. Ninguno estaba conforme con la forma de pensar de Ten Shio, era demasiado autoritario cuando en realidad no era nadie en esa empresa. Había caído en esa posición por pura suerte.
 
----Estamos aislados de toda información aquí, la verdad. A penas nos informan de lo que pasa en Ginza.
+---Estamos aislados de toda información aquí, la verdad. Apenas nos informan de lo que pasa en Ginza.
 
 ---Deja de correr, no me gusta hablar contigo cuando estás haciendo ejercicio ---Sanghun sonó molesto mezclado con un toque divertido.
 
@@ -96,7 +96,7 @@ Junnosuke daba golpes con el dedo sobre la mesa mientras esperaba a que ella rea
 
 ---Eres joven, no sabes nada de este mundo ---comenzó a argumentar Taeku ---, no te veo dispuesta a arriesgar tu vida por lo que está en juego.
 
----Taeku a penas sé nada ---dejó de actuar y Junnosuke se fijó en el miedo de sus ojos ---. No sé cuál sería la mejor manera de afrontarlo.
+---Taeku, apenas sé nada ---dejó de actuar y Junnosuke se fijó en el miedo de sus ojos ---. No sé cuál sería la mejor manera de afrontarlo.
 
 ---Por eso estamos practicando ---Junnosuke soltó un suspiro agotado ---. Empezamos de nuevo.
 

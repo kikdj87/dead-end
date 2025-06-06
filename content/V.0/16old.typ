@@ -6,7 +6,7 @@ Dejaron a Yonghwa acostado sobre el suelo del salón que estaba limpio. Taeku es
 
 ---Séfora, mírame a mi -- Hyungmin agarró fuerte su brazo provocando que le mirase con dolor ---, tengo que curarte, vamos a centrarnos en ti ahora. Él está en buenas manos, Tae sabe qué hacer en casos así.
 
-Ella asintió con la cabeza dejando que Hyungmin le curase los pequeños cortes. Hizo que se quitase la camiseta y a regañadientes se quedó con una camiseta interior de tirantes, se sintió algo incómoda, pero era la mejor manera que tenía de curar las heridas de sus brazos. Se percató que a penas eran cortes superficiales.
+Ella asintió con la cabeza dejando que Hyungmin le curase los pequeños cortes. Hizo que se quitase la camiseta y a regañadientes se quedó con una camiseta interior de tirantes, se sintió algo incómoda, pero era la mejor manera que tenía de curar las heridas de sus brazos. Se percató que apenas eran cortes superficiales.
 
 Una vez estuvo curada y con las heridas selladas para que no quedara cicatriz se giró sentada en el suelo para ver en la distancia como Jongtae, con mucho cuidado, había vendado el pecho de Yonghwa y éste había dejado de sangrar. Suspiró profundamente y giró el rostro hacia Séfora.
 
@@ -94,7 +94,7 @@ De pronto le entró el pánico. No quería que él estuviese metido en este mund
 
 ---Eso es otro tema ---carraspeó un poco antes de seguir hablando ---, y es que quiero intentar ver como nos va viviendo juntos.
 
-Su mente se quedó en blanco cuando dijo aquello. Si que era cierto que estaban viéndose un tiempo, pero a penas eran novios formales unas semanas y sentía que todo iba muy acelerado. No sabía como manejaban esto fuera de España, pero para ella era demasiado precipitado.
+Su mente se quedó en blanco cuando dijo aquello. Si que era cierto que estaban viéndose un tiempo, pero apenas eran novios formales unas semanas y sentía que todo iba muy acelerado. No sabía como manejaban esto fuera de España, pero para ella era demasiado precipitado.
 
 ---Claro, también quiero hablar con tu padre, pedirle permiso para poder... hacer esto más oficial. Hacerlo bien ---su sonrisa era tan sincera que se sentía fatal por haberle mentido con respecto a su familia. Él notó en su gesto algo extraño ---. ¿Estás bien?
 
@@ -108,7 +108,7 @@ Y tampoco podía olvidarse de lo más importante: una facción del grupo quería
 
 #separador
 
-Estaba frente al espejo de su dormitorio con el peine en la mano, miraba atenta su reflejo. Llevaba puesta tan solo la ropa interior y se podía ver los apósitos que Hyungmin le había puesto para tapar las heridas más grandes. Las más pequeñas ya estaban curadas y a penas se notaban. Yonghwa supo como hacer los cortes en sitios claves.
+Estaba frente al espejo de su dormitorio con el peine en la mano, miraba atenta su reflejo. Llevaba puesta tan solo la ropa interior y se podía ver los apósitos que Hyungmin le había puesto para tapar las heridas más grandes. Las más pequeñas ya estaban curadas y apenas se notaban. Yonghwa supo como hacer los cortes en sitios claves.
 
 Se colocó un pantalón vaquero cómodo junto a una camiseta básica de manga larga y luego un jersey enorme de color blanco de cuello vuelto. Iba a salir a pasear y no quería pasar frío. Recogió su pelo en una coleta y se puso el bolso pequeño cruzado por el pecho. Al ir a la entrada se colocó los botines con cuidado y cuando abrió la puerta del piso se encontró a Yonghwa de cara.
 
@@ -186,7 +186,7 @@ Junnosuke sintió el peso muerto de Séfora en sus brazos, cayó completamente i
 
 ---Taeku tenemos problemas. Ven ya mismo ---Colgó la llamada y mandó la dirección.
 
-A penas pasaron unos minutos cuando Taeku apareció corriendo por el callejón.
+apenas pasaron unos minutos cuando Taeku apareció corriendo por el callejón.
 
 ---Tengo el coche al final de la calle ---dijo el recién llegado mientras tomaba a Séfora entre sus brazos ---. Agarra a Yongsun como puedas y vámonos de aquí ya.
 

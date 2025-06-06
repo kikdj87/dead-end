@@ -142,7 +142,7 @@ Pero no era él quien estaba frente a la chica. Su rostro cambió al ver a Yongh
 
 ---Taeku está enfermo. Hoy entrenas conmigo, vamos al dojo.
 
-Echó a andar sin que ella pudiera opinar ni decir nada, así que fue a varios pasos detrás de él frotándose las manos, estaba nerviosa. Llevaban mas de un mes sin hablar de algo que no fuese el trabajo, a penas la miraba y si no era estrictamente necesario no le dirigía la palabra.
+Echó a andar sin que ella pudiera opinar ni decir nada, así que fue a varios pasos detrás de él frotándose las manos, estaba nerviosa. Llevaban mas de un mes sin hablar de algo que no fuese el trabajo, apenas la miraba y si no era estrictamente necesario no le dirigía la palabra.
 
 Quitó el candado de la puerta del dojo y lo guardó en el bolsillo para abrir cómodamente la puerta entrando primero. Esperó para cerrarla en cuanto ella entrara, dejando el candado abierto. Se quitó la chaqueta y se quedó con una camiseta básica negra de manga larga con cuello en pico. Se pudo fijar en que sobresalía por el lado derecho el mismo tatuaje que le había visto a Sanghun y a Hyungmin. Tenía curiosidad por saber si todos lo llevaban por algún simbolismo extraño. Pero no sería a Yonghwa a quien se lo preguntara.
 

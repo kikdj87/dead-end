@@ -26,11 +26,11 @@ Terminó el movimiento con una media luna, alzando la espalda hasta el techo en 
 
 Guardó la katana con el debido respeto y la dejó colocada encima de una mesa con cuidado. Fue a prepararse algo de comer mientras hacía tiempo.
 
-Cuando la chica salía no se sabía cuánto iba a tardar, a veces eran salidas de a penas diez minutos, otras de unas cuantas horas. Pero casi siempre, por no decir siempre, iba sola.
+Cuando la chica salía no se sabía cuánto iba a tardar, a veces eran salidas de apenas diez minutos, otras de unas cuantas horas. Pero casi siempre, por no decir siempre, iba sola.
 
 Hasta ese momento no había contado a mas de tres personas sospechosas que la estuvieran vigilando también. Por suerte Taeku era más rápido que ellos y los aniquilaba de una forma rápida y sin hacer ruido. No sabía hasta cuando podrían seguir acumulando cuerpos de desconocidos por los montes de Madrid.
 
-Se permitió relajarse a penas cinco minutos y se quedó dormido. Soñó con su hermano. Antes de que todo cambiara para su padre tenían una buena relación, entrenaban juntos y pasaban el tiempo junto a Taeku y más jóvenes que estaban allí reunidos como ellos.
+Se permitió relajarse apenas cinco minutos y se quedó dormido. Soñó con su hermano. Antes de que todo cambiara para su padre tenían una buena relación, entrenaban juntos y pasaban el tiempo junto a Taeku y más jóvenes que estaban allí reunidos como ellos.
 
 Se despertó con el sonido del teléfono, era una llamada de Taeku en la que avisaba que estaban volviendo a casa, así que volvió a su puesto en la ventana. No pasó mucho tiempo hasta que Taeku entró al piso.
 

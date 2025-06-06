@@ -142,7 +142,7 @@ Séfora hizo memoria sobre el informe que había leído. Katsura debía muchísi
 
 ---No nos iremos de aquí ---dijo Séfora con desafío en el tono de voz ---. ¿Recuerdas gracias a quién estás en este lugar?
 
-Katsura se puso en pie muy serio. A penas era algo más bajo que Séfora y se irguió tratando de adoptar una pose desafiante.
+Katsura se puso en pie muy serio. Apenas era algo más bajo que Séfora y se irguió tratando de adoptar una pose desafiante.
 
 ---No es gracias a tí ---escupió.
 

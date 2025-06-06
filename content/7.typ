@@ -36,7 +36,7 @@ Séfora se fijaba en cada detalle de su rostro. No había visto durante mucho ti
 
 Ella escuchaba atenta la historia y pudo ver como él estaba concentrado en buscar las palabras exactas.
 
----Yo a penas tenía ocho años cuando aquello sucedió. Y no lo malinterpretes, no era un niño normal ---una ladina sonrisa se le vio reflejada en el rostro al decir aquello ---. Sabía luchar cuerpo a cuerpo, con armas de verdad... Pero no tenía la fiereza de Keiken.
+---Yo apenas tenía ocho años cuando aquello sucedió. Y no lo malinterpretes, no era un niño normal ---una ladina sonrisa se le vio reflejada en el rostro al decir aquello ---. Sabía luchar cuerpo a cuerpo, con armas de verdad... Pero no tenía la fiereza de Keiken.
 
 Cuando dijo lo último giró completamente el rostro para mirar a Séfora.
 
@@ -102,7 +102,7 @@ Ambos hombres la miraron con mucha curiosidad. Analizaban cada parte de la cara 
 
 ---Bien ---asintió el hombre y sonrió.
 
-Los hombres comenzaron a hablar sobre el aprendizaje de Séfora, pero a penas podía concentrarse. Conocía a Ten Shio de antes, pero los otros dos hombres eran completos desconocidos. Solo conocía sus nombres de verlos en algunos informes o en el diagrama de poder que le hizo Taeku en su momento.
+Los hombres comenzaron a hablar sobre el aprendizaje de Séfora, pero apenas podía concentrarse. Conocía a Ten Shio de antes, pero los otros dos hombres eran completos desconocidos. Solo conocía sus nombres de verlos en algunos informes o en el diagrama de poder que le hizo Taeku en su momento.
 
 Ten Shio parecía la voz cantante del equipo. Se veía un hombre muy limpio y ordenado, su pelo bien cortado y con una raya en el lado. La corbata y la camisa bien puestas, además el traje de chaqueta gris oscuro bien abotonado. Dejaba ver cuando gesticulaba unos gemelos dorados. Su problema a su apariencia tan perfecta eran sus dientes, cada vez que sonreía se veían amarillentos y bastante estropeados por el tabaco y el alcohol.
 

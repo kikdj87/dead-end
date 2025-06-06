@@ -152,7 +152,7 @@ Soltó un largo suspiro una vez el coche se detuvo en la puerta de la casa que c
 
 ---Aún así, me haré más fuerte para protegerte ---asintió y giró el cuerpo hacia la chica para poder mirarle ---. Cuenta conmigo para todo. Lo que haga falta.
 
-Después de decir aquello Taeku se bajó del coche, ella tardó a penas unos segundos después en salir y se apoyó en el coche mientras veía como él iba directo al ascensor. Parecía que había leído sus pensamientos, aquello le había pillado desprevenida, pero le hizo tomar confianza en sí misma para con los chicos. Ellos serían su refugio en momentos de tormenta.
+Después de decir aquello Taeku se bajó del coche, ella tardó apenas unos segundos después en salir y se apoyó en el coche mientras veía como él iba directo al ascensor. Parecía que había leído sus pensamientos, aquello le había pillado desprevenida, pero le hizo tomar confianza en sí misma para con los chicos. Ellos serían su refugio en momentos de tormenta.
 
 Habían arriesgado su vida para cuidarla, para protegerla de todo lo malo. Y es verdad que todo había empezado siendo un mandato de alguien con mayor rango, pero al final se habían acostumbrado los unos a los otros, y después de lo que dijo Taeku, empezó a sentir que ella era parte de esa pequeña familia.
 

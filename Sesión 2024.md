@@ -18,7 +18,7 @@ Dragonborn: Kurton (tambien sospechan de el)
 	Nos vamos a las termas para poder limpiarnos bien y relajarnos de todo lo que hemos hecho, porque fuera de coña, hemos hecho dos misiones difíciles en menos de dos días y las hemos resuelto y hemos dejado una buena impresión, así que nos merecemos ese descanso. Una vez en las termas miramos lo que hay dentro de la bolsa.
 	Que hay en la bolsa:
 	- maquillaje (de todo tipo de cosas)
-	- joyero no muy grande cerrado con llave. Se detecta a penas magia de conjuración. Dentro hay el equivalente a 500 de oro en diamantes.
+	- joyero no muy grande cerrado con llave. Se detecta apenas magia de conjuración. Dentro hay el equivalente a 500 de oro en diamantes.
 	- dos botellas normales con tapa de corcho con una etiqueta que pone "úsame en caso de emergencia".
 	- hay una ballesta de mano con adornos de plata que brilla muy fino. La ballesta es mágica (magia de encantamiento)
 	- una carcasa de madera que se abre y hay birotes enanos para la ballesta.**

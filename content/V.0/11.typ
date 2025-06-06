@@ -78,7 +78,7 @@ Séfora estaba escuchando esa conversación en silencio, con los brazos cruzados
 
 ---Ah, hablando de ellos ---dijo Taeku rápidamente ---. Me ha dicho Aoi que el tiroteo lo planeó Keiken y que Katsura lo ejecutó. Y que además tienen organizado algo más para espantar a la chica.
 
----¿Te dijo todo eso? ---Séfora se sorprendió, ya que a penas fueron unos segundos que Aoi le habló al oído.
+---¿Te dijo todo eso? ---Séfora se sorprendió, ya que apenas fueron unos segundos que Aoi le habló al oído.
 
 ---Está bien ---se quedó unos segundos en silencio ---. Séfora, lo lamento, pero esto es bastante serio.
 

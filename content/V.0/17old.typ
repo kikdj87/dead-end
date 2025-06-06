@@ -22,7 +22,7 @@ Junnosuke llamó a una enfermera que no tardó en aparecer. La examinaron detall
 
 ---Ha ido todo bien ---dijo la señora dirigiéndose a Taeku ---. Recobrará el sentido en cualquier momento, es solo por el impacto.
 
-Taeku asintió con la cabeza y respiró más relajado. Séfora a penas tenía fuerzas para seguir hablando, así que les miraba con miedo. Podía ver en sus rostros que algo malo había pasado.
+Taeku asintió con la cabeza y respiró más relajado. Séfora apenas tenía fuerzas para seguir hablando, así que les miraba con miedo. Podía ver en sus rostros que algo malo había pasado.
 
 ---Jun quédate con ella ---Dijo Taeku sacando el móvil ---. En cuanto esté mejor nos tenemos que ir. Voy a agilizar el papeleo con los médicos para que le den el alta voluntaria. Yonghwa la cuidará en casa.
 

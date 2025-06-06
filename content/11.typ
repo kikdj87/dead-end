@@ -144,7 +144,7 @@ Por el contrario Keiken mantenía el cuerpo algo relajado, la navaja se movía e
 
 Él fue el primero en dar el paso.
 
-Su movimiento a penas fue perceptible pero ella no apartó los ojos de él tal y como le habían enseñado. Miró su centro y supo que su golpe iba a venir bajo, por lo que defendió aquel punto de su cuerpo. Se dió cuenta que él no quería ser letal con sus ataques, solo quería desestabilizar.
+Su movimiento apenas fue perceptible pero ella no apartó los ojos de él tal y como le habían enseñado. Miró su centro y supo que su golpe iba a venir bajo, por lo que defendió aquel punto de su cuerpo. Se dió cuenta que él no quería ser letal con sus ataques, solo quería desestabilizar.
 
 Para la sorpresa de él, Séfora le golpeó con la pala en el brazo y golpeó su antebrazo cuando él regresó a su posición. Se le escapó una leve risa viendo como ella se lo estaba tomando en serio.
 
