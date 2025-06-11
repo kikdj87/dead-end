@@ -120,7 +120,7 @@ Katsura giró el rostro y dejó de hablar.
 
 ---No es mala idea ---dijo Séfora y la miraron ---. Una repartición equitativa, yo te doy más responsabilidad y tú me das lealtad.
 
-Vio en el hombre un atisbo de sonrisa y aquello le hizo sentir mucho más segura.
+Vio en el hombre un atisbo de sonrisa y aquello le hizo sentir mucha más seguridad.
 
 Algunos no estaban muy de acuerdo con aquella decisión, pero no les quedaba otra que aceptarla. Había hecho lo que Sanghun le había pedido, crear unidad entre los distritos japoneses y además, evitar los disturbios a la hora de la llegada del cargamento. Pero éste tenía que llegar y le daba algo de miedo ese día.
 
@@ -158,9 +158,9 @@ Séfora dio un respingo al escuchar la voz de Junnosuke al fondo de la habitaci�
 
 ---¿Te dijo algo? Le mandé un mensaje ---dijo Séfora con rapidez.
 
----Mientras yo estaba allí no recibió nada ---él se encogió de hombros ---. Sí le dije lo de la reunión y me dijo que te felicitara.
+---Mientras yo estaba allí no recibió nada ---él se encogió de hombros ---. Sí le hablé de la reunión y me dijo que te felicitara.
 
-Junnosuke miró a Taeku y luego a Séfora con media sonrisa. Cuando ella fue consciente de lo que pensaba su compañero se llevó las manos a las mejillas para disimular que se había sonrojado.
+Junnosuke miró a Taeku y luego a Séfora con media sonrisa. Cuando ella fue consciente de lo que parecía pensar su compañero se llevó las manos a las mejillas para disimular que se había sonrojado.
 
 ---Me voy a mi piso. Tengo que estudiar el tema del cargamento.
 
@@ -180,7 +180,7 @@ _---Quita ese fondo de pantalla de viejo ---había espetado Ren ---, ahora que t
 
 _---A mi me gusta, es geométrico y bonito ---Séfora se encogió de hombros._
 
-_---No, eres una chica joven, ten un fondo de pantalla correspondiente a tu edad._
+_---No, eres una chica joven, ten un fondo de pantalla que corresponda a tu edad._
 
 _---¿Me pongo un cantante famoso?_ 
 
@@ -190,7 +190,7 @@ _---Bueno, de eso no es que abunden._
 
 _Ren pudo notar la incomodidad en ella y desbloqueó la cámara del teléfono frontal y estiró el brazo hacia delante._
 
-_---Ahora mismo nos haremos una foto juntos y la pones, va, sonríe._
+_---Ahora mismo nos haremos una foto juntos y la pones. Va, sonríe._
 
 Cuando se dio cuenta había empezado a llorar con ganas. Su muerte le había dolido y debía de ser consciente que la venganza no era por el padre de Ren, sino por ella misma.
 
