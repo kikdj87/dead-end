@@ -32,7 +32,7 @@ Se detuvo poco a poco y respiró profundamente cargándose de paciencia. Era su 
 
 _Normal_. Pensó Junnosuke. Hablar con él era recibir más órdenes y bastante trabajo tenían ya.
 
----Se ha extendido a las facciones más pequeñas que una chica occidental va a ocupar el puesto del viejo Watashime. Están habiendo pequeñas revueltas.
+---Se ha extendido a las facciones más pequeñas que una chica occidental va a ocupar el puesto del Viejo Watashime. Están habiendo pequeñas revueltas.
 
 ---¿Y no lo pueden controlar? No sé, Mishima se supone que es el supervisor.
 

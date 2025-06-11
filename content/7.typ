@@ -32,7 +32,7 @@ Ahora no era menos, pero creía que era una buena situación entre los dos solos
 
 Séfora se fijaba en cada detalle de su rostro. No había visto durante mucho tiempo a Keiken, pero de primeras los había confundido a ambos.
 
----Crecimos juntos, muy bien entre nosotros ---comenzó a explicar Junnosuke aun con el movimiento de sus manos nervioso ---. Pero cuando una facción del grupo se sublevó contra el viejo Watashime... perdón, tu abuelo Watashime, mi padre se fue con ellos.
+---Crecimos juntos, muy bien entre nosotros ---comenzó a explicar Junnosuke aun con el movimiento de sus manos nervioso ---. Pero cuando una facción del grupo se sublevó contra el Viejo Watashime... perdón, tu abuelo Watashime, mi padre se fue con ellos.
 
 Ella escuchaba atenta la historia y pudo ver como él estaba concentrado en buscar las palabras exactas.
 

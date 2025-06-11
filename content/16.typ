@@ -8,11 +8,11 @@ Se echó el pelo hacia atrás y se colocó una gorra negra, bajó todo lo que pu
 
 Sacó de la guantera un cuchillo bastante grande y se lo colocó en su correspondiente funda en el cinturón, junto a la pistola. Miles de recuerdos invadieron su mente en ese momento.
 
-_---Junnosuke, no dudes ---dijo el viejo Watashime ---. Tu duda hará que el enemigo crea que tenga oportunidad. Y puede que la aproveche. Ve directo al corazón, no le quites más cabezas a la Hidra porque saldrán más._
+_---Junnosuke, no dudes ---dijo el Viejo Watashime ---. Tu duda hará que el enemigo crea que tenga oportunidad. Y puede que la aproveche. Ve directo al corazón, no le quites más cabezas a la Hidra porque saldrán más._
 
 Vio en sus manos la sangre roja, pegajosa. En el suelo estaba el cuerpo de un niño sin vida.
 
-Sacudió la cabeza y se bajó del coche. Siempre le habían dicho que el viejo Watashime era un héroe, que había unificado un mundo separado por viejos rencores. Pero él veía un monstruo.
+Sacudió la cabeza y se bajó del coche. Siempre le habían dicho que el Viejo Watashime era un héroe, que había unificado un mundo separado por viejos rencores. Pero él veía un monstruo.
 
 Y Séfora no estaba lejos de convertirse en lo mismo. No sentía lástima por nadie de esa casa, tampoco por la chica, él luchaba por algo diferente.
 

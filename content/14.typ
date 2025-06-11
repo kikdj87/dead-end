@@ -90,7 +90,7 @@ Era raro para Séfora quedar con Sanghun fuera de su casa.
 
 Ambos estaban en un restaurante occidental, sentados al rededor de una mesa mientras el camarero llenaba una de las copas de vino tinto.
 
----Así que dicen que el viejo Watashime tuvo una aventura ---dijo Sanghun moviendo la copa de vino ---, eso sí que es interesante.
+---Así que dicen que el Viejo Watashime tuvo una aventura ---dijo Sanghun moviendo la copa de vino ---, eso sí que es interesante.
 
 ---¿Habías escuchado algo sobre eso? 
 
@@ -110,7 +110,7 @@ Séfora tragó saliva, esperaba que en cualquier momento él le fuera a reñir p
 
 ---Hemos recabado información importante.
 
----Información que acabará en la basura. Conocía al viejo Watashime, no tenía amantes en la calle ---se mantuvo serio.
+---Información que acabará en la basura. Conocía al Viejo Watashime, no tenía amantes en la calle ---se mantuvo serio.
 
 ---No estabas con él en cada momento ---se inclinó hacia delante ---, no sabes qué hacía a solas.
 

@@ -46,10 +46,24 @@ Taeku y Junnosuke la esperaban en la puerta del ascensor. Séfora salió de sus 
 
 Había estado dando vueltas durante este tiempo a qué era lo que sentía hacia Taeku, por qué cada roce con su piel era como una corriente eléctrica que le recorría todo el cuerpo. Aún no tenía respuestas. O por lo menos la más lógica no le gustaba.
 
----Si no puedo ir a Taipéi iré a Seúl ---sentenció Séfora.
+---Si no puedo ir a Taipéi iré a Seúl ---sentenció Séfora ---. Y además me gustaría programar el viaje para esta semana.
 
-Notó en el ambiente una pequeña tensión y miró a Taeku de forma directa. Tenía el rostro pétreo mientras miraba a todos lados en busca de alguna amenaza. El sótano estaba limpio de amenazas.
+Se hizo el silencio en el sótano, tan denso que casi podía se podía cortar. Séfora sintió el cambio en su compañero y se giró para mirarle. La postura de Taeku se había vuelto rígida, tenía los hombros tensos como si fuera un bloque de acero.
 
----Es una buena idea ---dijo Junnosuke con calma ---, tienes que conocer las diversas facciones de allí, ¿no Taeku?
+---No puedes decidir ir así, tan imprudente ---dijo Taeku de forma afilada, con la voz baja ---. Deberías... prepararte.
 
----Si ---dijo él ---. Es buena idea
+---Es una buena idea ---dijo Junnosuke divertido ---, así puede conocer a las facciones, ¿no Taeku?
+
+Séfora analizaba la mirada de Taeku en cada palabra que decía. Su gesto no era el mismo que había visto en Ten Shio momentos antes. Taeku estaba genuinamente preocupado por la seguridad de ella. Se miraron a los ojos y él asintió.
+
+---Si ---dijo él ---. Es buena idea al fin y al cabo.
+
+Entraron en el coche sin decir mucho más al respecto. Mientras se movían por las calles de Tokio Séfora fue recordando la primera vez que había pisado la ciudad, la emoción de Junnosuke mientras le explicaba algunas cosas interesantes. Se preguntó si Taeku reaccionaría igual en el momento que llegaran a Seúl.
+
+---Sanghun también es de Corea, ¿por qué vive aquí? ---dijo de pronto Séfora.
+
+---Bueno, es obvio ---Junnosuke giró el cuerpo del asiento delantero para mirarla ---. Su trabajo está aquí.
+
+---Puede que estés dirigiendo varios países, pero _La Torre Kimpun_ es la base de tu empresa ---dijo Taeku ---. Todos acaban viniendo aquí a las reuniones importantes.
+
+---El Viejo Watashime 

@@ -170,7 +170,7 @@ Vió llegar a Taeku con gesto cansado, así que se puso en pie y se acercó a é
 
 ---No, me pidió que saliera de la sala ---Taeku apuró la copa y la dejó en el fregador --- No sé nada de lo que hablaron solos.
 
----Supongo que volvemos a lo mismo que con el viejo -- Junnosuke frunció el ceño ---, reuniones entre ellos dos.
+---Supongo que volvemos a lo mismo que con el Viejo -- Junnosuke frunció el ceño ---, reuniones entre ellos dos.
 
 ---Somos unos simples guardaespaldas, Jun, no somos nadie más.
 

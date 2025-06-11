@@ -12,15 +12,15 @@ Se animó cuando se fijó que la chica a la que estaban vigilando salía de casa
 
 Era tan aburrido quedarse esperando a que ocurriera algo.Cerró la ventana y corrió las cortinas para que no se viera lo que hacía en el interior de la casa. Quería practicar con la katana para matar algo de tiempo, sentía que se estaba oxidando.
 
-Ya llevaban dos años vigilando a esa chica, le habían explicado que era la nieta del viejo Watashime y no podía pasarle nada.
+Ya llevaban dos años vigilando a esa chica, le habían explicado que era la nieta del Viejo Watashime y no podía pasarle nada.
 
 Tenía en mente el duro entrenamiento que había recibido mientras se movía con agilidad por el salón, haciendo cortes a un enemigo imaginario. Desde pequeño su padre le había enseñado un afán incondicional por el orden y la jerarquía que a día de hoy le acompañaba.
 
 Las cicatrices que marcaban su piel eran el recordatorio constante de lo que había aprendido. Vivir para salvarle el culo a otro.
 
-A pesar de su corta edad había servido al viejo Watashime hasta que éste había fallecido bajo extrañas circunstancias no estando bajo su supervisión. Ese día mataron a todos los que estaban con él.
+A pesar de su corta edad había servido al Viejo Watashime hasta que éste había fallecido bajo extrañas circunstancias no estando bajo su supervisión. Ese día mataron a todos los que estaban con él.
 
-La regla era simple: si el viejo moría, tú morías con él.
+La regla era simple: si el Viejo moría, tú morías con él.
 
 Terminó el movimiento con una media luna, alzando la espalda hasta el techo en un ágil movimiento. Se imaginó a su contrincante muerto y le puso la cara de su hermano.
 

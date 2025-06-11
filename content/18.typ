@@ -22,7 +22,7 @@ _---Esa insistencia en que..._
 
 _---Como guardaespaldas es tu trabajo impedir que ella se muera._
 
-El ordenador le dio un error y maldijo su despiste. Se dio un golpe en la cabeza y de nuevo volvió a empezar. Su entrenamiento no incluía el manejo de ordenadores, pero no tuvo más remedio que aprender cuando tuvo que infiltrarse dentro de una organización pequeña haciéndose pasar por un informático para robar información para el viejo Watashime.
+El ordenador le dio un error y maldijo su despiste. Se dio un golpe en la cabeza y de nuevo volvió a empezar. Su entrenamiento no incluía el manejo de ordenadores, pero no tuvo más remedio que aprender cuando tuvo que infiltrarse dentro de una organización pequeña haciéndose pasar por un informático para robar información para el Viejo Watashime.
 
 Desde entonces le había encontrado bastante utilidad, el problema existía en que donde realmente quería entrar existían unas barreras que le era imposible rebasar.
 
@@ -82,7 +82,7 @@ Señaló al jefe Aoki.
 
 Miró a quien acababa de hablar, se llama Kenzo, y esbozó media sonrisa. Aquel hombre fue de los primeros en aceptarla cuando fue a visitarla. Su grupo había proporcionado una lealtad brutal a la hora de conquistar los rebeldes más pequeños.
 
----El viejo Watashime estaba demasiado anclado en el pasado. No os equivoquéis, voy a ser fiel a la familia Watashime porque sin ellos no estaría donde estoy, pero ella está trabajando muy bien para ganarse nuestra confianza.
+---El Viejo Watashime estaba demasiado anclado en el pasado. No os equivoquéis, voy a ser fiel a la familia Watashime porque sin ellos no estaría donde estoy, pero ella está trabajando muy bien para ganarse nuestra confianza.
 
 Los hombres empezaron a hablar entre sí sobre los valores positivos que Séfora estaba trayendo. Meditó en lo que escuchaba y le costaba verse reflejada en lo que ellos decían, pero entendía que llevaba poco tiempo trabajando en mantenerse donde estaba.
 

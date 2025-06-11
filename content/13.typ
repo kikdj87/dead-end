@@ -140,7 +140,7 @@ Cada cinco minutos escuchaba la voz de su compañero comprobando que todo estuvi
 
 ---Aún no me he encontrado en persona con ellos ---comentó Séfora mirando el anillo que llevaba puesto ---, eso puede ser una ventaja.
 
----Úsalo con cuidado, una vez descubran tu cara no será fácil volver a la calle. El rumor en concreto que me ha llegado es que hay alguien que alardea de ser hijo del viejo Watashime, va buscando pelea y por ahora dicen que va ganando.
+---Úsalo con cuidado, una vez descubran tu cara no será fácil volver a la calle. El rumor en concreto que me ha llegado es que hay alguien que alardea de ser hijo del Viejo Watashime, va buscando pelea y por ahora dicen que va ganando.
 
 Séfora asentía concentrada a todo lo que estaba diciendo Junnosuke. En su cabeza empezaban a formarse ideas de lo que podría hacer nada más llegar allí. El problema era ella en sí.
 
