@@ -1,3 +1,5 @@
+#import "util.typ": separador
+
 =
 
 ---No vas a ir.
@@ -54,9 +56,11 @@ Se hizo el silencio en el sótano, tan denso que casi podía se podía cortar. S
 
 ---Es una buena idea ---dijo Junnosuke divertido ---, así puede conocer a las facciones, ¿no Taeku?
 
-Séfora analizaba la mirada de Taeku en cada palabra que decía. Su gesto no era el mismo que había visto en Ten Shio momentos antes. Taeku estaba genuinamente preocupado por la seguridad de ella. Se miraron a los ojos y él asintió.
+Séfora no apartó la vista de Taeku, ignorando a Junnosuke, analizando cada microexpresión su rostro. Vio la genuina preocupación en su mirada, pero también vio algo más: una determinación firme que estaba empezando a reconocer. Era la misma mirada que había visto en Ten Shio momentos antes.
 
----Si ---dijo él ---. Es buena idea al fin y al cabo.
+Taeku mantuvo el duelo de miradas un segundo más, y luego, un suspiro casi imperceptible escapó de sus labios. Su postura se relajó mínimamente, no en señal de derrota, sino de aceptación. Comprendió que ya no estaba hablando con la chica que rescató en Madrid. Estaba recibiendo una orden de su líder.
+
+---Si ---dijo asintiendo aún con tensión ---. Es buena idea al fin y al cabo. Pero iremos con más seguridad. Me llevará unos días de preparación, pero lo organizaré.
 
 Entraron en el coche sin decir mucho más al respecto. Mientras se movían por las calles de Tokio Séfora fue recordando la primera vez que había pisado la ciudad, la emoción de Junnosuke mientras le explicaba algunas cosas interesantes. Se preguntó si Taeku reaccionaría igual en el momento que llegaran a Seúl.
 
@@ -66,4 +70,29 @@ Entraron en el coche sin decir mucho más al respecto. Mientras se movían por l
 
 ---Puede que estés dirigiendo varios países, pero _La Torre Kimpun_ es la base de tu empresa ---dijo Taeku ---. Todos acaban viniendo aquí a las reuniones importantes.
 
----El Viejo Watashime 
+---El Viejo Watashime hacía pequeños viajes todos los meses para controlarlo todo ---djo Junnosuke.
+
+Séfora se había dado cuenta que cada vez que él nombraba a su abuelo se ponía más serio de lo normal y apretaba los labios.
+
+---¿Ibais los dos con él a todos lados? ---preguntó Séfora con curiosidad.
+
+---Yo no llegué a trabajar personalmente con el Viejo, me incorporé directamente en tu vigilancia ---dijo Taeku pensativo.
+
+---Yo sí. Tenía una seguridad con una jerarquía muy marcada, la verdad ---Junnosuke soltó un leve suspiro ---. A  su lado tenía como mucho tres personas, después tenía un grupo de diez personas y por último una seguridad de quince o veinte.
+
+---No lo entiendo.
+
+---Simplemente se turnaban, los tres que iban con él solo se sustituían si caían muertos. El segundo grupo siempre vigilaba el edificio por dentro cuando él iba a los sitios. El tercer grupo vigilaba los alrededores manteniendo el orden ---explicó Junnosuke.
+
+---Es como tienes tú ---Taeku aparcó el coche en la puerta de la casa y esperó a que la puerta del garaje se abriera ---, tienes gente vigilando la casa y gente vigilando el residencial. Y luego estamos nosotros.
+
+Asintió y cuando el coche estuvo bien aparcado se bajó de este, mirando a los chicos atenta.
+
+---Taeku, con el manejo del coreano que tengo, ¿crees que podré desenvolverme en las reuniones? ---preguntó en ese idioma.
+
+---Sí, te falta más soltura, pero lo hablas perfectamente.
+
+Sonrió satisfecha y sin decir nada más subió las escaleras hasta el primer piso, entrando en su casa.
+
+#separador
+
