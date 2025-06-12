@@ -96,3 +96,80 @@ Sonrió satisfecha y sin decir nada más subió las escaleras hasta el primer pi
 
 #separador
 
+Había ido a casa de Sanghun por iniciativa propia, sin avisar con antelación. Antes de emprender el viaje a Seúl quería dejar atadas algunas cosas.
+
+Estaba de pie en medio del despacho mirando todos los libros que tenía el abogado en las estanterías mientras él terminaba una conversación por teléfono.
+
+Le pareció tan curioso la diversidad de idiomas en la que estaban los libros. Pudo reconocer que incluso tenía el mismo libro en tres idiomas distintos. Cuando escuchó que esa llamada había finalizado se giró hacia él.
+
+---¿Cuántos idiomas hablas?
+
+---Pues... ---se quedó mirando al techo ---, en total seis. Son importantes para el trabajo. ¿Por qué lo preguntas?
+
+---¿Has leído todos estos libros? ---ella señaló la estantería.
+
+Séfora pudo ver la confusión en el rostro del abogado. Normalmente él se mostraba serio, con rostro tranquilo a la hora de decir las cosas, pero sus ojos entrecerrados mientras la miraba le hacía entender su confusión.
+
+---Sí, he leído todos y cada uno de esos libros que hay ahí. Necesito conocer las leyes de todos los países con los que trabajo. ¿Qué es lo que querías decirme?
+
+---Cierto ---se sentó en la silla frente a él ---. Mi abuelo tenía su propio despacho en _La Torre Kimpun_, ¿verdad?
+
+---Claro.
+
+---¿Puedo tener acceso al despacho?
+
+---Técnicamente es tuyo ---señaló Sanghun ---, pero si te refieres a lo que _tenía_ en el despacho, sí, puedes acceder a todos sus documentos. Pero no están allí.
+
+---¿Dónde está? ---preguntó ella molesta.
+
+---Dada la importancia de todo lo que tu abuelo tenía tanto en físico como en digital, lo guardé en mi casa. El despacho estaba demasiado expuesto sin que él estuviese allí.
+
+---Quisiera tenerlo en mi casa lo antes posible.
+
+---¿Has venido hasta aquí solo por eso? ---Sanghun parecía cansado.
+
+Séfora soltó un resoplido leve al escucharle. Él mantuvo el rostro serio mientras le mantenía la mirada.
+
+---Te lo haré llegar todo esta semana, antes de que viajes a Seúl.
+
+---Gracias
+
+---Por cierto, Séfora ---Sanghun la llamó antes de que ella saliera por la puerta ---. Te advierto que no todo lo que vas a encontrar en la documentación que te haré llegar te va a gustar.
+
+Ella se quedó en silencio sopesando sus palabras.
+
+---Me lo había imaginado.
+
+De vuelta a casa iba en el coche con Junnosuke y Taeku. El segundo conducía con las manos apretadas en el volante.
+
+---Ya he organizado el protocolo para el viaje a Seúl ---dijo Taeku ---. Ya no viajarás como una turista, no lo eres. El Viejo Watashime tenía un jet privado, irás en él.
+
+---Técnicamente ya no es suyo, lo he heredado ---dijo Séfora.
+
+---_Técnicamente_ ---repitió Taeku ---. Es de la empresa. Pero sí.
+
+Sabía que no podían verla, pero puso los ojos en blanco soltando un suspiro. A través del espejo retrovisor vio la mirada de Taeku que oscilaba entre ella y la carretera, por lo que sacó la lengua divertida.
+
+---No te preocupes, en Seúl irá bien ---dijo ella sin dejar de mirarle por el espejo ---, no me da miedo.
+
+---Me preocupa lo que Junho pueda tenerte preparado al llegar.
+
+---Taeku, eres demasiado exagerado ---Junnosuke habló junto a un fuerte resoplido ---, está bien preparada.
+
+---Si Junho tiene algo malo preparado se las verá conmigo, no tengo ninguna duda ---dijo Séfora ---, igual que he castigado a la gente en Japón, castigaré a quien sea en cualquier parte del mundo.
+
+---No sé si te fijaste en él el día de la ceremonia, pero se notaba en su rostro la tensión y estaba demasiado serio ---dijo Taeku.
+
+---Me fijé en el rostro de todos los presentes ---añadió Séfora con una sonrisa ---. No perdí detalle en los que no estaban muy de acuerdo en mi ascensión de poder.
+
+Jugó con un mechón de su pelo entre los dedos. Aquello le hizo recordar la ceremonia.
+
+Había sido en el salón de actos que _La Torre Kimpun_ tenía en la tercera planta. Era bastante grande para lo que parecía desde. Los diferentes líderes de facciones estaban sentados de forma ordenada.
+
+Todos congregados por países con su cabeza de organización sentado al frente. Kim Junho lideraba a catorce hombres de Corea. Ten Shio a ocho hombres de Taiwan y China. Y por último Takada Mishima lideraba a doce hombres en japón.
+
+Sanghun había asistido y estaba sentado junto a ella.
+
+Fue ese día que vio el árbol de poder que Taeku le había dibujado aún estando en Barcelona. También vio la analogía del centro comercial y de cómo habían facciones que querían sabotearlo.
+
+Hasta ahora se había centrado tan solo en dar visibilidad y poder a las facciones de Japón. En su imaginación aquellos hombres debían comprender que no podía aprender a manejarlo todo de la noche a la mañana, pero estaba muy lejos de la realidad. Esperaban de ella algo que aún estaba por llegar.
