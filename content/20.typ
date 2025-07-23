@@ -54,3 +54,55 @@ La cara de Taeku mirando cada caja era un poema. Las iba señalando mientras sus
 
 Lo dejó en el aire y Junnosuke fingió perfectamente una sonrisa de comprensión. Tenía un nudo en el estómago que tenía que calmar de alguna manera y el paquete de tabaco lo había dejado en el dormitorio. Ya no fumaba, pero tenerlo en la mano le daba cierta seguridad.
 
+---Son todo libros ---dijo Séfora con decepción.
+
+---¿Qué tipo de libros? ---Junnosuke se acercó a ella.
+
+---Mira este ---alzó un libro amarillento ---, _"El arte de la Guerra"_. Son de este tipo.
+
+Junnosuke puso los ojos en blanco al ver el libro. Podía ver en ella la misma cara de decepción que él había puesto momentos antes cuando había revisado las cajas.
+
+---Esto no son libros ---dijo Taeku.
+
+Tanto él como Séfora voltearon la mirada hacia Taeku que señalaba las últimas cajas, tenía la tapa en la mano.
+
+---Aquí hay unas cajas pequeñas que ponen fechas.
+
+Se asomó para verlas y apretó los labios esbozando una sonrisa amplia. Ahí estaba lo que quería. Dentro de la caja grande habían cajas de archivos de distintos años.
+
+---La documentación de mi abuelo ---Séfora se agachó revisando la caja ---, la última caja de aquí es de hace tres años. ¿Hay más como ésta?
+
+---Solo tres más ---añadió Taeku.
+
+Ahí estaba el tesoro que Junnosuke buscaba. Esas cuatro cajas contenían el archivo que el Viejo Watashime había guardado de la organización, esa documentación privada y clasificada. O eso quería pensar.
+
+Tenía tanta suerte de poder tener la confianza de Séfora para poder leer cada carpeta, porque sabía que si hubiese sido por Sanghun, ni él ni Taeku tendrían acceso a eso.
+
+---¿Qué es lo que quieres saber de todo esto, Sef? ---preguntó Taeku pasándose la mano por el pelo.
+
+Tenía que admitir que su compañero tenía muchas cualidades con la organización de la seguridad y el entrenamiento, pero lo que era de historia y documentación privada era algo negado.
+
+Esa información era tan importante como podía ser organizar un equipo de seguridad para viajar a Seúl. Conocer la forma de trabajo del Viejo Watashime era vital para saber como manejar la organización sin volverse loco. Y para él, era conocer unos entresijos que necesitaba para poder seguir con su plan.
+
+---Yo puedo ayudarte a clasificar la documentación, Séfora, en lo que es importante y lo que no ---señaló Junnosuke mirando divertido a Taeku.
+
+---No hay espacio humano para que podáis organizaros vosotros dos. Hay que bajar las cajas que no os sirven ---Taeku miró todo desganado ---. Y no voy a hacerlo solo.
+
+Taeku miró a Junnosuke, sabía por donde iba a salir. A veces su compañero podía entender lo que quería decir solo con mirarle y aquello le daba miedo. No podía cagarla.
+
+---Pues a bajar cincuenta y tres cajas al trastero.
+
+Séfora dio una palmada.
+
+Después de hora y media habían bajado todas las cajas al garaje. Los tres estaban sentados en el sofá del piso de ella bebiendo una cerveza cada uno.
+
+---Después de ayudar a subir las cajas y tener que bajarlas ahora me tiemblan los músculos ---Junnosuke bebió un trago largo.
+
+---Y después de entrenar también me siento agotada ---Séfora suspiró y miró la lata que tenía en las manos ---. No me gusta el sabor.
+
+---¿Nunca antes habías probado la cerveza? ---Taeku se sorprendió.
+
+Junnosuke se puso en pie escuchando la conversación del fondo de los otros dos y suspiró. Se acercó a las cajas que quedaban y las abrió. Faltaban archivadores, pero podía empezar con esto. Se pasó la mano por la barbilla y miró de reojo a los que estaban en el sofá. Hablaban del sabor de las distintas cervezas.
+
+A veces quería gritarles que se centraran en las cosas verdaderamente importantes, pero no quería desaprovechar cada oportunidad que el universo le entregaba con la relación que esos dos estaban forjando.
+
