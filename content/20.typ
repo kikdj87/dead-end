@@ -106,3 +106,20 @@ Junnosuke se puso en pie escuchando la conversación del fondo de los otros dos 
 
 A veces quería gritarles que se centraran en las cosas verdaderamente importantes, pero no quería desaprovechar cada oportunidad que el universo le entregaba con la relación que esos dos estaban forjando.
 
+No sabía exactamente qué caja tenía que abrir y qué archivador tenía que empezar a leer. Había trabajado mucho por ese momento, ahora solo tenía que tener paciencia en leer qué era lo que necesitaba. Ni él mismo lo sabía y tan solo podía esperar que cayera en sus manos por arte de magia.
+
+---Junnosuke, ¿qué miras? ---preguntó Séfora desde el sofá dejando la cerveza sobre la mesa ---¿Por qué no descansas?
+
+---Creo que me puede la curiosidad ---se puso en pie mientras colocaba las manos en su cadera , pensativo ---, ¿a caso a vosotros dos no?
+
+Séfora y Taeku se miraron durante un momento y ella se puso en pie para ir junto a él.
+
+---Si que quiero saber qué pone ---se quedó mirando su rostro, el cual era un cúmulo de varios sentimientos ---. Pero tengo miedo de que no me guste lo que vaya a encontrar.
+
+---El Viejo Watashime no era un santo ---murmuró Junnosuke.
+
+---Es cierto ---Taeku se colocó a su lado y se agachó hacia las cajas, abrió una y sacó un archivador ---. Este tiene fecha de dos mil ocho, ¿queréis que empiece por aquí?
+
+---No ---Séfora se agachó de golpe para colocar las manos en el archivador por sorpresa de los otros dos ---. Quiero verlos sola. Al menos por primera vez.
+
+Junnosuke entonces comprendió sus diversas emociones. Iba a conocer por primera vez al Viejo Watashime. Más bien, iba a conocer a su abuelo, así que soltó un profundo suspiro y asintió con la cabeza. Si había esperado tantos años para poder tenerlo, podría esperar unos días más. Séfora se merecía al menos eso.
